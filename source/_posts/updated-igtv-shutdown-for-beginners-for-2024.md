@@ -1,7 +1,7 @@
 ---
 title: "[Updated] IGTV Shutdown for Beginners for 2024"
-date: 2024-05-21T13:44:41.117Z
-updated: 2024-05-22T13:44:41.117Z
+date: 2024-06-10T08:05:38.323Z
+updated: 2024-06-11T08:05:38.323Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] IGTV Shutdown for Beginners for 2024"
 excerpt: "This Article Describes [Updated] IGTV Shutdown for Beginners for 2024"
 keywords: "\"IGTV Basics End,IGTV Closure Guide,Understanding IGTV Termination,Learning Post-IGTV Landscape,Mastering After-IGTV Content,Navigating Post-IGTV World,IGTV Removal Essentials\""
-thumbnail: https://www.lifewire.com/thmb/_dH3c5dpBZLrHjdwg47aypgTCi8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/twittermute-5bc42bbd46e0fb002679ac08.jpg
+thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b40ee36dae7aad2706914652.jpg
 ---
 
 ## IGTV Shutdown for Beginners

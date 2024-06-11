@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhance Video Aesthetics  Instagram Border Techniques\""
-date: 2024-05-21T13:37:01.426Z
-updated: 2024-05-22T13:37:01.426Z
+date: 2024-06-10T08:05:32.465Z
+updated: 2024-06-11T08:05:32.465Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Enhance Video Aesthetics: Instagram Border Techniques\""
 excerpt: "\"This Article Describes [Updated] Enhance Video Aesthetics: Instagram Border Techniques\""
 keywords: "VideoAesthetics,InstagramBorders,VisualImpact,SocialMediaEdge,GraphicEnhancement,EdgeEffects,ImageFraming"
-thumbnail: https://www.lifewire.com/thmb/ouXJb0p8iu69MptAZaPa-CTAUMg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/relaxing-while-getting-his-studies-done-495857099-5a1ed8c5ec2f640037e369f4.jpg
+thumbnail: https://thmb.techidaily.com/8f59b16f9ed7024a23cc6f18f766904b6f418e4c5b8df6a84d93cf668a943550.jpg
 ---
 
 ## Enhance Video Aesthetics: Instagram Border Techniques

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Android+iOS  AI-Curated InstaVideo Mosaic\""
-date: 2024-05-21T15:10:25.687Z
-updated: 2024-05-22T15:10:25.687Z
+date: 2024-06-10T08:05:40.550Z
+updated: 2024-06-11T08:05:40.550Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Android+iOS: AI-Curated InstaVideo Mosaic\""
 excerpt: "\"This Article Describes [Updated] In 2024, Android+iOS: AI-Curated InstaVideo Mosaic\""
 keywords: "InstaMosaic AI,Android iOS AI,AI Video Collage,AI Social Media,Cross Platform AI,Mobile Mosaic AI,VR Content Creation"
-thumbnail: https://www.lifewire.com/thmb/c_W-bqkUFLIKTo_i61jk41BN8k0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2024-01-17at12.08.28PM-45f8005316274053872dbaa7c76fd474.png
+thumbnail: https://thmb.techidaily.com/02ef47e4fa1bec9703102ec97417713d4516fad507615fc36a561cee9ad50600.png
 ---
 
 ## Android+iOS: AI-Curated InstaVideo Mosaic

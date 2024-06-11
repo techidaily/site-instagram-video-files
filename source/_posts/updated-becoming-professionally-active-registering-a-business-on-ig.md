@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Becoming Professionally Active  Registering a Business on IG\""
-date: 2024-05-21T15:04:34.099Z
-updated: 2024-05-22T15:04:34.099Z
+date: 2024-06-10T08:05:40.577Z
+updated: 2024-06-11T08:05:40.577Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Becoming Professionally Active: Registering a Business on IG\""
 excerpt: "\"This Article Describes [Updated] Becoming Professionally Active: Registering a Business on IG\""
 keywords: "Start Business on Instagram,Entrepreneurship Basics,Business Registration Guide,Professional Activation,Business Launch Steps,Registering IG Professionally,Business Setup Tips"
-thumbnail: https://www.lifewire.com/thmb/pS9dw1BYrcj7JfjdKUdVPI_At5g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/woman-with-remote-cropped-getty-169707531-5b2ebd5943a1030036b1eb56.jpg
+thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9ce7db19335f27276911d69ad.jpg
 ---
 
 ## Becoming Professionally Active: Registering a Business on IG

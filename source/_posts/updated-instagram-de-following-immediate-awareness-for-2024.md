@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Instagram De-Following  Immediate Awareness for 2024\""
-date: 2024-05-21T13:09:02.686Z
-updated: 2024-05-22T13:09:02.686Z
+date: 2024-06-10T08:05:36.307Z
+updated: 2024-06-11T08:05:36.307Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Instagram De-Following: Immediate Awareness for 2024\""
 excerpt: "\"This Article Describes [Updated] Instagram De-Following: Immediate Awareness for 2024\""
 keywords: "\"Instagram Unfollow Guide,Follower Limit Reach,Audience Management,Social Media Cleanup,De-Following Strategy,Brand Engagement Tactics,Immediate Content Impact\""
-thumbnail: https://www.lifewire.com/thmb/jYRcfPdtNI6tXDgrTbnTO06LdQ4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2022-04-08at12.07.28PM-362efc4e7603490a932bf9ac6e0f0113.png
+thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faafe915e31c07d32bad6007903.png
 ---
 
 ## Instagram De-Following: Immediate Awareness

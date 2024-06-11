@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Social Media  Key Apps for Professional IG Videographers\""
-date: 2024-05-21T14:00:03.183Z
-updated: 2024-05-22T14:00:03.183Z
+date: 2024-06-10T08:05:32.777Z
+updated: 2024-06-11T08:05:32.777Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Mastering Social Media: Key Apps for Professional IG Videographers\""
 excerpt: "\"This Article Describes [Updated] In 2024, Mastering Social Media: Key Apps for Professional IG Videographers\""
 keywords: "Prof IG Video Expertise,Social Media Mastery,IG Video Professionals,Videography Apps Guide,Key Social Tools,IG Video Techniques,Professional IG Tactics"
-thumbnail: https://www.lifewire.com/thmb/Zh3mZKCnOPI0pMIedMGDoBEQ9yQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-883964620-5b5f3c5246e0fb008273abc6-5c6ec71746e0fb0001c029f2.jpg
+thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cece118b77c428c885565f6981.jpg
 ---
 
 ## Mastering Social Media: Key Apps for Professional IG Videographers

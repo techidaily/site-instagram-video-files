@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Dissecting Instagram's Per-Post Video Quota for 2024\""
-date: 2024-05-21T13:27:38.789Z
-updated: 2024-05-22T13:27:38.789Z
+date: 2024-06-10T08:05:40.630Z
+updated: 2024-06-11T08:05:40.630Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Dissecting Instagram's Per-Post Video Quota for 2024\""
 excerpt: "\"This Article Describes [Updated] Dissecting Instagram's Per-Post Video Quota for 2024\""
 keywords: "\"Instagram Video Limit,Post Video Quota,Per-Post Video Cap,Instagram Video Policy,Video Content Rules,Social Media Video Quota,Instagram Video Restrictions\""
-thumbnail: https://www.lifewire.com/thmb/NDRJDKRnbGaIn0aAuDiPaTuttRM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/vlogger_HeroImages_Getty-5a529982b39d0300376c3826.jpg
+thumbnail: https://thmb.techidaily.com/8952485f60295f3d1e3d2e7fb384d7f4849fc0ba1ac13c5b58f754ed696cbd0a.jpg
 ---
 
 ## Dissecting Instagram's Per-Post Video Quota

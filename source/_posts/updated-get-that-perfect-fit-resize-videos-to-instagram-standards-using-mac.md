@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Get That Perfect Fit  Resize Videos to Instagram Standards Using Mac\""
-date: 2024-05-21T14:36:17.514Z
-updated: 2024-05-22T14:36:17.514Z
+date: 2024-06-10T08:05:33.064Z
+updated: 2024-06-11T08:05:33.064Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Get That Perfect Fit: Resize Videos to Instagram Standards Using Mac\""
 excerpt: "\"This Article Describes [Updated] Get That Perfect Fit: Resize Videos to Instagram Standards Using Mac\""
 keywords: "InstaVideoResizing,PerfectFitVideos,MacVideoEditing,OptimizeInstaPics,FitVideoStandards,VideoSizeAdjust,QuickMacReformat"
-thumbnail: https://www.lifewire.com/thmb/HEBDZLC1jMr1OKZ2CcKnILwP_lk=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sonyplaystation5-dc53869451d7416cbb32881a35c3fc32.jpg
+thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056bf2dd14982465e8c7b5b6a1.jpg
 ---
 
 ## Get That Perfect Fit: Resize Videos to Instagram Standards Using Mac

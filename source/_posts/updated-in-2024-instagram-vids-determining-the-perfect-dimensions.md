@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Instagram Vids  Determining the Perfect Dimensions\""
-date: 2024-05-21T15:03:57.956Z
-updated: 2024-05-22T15:03:57.956Z
+date: 2024-06-10T08:05:35.204Z
+updated: 2024-06-11T08:05:35.204Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Instagram Vids: Determining the Perfect Dimensions\""
 excerpt: "\"This Article Describes [Updated] In 2024, Instagram Vids: Determining the Perfect Dimensions\""
 keywords: "InstaVid Sizing Guide,Perfect Post Dims,Social Media Video Format,Optimal Imgur Width Height,Vids for Engaging Feed,Ideal Instagram Image Size,Content Layout in Img"
-thumbnail: https://www.lifewire.com/thmb/YoFEWWlqY0abEBrjSUdesHbTeyU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/dts-play-fi-lifestyle-aaa-5a4c211daad52b00366a3575.jpg
+thumbnail: https://thmb.techidaily.com/cb2689090616a1ba21a99aa6be50929e603a0dc8061abd47262715b07e4d29cd.jpg
 ---
 
 ## Instagram Vids: Determining the Perfect Dimensions

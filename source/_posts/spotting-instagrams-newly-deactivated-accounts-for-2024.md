@@ -1,7 +1,7 @@
 ---
 title: "Spotting Instagram's Newly Deactivated Accounts for 2024"
-date: 2024-05-21T15:01:57.184Z
-updated: 2024-05-22T15:01:57.184Z
+date: 2024-06-10T08:05:36.268Z
+updated: 2024-06-11T08:05:36.268Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Spotting Instagram's Newly Deactivated Accounts for 2024"
 excerpt: "This Article Describes Spotting Instagram's Newly Deactivated Accounts for 2024"
 keywords: "Spotted Deactive Profiles,Detecting Inactive Users,Identifying Inactive IG,Founder Inactive Profiles,Locate Silenced Instagram Pages,Discover Halted Accounts IG,Recognized Inactive Followers"
-thumbnail: https://www.lifewire.com/thmb/Gkr3gE8eLg0SUe5WeaWd97Kesj8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/BlondyBaruti-050621-024RTMini-c837c508205440e7926b69bad55754c0.jpg
+thumbnail: https://thmb.techidaily.com/d0e21788f29958fdaba0fdac4398d13da9177082545009c2bddd22992fae44fc.jpg
 ---
 
 ## Spotting Instagram's Newly Deactivated Accounts

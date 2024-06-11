@@ -1,7 +1,7 @@
 ---
 title: "\"Elevating Your Social Media Game  Horizontal Videos on IGTV for 2024\""
-date: 2024-05-21T13:20:15.465Z
-updated: 2024-05-22T13:20:15.465Z
+date: 2024-06-10T08:05:35.538Z
+updated: 2024-06-11T08:05:35.538Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Elevating Your Social Media Game: Horizontal Videos on IGTV for 2024\""
 excerpt: "\"This Article Describes Elevating Your Social Media Game: Horizontal Videos on IGTV for 2024\""
 keywords: "Horizontal Video Tutorials,IGTV Content Strategy,Social Media Engagement,Elevate IGTV Presence,Viral IG Videos,Effective IGTV Use,Enhancing Social Media"
-thumbnail: https://www.lifewire.com/thmb/jevn_ZQZhYjRiW3CTTFu74aAcbY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/why-car-battery-keeps-dying-4125506-a2fbb3e180be4fcfb8bdf42bd8ae1bb6.png
+thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0107a7a0c827d88713775503.png
 ---
 
 ## Elevating Your Social Media Game: Horizontal Videos on IGTV

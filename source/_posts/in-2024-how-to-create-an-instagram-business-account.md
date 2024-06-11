@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Create an Instagram Business Account"
-date: 2024-05-21T13:26:59.569Z
-updated: 2024-05-22T13:26:59.569Z
+date: 2024-06-10T08:05:41.101Z
+updated: 2024-06-11T08:05:41.101Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, How to Create an Instagram Business Account"
 excerpt: "This Article Describes In 2024, How to Create an Instagram Business Account"
 keywords: "Insta Business Setup,Brand on Instagram,Business Instagram Account,Monetize Instagram,Instagram Business Profile,Enterprise on Instagram,Growth via Instagram"
-thumbnail: https://www.lifewire.com/thmb/XEmNY2XXmdFN8cULyGG57iImpok=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/outlookcopilot05-956518ea12234406945d579c7f351886.jpg
+thumbnail: https://thmb.techidaily.com/fd283428cd4cb2c0907e2d15b8c7aa3306b361f3c11c9903f383663675146f0a.jpg
 ---
 
 ## How to Create an Instagram Business Account

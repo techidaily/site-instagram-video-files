@@ -1,7 +1,7 @@
 ---
 title: "[New] Step up Your Film Game on Instagram with Border Tips for 2024"
-date: 2024-05-21T14:39:10.181Z
-updated: 2024-05-22T14:39:10.181Z
+date: 2024-06-10T08:05:41.203Z
+updated: 2024-06-11T08:05:41.203Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Step up Your Film Game on Instagram with Border Tips for 2024"
 excerpt: "This Article Describes [New] Step up Your Film Game on Instagram with Border Tips for 2024"
 keywords: "InstaFilmTips,CinematicInsta,FilmGameBoost,CinEdgeTips,MovieMarketing,BrandVideoStrategy,SocialMediaCinema"
-thumbnail: https://www.lifewire.com/thmb/4OpZUmrUm09wuyKaxQzrFai2HEQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2023-09-12at11.00.18AM-9bce49c3f0784762bc4792fe43286cc8.png
+thumbnail: https://thmb.techidaily.com/76bc2de184e61e693dbac8bc5f62288cf6610a7d170abd91534f7a21873e1f18.png
 ---
 
 ## Step up Your Film Game on Instagram with Border Tips

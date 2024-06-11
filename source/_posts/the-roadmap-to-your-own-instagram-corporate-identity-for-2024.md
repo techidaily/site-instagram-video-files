@@ -1,7 +1,7 @@
 ---
 title: "The Roadmap to Your Own Instagram Corporate Identity for 2024"
-date: 2024-05-21T15:08:41.794Z
-updated: 2024-05-22T15:08:41.794Z
+date: 2024-06-10T08:05:35.849Z
+updated: 2024-06-11T08:05:35.849Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes The Roadmap to Your Own Instagram Corporate Identity for 2024"
 excerpt: "This Article Describes The Roadmap to Your Own Instagram Corporate Identity for 2024"
 keywords: "Insta Branding Guide,Corporate IG Designs,Personalized Business Profile,IG Identity Planning,Professional IG Lookbook,Custom IG Company Brand,Strategic IG Business Image"
-thumbnail: https://www.lifewire.com/thmb/CAyu-hL_7SmLC0EkFP9Yz_OwnP0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/car-block-heater-frozen-north-534833-e1ea6a5455884f7b85b7ed8c6ba902e8.png
+thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07942af07cd489ff374cb4abd.png
 ---
 
 ## The Roadmap to Your Own Instagram Corporate Identity

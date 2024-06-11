@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Spotlight on Recent Unfollows on Instagram\""
-date: 2024-05-21T15:08:36.378Z
-updated: 2024-05-22T15:08:36.378Z
+date: 2024-06-10T08:05:35.345Z
+updated: 2024-06-11T08:05:35.345Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Spotlight on Recent Unfollows on Instagram\""
 excerpt: "\"This Article Describes 2024 Approved: Spotlight on Recent Unfollows on Instagram\""
 keywords: "\"Insta Unfollow Trends,Follower Churn Analysis,User De-Follow Insights,Insta Disengagement Study,Social Media Unfollows,Follow Pattern Shifts,Instagram Dropout Rates\""
-thumbnail: https://www.lifewire.com/thmb/52vAO-Tr9m6ZoIOARQ_rx3SY5GY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/womanchargingcarwithdognearby_RyanJLane_Getty-60af98b715d241ea8be4252d5bf1e967.jpg
+thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60e59b4a6159a2401dabd161b.jpg
 ---
 
 ## Spotlight on Recent Unfollows on Instagram

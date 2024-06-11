@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Untold Chronicles  Adventures in Antique Literature for 2024\""
-date: 2024-05-21T14:10:50.914Z
-updated: 2024-05-22T14:10:50.914Z
+date: 2024-06-10T08:05:37.078Z
+updated: 2024-06-11T08:05:37.078Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] The Untold Chronicles: Adventures in Antique Literature for 2024\""
 excerpt: "\"This Article Describes [Updated] The Untold Chronicles: Adventures in Antique Literature for 2024\""
 keywords: "\"Ancient Lit Tales,Book Adventure History,Timeworn Stories,Age-Old Narratives,Literary Quest Epic,Vintage Reads Journey,Classic Lib Chronicles\""
-thumbnail: https://www.lifewire.com/thmb/ir-tdkJhetInDNhHCkfbZa8f19M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Flack-6b3c3167132c467db22bae39689c44ef.jpg
+thumbnail: https://thmb.techidaily.com/918ad49eae4bb09e7bbe637c097999923379261d114b5800bdb87d98b552aa6d.jpg
 ---
 
 ## The Untold Chronicles: Adventures in Antique Literature

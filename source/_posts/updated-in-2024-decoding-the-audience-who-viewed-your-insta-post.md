@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Decoding the Audience  Who Viewed Your Insta Post?\""
-date: 2024-05-21T13:32:41.788Z
-updated: 2024-05-22T13:32:41.788Z
+date: 2024-06-10T08:05:38.240Z
+updated: 2024-06-11T08:05:38.240Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Decoding the Audience: Who Viewed Your Insta Post?\""
 excerpt: "\"This Article Describes [Updated] In 2024, Decoding the Audience: Who Viewed Your Insta Post?\""
 keywords: "Instagram Views Analysis,Audience Insights Instagram,Instagram Demographics Study,User Engagement on Instagram,Social Media Audience Data,Instagram Post Reach,Content Performance Tracking"
-thumbnail: https://www.lifewire.com/thmb/MDGL2kMJllFexcxpsA_p345aX0g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/The-Conjuring-3-3d34f5a-scaled-96b4939261ee4274a8be036e7e6aa405.jpeg
+thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
 ---
 
 ## Decoding the Audience: Who Viewed Your Insta Post?

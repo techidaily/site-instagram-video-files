@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How Superficial Shares Spell Social Deterioration\""
-date: 2024-05-21T14:52:04.144Z
-updated: 2024-05-22T14:52:04.144Z
+date: 2024-06-10T08:05:34.604Z
+updated: 2024-06-11T08:05:34.604Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: How Superficial Shares Spell Social Deterioration\""
 excerpt: "\"This Article Describes [New] 2024 Approved: How Superficial Shares Spell Social Deterioration\""
 keywords: "\"Socio-Deterioration Effects,Social Media Impact,Cultural Erosion Online,Deconstructing Shallow Interactions,Deep Connections Decline,Superficiality in Networks,Digital Disconnection Growth\""
-thumbnail: https://www.lifewire.com/thmb/_qbqhcJ9cnUraJOaoGrTox6qTXo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/JasonBourne2-578fd3ac3df78c09e9741172.jpg
+thumbnail: https://thmb.techidaily.com/0e3820d1cc459c1675907e5894236de62a82183359872714a0c5168c962bf67b.jpg
 ---
 
 ## How Superficial Shares Spell Social Deterioration

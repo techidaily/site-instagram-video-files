@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Instagram’s Notes for Sharing Tunes Responsibly\""
-date: 2024-05-21T14:26:10.916Z
-updated: 2024-05-22T14:26:10.916Z
+date: 2024-06-10T08:05:36.954Z
+updated: 2024-06-11T08:05:36.954Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Instagram’s Notes for Sharing Tunes Responsibly\""
 excerpt: "\"This Article Describes 2024 Approved: Instagram’s Notes for Sharing Tunes Responsibly\""
 keywords: "Share Music Responsibly,Insta Notes Tips,Sharing Tunes Ethically,Safe Music Sharing,Responsible Instagram Use,Tunes Caution Guide,Instagram Sound Tips"
-thumbnail: https://www.lifewire.com/thmb/cnjnkPWdIA12GDaeFz62_nExYhg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/title-b16094ee6f3340328084b9e5cc01426f.jpg
+thumbnail: https://thmb.techidaily.com/214585cc6f04e9f51b09b50240658d386b443c6b610883b05f292e6c6a7a4335.jpg
 ---
 
 ## Instagram’s Notes for Sharing Tunes Responsibly

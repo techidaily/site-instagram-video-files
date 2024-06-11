@@ -1,7 +1,7 @@
 ---
 title: "[New] Boost Interaction with Crafted IG Story Queries for 2024"
-date: 2024-05-21T14:40:14.843Z
-updated: 2024-05-22T14:40:14.843Z
+date: 2024-06-10T08:05:35.125Z
+updated: 2024-06-11T08:05:35.125Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Boost Interaction with Crafted IG Story Queries for 2024"
 excerpt: "This Article Describes [New] Boost Interaction with Crafted IG Story Queries for 2024"
 keywords: "Engaging IG Stories,Custom IG Query Boost,Curated Instagram Posts,Tailored IG Interactions,Crafted Story Queries,Personalized IG Prompts,Bespoke Content for IG"
-thumbnail: https://www.lifewire.com/thmb/-RQqNVzP345-03YaY2S-iOctUFs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-watch-mad-max-movies-in-order-c7af6d3dcb0c4d329e9c0e5775e9fc1d.jpg
+thumbnail: https://thmb.techidaily.com/720039bdcfeba97eefefa9824f21f9715183b78c763bbf782b71c474fcdd45b6.jpg
 ---
 
 ## Boost Interaction with Crafted IG Story Queries

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Step-by-Step Guide to Implementing Borders on Instagram Images\""
-date: 2024-05-21T13:30:39.872Z
-updated: 2024-05-22T13:30:39.872Z
+date: 2024-06-10T08:05:34.661Z
+updated: 2024-06-11T08:05:34.661Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Step-by-Step Guide to Implementing Borders on Instagram Images\""
 excerpt: "\"This Article Describes In 2024, Step-by-Step Guide to Implementing Borders on Instagram Images\""
 keywords: "Instagram Border Tutorial,Image Borders on IG,Adding Edges to Photos,IG Picture Border Guide,Mastering Instagram Borders,Enhance Img with Borders,Edge Effects for Insta Photos"
-thumbnail: https://www.lifewire.com/thmb/NOc5RCOPURestyDsC5sxK7KzGY8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-971165690-1e0af1d9299f4fdba1225c2d20c739f2.jpg
+thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89ced90101624b46320eed1514.jpg
 ---
 
 ## Step-by-Step Guide to Implementing Borders on Instagram Images
