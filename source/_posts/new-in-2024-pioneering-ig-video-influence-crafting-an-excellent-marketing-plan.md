@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Pioneering IG Video Influence  Crafting an Excellent Marketing Plan\""
-date: 2024-05-21T14:00:08.608Z
-updated: 2024-05-22T14:00:08.608Z
+date: 2024-06-19T07:54:52.767Z
+updated: 2024-06-20T07:54:52.767Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Pioneering IG Video Influence: Crafting an Excellent Marketing Plan\""
 excerpt: "\"This Article Describes [New] In 2024, Pioneering IG Video Influence: Crafting an Excellent Marketing Plan\""
 keywords: "Influencer Marketing Plans,Video Content Strategy,Engaging IG Videos,Social Media Marketing,Brands on Instagram,Advertising via Video,Marketing with Visuals"
-thumbnail: https://www.lifewire.com/thmb/PUnRurqDMEhLT6VrZqPRE65yXbk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-set-up-and-use-the-nintendo-online-family-plan-featured-3b6c415d14f34e37a972e3800dc94c7d.jpg
+thumbnail: https://thmb.techidaily.com/9e3c28da8c3857f4b56c87999aa1c53599613008193fcbe550b0f87978d3601d.jpg
 ---
 
 ## Pioneering IG Video Influence: Crafting an Excellent Marketing Plan

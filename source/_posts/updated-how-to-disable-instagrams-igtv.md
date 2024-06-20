@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Disable Instagram's IGTV"
-date: 2024-05-21T14:34:37.742Z
-updated: 2024-05-22T14:34:37.742Z
+date: 2024-06-19T07:54:59.537Z
+updated: 2024-06-20T07:54:59.537Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] How to Disable Instagram's IGTV"
 excerpt: "This Article Describes [Updated] How to Disable Instagram's IGTV"
 keywords: "Turn Off Instagram TV,Stop Using IGTV,Disable IGTV Service,Eliminate IGTV Feature,Quit IGTV on Instagram,Halt IGTV Streaming,Remove IGTV Functionality"
-thumbnail: https://www.lifewire.com/thmb/mFm3wLQN2qU0xXhu8ii-4Ee59Nc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ImagefromiOS1-d1c97c13048a4fc88627e315957d98d8.jpg
+thumbnail: https://thmb.techidaily.com/f14d93751e019bfea4a977ac2ac9bc564b77ea9b7c9b8b27159acb247e2b395b.jpg
 ---
 
 ## How to Disable Instagram's IGTV

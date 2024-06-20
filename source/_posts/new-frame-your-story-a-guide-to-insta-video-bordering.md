@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Frame Your Story  A Guide to Insta Video Bordering\""
-date: 2024-05-21T13:33:46.396Z
-updated: 2024-05-22T13:33:46.396Z
+date: 2024-06-19T07:55:01.927Z
+updated: 2024-06-20T07:55:01.927Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Frame Your Story: A Guide to Insta Video Bordering\""
 excerpt: "\"This Article Describes [New] Frame Your Story: A Guide to Insta Video Bordering\""
 keywords: "Frame Your Video,Instagram Borders,Visual Storytelling,Social Media Frames,Video Edge Design,Instagram Stories Edges,Creative Video Lines"
-thumbnail: https://www.lifewire.com/thmb/slEcAvIb95fP3sjPyuUiAqWxAnU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/best-ways-to-use-google-maps-trip-planner-4584427-8-9b4ba3c12bfb44a1acfe947a31c815fa.jpg
+thumbnail: https://thmb.techidaily.com/596d58530eb9322168d7babcbb9a9489a386dda09536b6b2d4f38f91d6402603.jpg
 ---
 
 ## Frame Your Story: A Guide to Insta Video Bordering
@@ -72,7 +72,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
@@ -197,7 +197,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
@@ -322,7 +322,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
@@ -447,7 +447,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 

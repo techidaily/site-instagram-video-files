@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering Video Cropping & Export for Instagram Posts"
-date: 2024-05-21T14:59:22.866Z
-updated: 2024-05-22T14:59:22.866Z
+date: 2024-06-19T07:54:57.136Z
+updated: 2024-06-20T07:54:57.136Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Mastering Video Cropping & Export for Instagram Posts"
 excerpt: "This Article Describes [Updated] In 2024, Mastering Video Cropping & Export for Instagram Posts"
 keywords: "Video Crop Guide,Export Tips,Insta Editing,Cropping Techniques,Shortform Videos,Effective Export,Content Optimization"
-thumbnail: https://www.lifewire.com/thmb/z-ysFyc8K8Xltdoo6m0FEu6vCQM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/amazon-prime--the-grand-tour--season-2-premiere-in-essen-888078928-5a938393119fa8003757e7ff.jpg
+thumbnail: https://thmb.techidaily.com/ab11097b735383eb1301c6c7953b6d3e90027241dcabace0ad8db43fe24b30d7.jpg
 ---
 
 ## Mastering Video Cropping & Export for Instagram Posts

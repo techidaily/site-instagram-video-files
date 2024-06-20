@@ -1,7 +1,7 @@
 ---
 title: "[New] The Quick Guide to Disconnect on IG for 2024"
-date: 2024-05-21T14:02:05.437Z
-updated: 2024-05-22T14:02:05.437Z
+date: 2024-06-19T07:55:03.465Z
+updated: 2024-06-20T07:55:03.465Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] The Quick Guide to Disconnect on IG for 2024"
 excerpt: "This Article Describes [New] The Quick Guide to Disconnect on IG for 2024"
 keywords: "Instagram Disconnect Tips,Social Media Detox Guide,How to Unfollow on IG,Digital Breakdown Strategies,Minimizing Online Presence,Reducing Followers Count,Privacy Control Tools"
-thumbnail: https://www.lifewire.com/thmb/lxejII9AYgdEEcGgRiXUgTIRyNU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Apple-iPhone-15-Pro-lineup-design-230912_big.jpg.large_2x-d4c86ba576534524b322e14268aa9fbe.jpg
+thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959913be278ad38c42bb2fd196.jpg
 ---
 
 ## The Quick Guide to Disconnect on IG
@@ -55,7 +55,7 @@ Please be informed that when you block someone on Instagram, that person will no
 
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
 
 ### Method 2: Using a Web Browser to Block Followers
 
@@ -67,7 +67,7 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 **Step 3:** A small-up window will appear on the list with the option "block this user." Please click on that.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
 
 **Step 4:** Once you do, you will see the block and cancel options. You need to select the block option,and that's about it.
 
@@ -129,7 +129,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 4:** You will see all the accounts that you have blocked. Click on the account that you want to unblock, and click on the unblock option that you see towards the right.
 
-![Instagram Unblock  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
+![Instagram Unblock](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
 
 **Step 5:** Instagram will ask you to confirm your choice. You need to click on the Unblock option again. That's it; the user has been unblocked successfully.
 
@@ -141,7 +141,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 3:** Visit their profile, and you will see the unblock option. Click on the unblock option to remove the profile from the blocked list.
 
-![Instagram Unblock from web  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
+![Instagram Unblock from web](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
 
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 
@@ -219,7 +219,7 @@ Please be informed that when you block someone on Instagram, that person will no
 
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
 
 ### Method 2: Using a Web Browser to Block Followers
 
@@ -231,7 +231,7 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 **Step 3:** A small-up window will appear on the list with the option "block this user." Please click on that.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
 
 **Step 4:** Once you do, you will see the block and cancel options. You need to select the block option,and that's about it.
 
@@ -293,7 +293,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 4:** You will see all the accounts that you have blocked. Click on the account that you want to unblock, and click on the unblock option that you see towards the right.
 
-![Instagram Unblock  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
+![Instagram Unblock](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
 
 **Step 5:** Instagram will ask you to confirm your choice. You need to click on the Unblock option again. That's it; the user has been unblocked successfully.
 
@@ -305,7 +305,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 3:** Visit their profile, and you will see the unblock option. Click on the unblock option to remove the profile from the blocked list.
 
-![Instagram Unblock from web  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
+![Instagram Unblock from web](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
 
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 
@@ -383,7 +383,7 @@ Please be informed that when you block someone on Instagram, that person will no
 
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
 
 ### Method 2: Using a Web Browser to Block Followers
 
@@ -395,7 +395,7 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 **Step 3:** A small-up window will appear on the list with the option "block this user." Please click on that.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
 
 **Step 4:** Once you do, you will see the block and cancel options. You need to select the block option,and that's about it.
 
@@ -457,7 +457,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 4:** You will see all the accounts that you have blocked. Click on the account that you want to unblock, and click on the unblock option that you see towards the right.
 
-![Instagram Unblock  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
+![Instagram Unblock](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
 
 **Step 5:** Instagram will ask you to confirm your choice. You need to click on the Unblock option again. That's it; the user has been unblocked successfully.
 
@@ -469,7 +469,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 3:** Visit their profile, and you will see the unblock option. Click on the unblock option to remove the profile from the blocked list.
 
-![Instagram Unblock from web  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
+![Instagram Unblock from web](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
 
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 
@@ -547,7 +547,7 @@ Please be informed that when you block someone on Instagram, that person will no
 
 **Step 4:** Instagram will ask you if you want to block the person; click on the block option again.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/confirm-instagram-block.jpg)
 
 ### Method 2: Using a Web Browser to Block Followers
 
@@ -559,7 +559,7 @@ If you don't want to use your mobile app, you can easily block a person using th
 
 **Step 3:** A small-up window will appear on the list with the option "block this user." Please click on that.
 
-![Instagram Block  ](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
+![Instagram Block](https://images.wondershare.com/filmora/article-images/click-on-the-block-option-instagram.jpg)
 
 **Step 4:** Once you do, you will see the block and cancel options. You need to select the block option,and that's about it.
 
@@ -621,7 +621,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 4:** You will see all the accounts that you have blocked. Click on the account that you want to unblock, and click on the unblock option that you see towards the right.
 
-![Instagram Unblock  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
+![Instagram Unblock](https://images.wondershare.com/filmora/article-images/unblock-instagram-blocked-accounts.jpg)
 
 **Step 5:** Instagram will ask you to confirm your choice. You need to click on the Unblock option again. That's it; the user has been unblocked successfully.
 
@@ -633,7 +633,7 @@ Just like blocking an account is possible, unblocking the same account is possib
 
 **Step 3:** Visit their profile, and you will see the unblock option. Click on the unblock option to remove the profile from the blocked list.
 
-![Instagram Unblock from web  ](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
+![Instagram Unblock from web](https://images.wondershare.com/filmora/article-images/unblock-instagram-users-web.jpg)
 
 **Step 4:** Click on the unblock option, and Instagram will ask you to confirm your choice. Click on the unblock option again, and it's done.
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Detecting Unfollow Trends on Instagram\""
-date: 2024-05-21T14:53:32.768Z
-updated: 2024-05-22T14:53:32.768Z
+date: 2024-06-19T07:54:55.990Z
+updated: 2024-06-20T07:54:55.990Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Detecting Unfollow Trends on Instagram\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Detecting Unfollow Trends on Instagram\""
 keywords: "InstaFollow Patterns,Unfollow Analysis,Follower Behavior,Social Media Tracking,Engagement Fluctuations,Trend Monitoring,Profile Dynamics"
-thumbnail: https://www.lifewire.com/thmb/r3jpq9ROQxLDw5jkzVWst0zLBF0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1257729194-27ecd3f4d103424a8ece636fc6e2efbd.jpg
+thumbnail: https://thmb.techidaily.com/647ef78b4d08f0529cf98c1ddda37990b536ba3daaeb866103686a0f1d6cb404.jpg
 ---
 
 ## Detecting Unfollow Trends on Instagram

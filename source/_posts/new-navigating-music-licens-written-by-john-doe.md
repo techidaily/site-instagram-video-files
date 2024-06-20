@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating Music Licens Written by John Doe"
-date: 2024-05-21T14:08:08.791Z
-updated: 2024-05-22T14:08:08.791Z
+date: 2024-06-19T07:54:52.484Z
+updated: 2024-06-20T07:54:52.484Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Navigating Music Licens Written by John Doe"
 excerpt: "This Article Describes [New] Navigating Music Licens Written by John Doe"
 keywords: "Music License Guide,Copyright In Music,Music Publishing Basics,Legal Rights in Music,Author's Music Licensing,Understanding Music Royalties,Written Music Licensing"
-thumbnail: https://www.lifewire.com/thmb/5gDgaYKc1yghtNmOZoUL0vdX3g4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2022-01-28at1.31.59PM-51c7b26d3d0e4393a587f0fd791f18a8.png
+thumbnail: https://thmb.techidaily.com/99b109a018ec790ad915859b13c869439cc17a979bbda283730a317cf601feb3.png
 ---
 
 ## Navigating Music Licens Written by John Doe

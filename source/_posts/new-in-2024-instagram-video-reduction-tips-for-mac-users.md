@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Instagram Video Reduction Tips for Mac Users"
-date: 2024-05-21T13:56:47.708Z
-updated: 2024-05-22T13:56:47.708Z
+date: 2024-06-19T07:54:50.493Z
+updated: 2024-06-20T07:54:50.493Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Instagram Video Reduction Tips for Mac Users"
 excerpt: "This Article Describes [New] In 2024, Instagram Video Reduction Tips for Mac Users"
 keywords: "Mac Insta Vid Reduce,Video Editing Mac,Mac Media Cutting,Instagram Resize Mac,Shorten Mac Videos,Mac Screen Record,Reduce Vid Mac"
-thumbnail: https://www.lifewire.com/thmb/bqDvuF_UsKT1P3NOnjWAao-AJkY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/buy-used-iphone-5717c2523df78c3fa23ddc70.jpg
+thumbnail: https://thmb.techidaily.com/fa8cb6ca311af8694c1fd2b592b0789e69f6337924778efc705315343e4f909c.jpg
 ---
 
 ## Instagram Video Reduction Tips for Mac Users

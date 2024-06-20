@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlocking the Potential of Your Phone & DSLR for IGTV Videos"
-date: 2024-05-21T14:15:02.040Z
-updated: 2024-05-22T14:15:02.040Z
+date: 2024-06-19T07:54:53.215Z
+updated: 2024-06-20T07:54:53.215Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Unlocking the Potential of Your Phone & DSLR for IGTV Videos"
 excerpt: "This Article Describes [New] Unlocking the Potential of Your Phone & DSLR for IGTV Videos"
 keywords: "Phones for IGTV,DSLR Video Editing,Mobile Camera Tips,IGTV Content Creation,Enhancing Phone Photography,DSLR For IGTV,Professional Phone Videos"
-thumbnail: https://www.lifewire.com/thmb/Oia8CqbKqxrch0uWLwf-HHHpia4=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/TravelTech_GettyImages-1410662282_CROPPED_d3sign-03c2cdf5be314894b99757426813be51.jpg
+thumbnail: https://thmb.techidaily.com/f04df6c23b871cbbd0c17b0eb3921c505712d724d4bbb61a362d901e0200289d.jpg
 ---
 
 ## Unlocking the Potential of Your Phone & DSLR for IGTV Videos

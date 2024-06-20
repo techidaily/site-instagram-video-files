@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Sniff Out Recent Unfollowers on Instagram"
-date: 2024-05-21T14:16:30.883Z
-updated: 2024-05-22T14:16:30.883Z
+date: 2024-06-19T07:54:53.036Z
+updated: 2024-06-20T07:54:53.036Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Sniff Out Recent Unfollowers on Instagram"
 excerpt: "This Article Describes [Updated] Sniff Out Recent Unfollowers on Instagram"
 keywords: "InstaUnfollowAlerts,FreshFollowerList,FollowerDriftDetect,UnfollowTrackerInsta,RecentFollowChangeIgs,InstaFollowStatusCheck,TrackingNewFollowersIgs"
-thumbnail: https://www.lifewire.com/thmb/AdJw0Uo65Rvhz4XSH8SUHKWY3YQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/podcasts-safeforkids-5b2f3dd4eb97de0036d9f87b.jpg
+thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb6f2fa2e2f0075e18f87eaf2.jpg
 ---
 
 ## Sniff Out Recent Unfollowers on Instagram

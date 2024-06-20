@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Thrive on InstaVid  A Guide to Creating a Solid Video Marketing Framework\""
-date: 2024-05-21T15:00:29.548Z
-updated: 2024-05-22T15:00:29.548Z
+date: 2024-06-19T07:54:58.555Z
+updated: 2024-06-20T07:54:58.555Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Thrive on InstaVid: A Guide to Creating a Solid Video Marketing Framework\""
 excerpt: "\"This Article Describes [Updated] Thrive on InstaVid: A Guide to Creating a Solid Video Marketing Framework\""
 keywords: "InstaVideo Thriving,VidMarketing Guide,VideoFramework Strategy,BrandedInstaVideos,EngagingVideo Content,MarketingVideo Tips,Framework for Videos"
-thumbnail: https://www.lifewire.com/thmb/4MSiSpuxZCsUDxZlQSAaZvmmruQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/nintendoswitch-5c45c3fcc9e77c000136b598.jpg
+thumbnail: https://thmb.techidaily.com/38800d1bcd9a0db51e74a8d6e9d259f45c0a81d4cc5911dccf11c067ddd27a33.jpg
 ---
 
 ## Thrive on InstaVid: A Guide to Creating a Solid Video Marketing Framework

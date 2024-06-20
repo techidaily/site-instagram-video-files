@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Cross-Promotion Mastery  Sharing IGTV to FB\""
-date: 2024-05-21T13:06:23.071Z
-updated: 2024-05-22T13:06:23.071Z
+date: 2024-06-19T07:54:58.376Z
+updated: 2024-06-20T07:54:58.376Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Cross-Promotion Mastery: Sharing IGTV to FB\""
 excerpt: "\"This Article Describes In 2024, Cross-Promotion Mastery: Sharing IGTV to FB\""
 keywords: "InstaFB Cross Promote,Social Media Sharing,IGTV Broadcasting,FB Content Expansion,Video Sharing Across Platforms,Integrated Social Strategy,Multichannel Engagement"
-thumbnail: https://www.lifewire.com/thmb/s_49EdazIwlAKelLWFU8LSaOlMk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-585151372-a659baf0c7b441b9b7e7896716b12784.jpg
+thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326cf6eb9f144fb267795cd5a9a.jpg
 ---
 
 ## Cross-Promotion Mastery: Sharing IGTV to FB

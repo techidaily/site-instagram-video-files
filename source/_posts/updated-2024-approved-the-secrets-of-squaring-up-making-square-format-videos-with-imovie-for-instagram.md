@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Secrets of Squaring Up  Making Square-Format Videos with iMovie for Instagram\""
-date: 2024-05-21T15:04:15.582Z
-updated: 2024-05-22T15:04:15.582Z
+date: 2024-06-19T07:54:55.528Z
+updated: 2024-06-20T07:54:55.528Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: The Secrets of Squaring Up: Making Square-Format Videos with iMovie for Instagram\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: The Secrets of Squaring Up: Making Square-Format Videos with iMovie for Instagram\""
 keywords: "Square Video Tips,IMovie Square Edits,DIY Square Videos,Editing For Square Photos,Squaring Up in iMovie,Making Square Insta Videos,Square Format with iMovie"
-thumbnail: https://www.lifewire.com/thmb/A1hfnW-9b0eVXXkLwD_6ei9mr2I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AE-lock-572ece975f9b58c34c0a2492.jpg
+thumbnail: https://thmb.techidaily.com/e086106512b2e9d753e081998408f58f33739fa1f0e7070951ebc50a7e45bfdb.jpg
 ---
 
 ## The Secrets of Squaring Up: Making Square-Format Videos with iMovie for Instagram

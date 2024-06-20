@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Instagram Video Dimension [Guide for Best Video Format 2023] for 2024"
-date: 2024-05-21T13:14:16.190Z
-updated: 2024-05-22T13:14:16.190Z
+date: 2024-06-19T07:54:58.410Z
+updated: 2024-06-20T07:54:58.410Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Instagram Video Dimension [Guide for Best Video Format 2023] for 2024"
 excerpt: "This Article Describes [Updated] Instagram Video Dimension [Guide for Best Video Format 2023] for 2024"
 keywords: "InstaVideo Guide,Optimal Video Sizes,Social Media Video Formats,2023 Video Standards,Best Imagery Dimensions,Video Content Guidelines,Engaging Vids for IG"
-thumbnail: https://www.lifewire.com/thmb/YtwC6-9z09B3R2k9kYI9fumd-4E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/anydesk-chat-and-permissions-30a4ed244d974fcaa411055083e3bbc2.png
+thumbnail: https://thmb.techidaily.com/e12562333e85045ab9221a99e913b83b793150ee785e5f59fee7c9f18bec3976.png
 ---
 
 ## Instagram Video Dimension [Guide for Best Video Format 2023]
