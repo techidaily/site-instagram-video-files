@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  VisionVoice  Tips for Perfectly Sized Insta Posts\""
-date: 2024-05-21T13:28:14.191Z
-updated: 2024-05-22T13:28:14.191Z
+date: 2024-06-27T01:11:49.036Z
+updated: 2024-06-28T01:11:49.036Z
 tags:
   - ai video
   - ai instagram
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: VisionVoice: Tips for Perfectly Sized Insta Posts\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: VisionVoice: Tips for Perfectly Sized Insta Posts\""
 keywords: "Perfect Instagram Post Size,Instagram Post Tips,VisionVoice Post Guide,Social Media Photo Dimensions,Optimal Snapchat Picture Size,Visual Content Standards,Engaging Image Proportions"
-thumbnail: https://www.lifewire.com/thmb/NOc5RCOPURestyDsC5sxK7KzGY8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-971165690-1e0af1d9299f4fdba1225c2d20c739f2.jpg
+thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89ced90101624b46320eed1514.jpg
 ---
 
 ## VisionVoice: Tips for Perfectly Sized Insta Posts
 
-# Latest Instagram Photo and Video Size Checklist
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Latest Instagram Photo and Video Size Checklist ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -49,9 +47,7 @@ You can either upload a video to Instagram's main feed or you can upload it as a
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
-#### Instagram's Main Feed
-
-![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+#### Instagram's Main Feed ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -111,9 +107,7 @@ You can either upload a video to Instagram's main feed or you can upload it as a
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
-#### Instagram's Main Feed
-
-![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+#### Instagram's Main Feed ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -173,9 +167,7 @@ You can either upload a video to Instagram's main feed or you can upload it as a
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
-#### Instagram's Main Feed
-
-![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+#### Instagram's Main Feed ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -235,9 +227,7 @@ You can either upload a video to Instagram's main feed or you can upload it as a
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
-#### Instagram's Main Feed
-
-![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
+#### Instagram's Main Feed ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 

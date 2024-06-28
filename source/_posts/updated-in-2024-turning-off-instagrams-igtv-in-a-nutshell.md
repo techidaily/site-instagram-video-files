@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Turning Off Instagram's IGTV in a Nutshell"
-date: 2024-05-21T13:18:11.954Z
-updated: 2024-05-22T13:18:11.954Z
+date: 2024-06-27T01:11:52.974Z
+updated: 2024-06-28T01:11:52.974Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Turning Off Instagram's IGTV in a Nutshell"
 excerpt: "This Article Describes [Updated] In 2024, Turning Off Instagram's IGTV in a Nutshell"
 keywords: "IGTV Shutdown Guide,Turnoff IGTV Quickly,Disable Instagram TV,Stop Watching IGTV,End IGTV Viewing,Halt IGTV Streams,Quit IGTV Usage"
-thumbnail: https://www.lifewire.com/thmb/ek56OZgwopZKdldQLBHcOn0x47o=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/15dinradio-592753063df78cbe7e3d333e.jpg
+thumbnail: https://thmb.techidaily.com/bbe5738e0d8808e6028f714bcae487dd6fc59c5258568d2db4f80369dfe5ae67.jpg
 ---
 
 ## Turning Off Instagram's IGTV in a Nutshell

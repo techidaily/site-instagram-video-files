@@ -1,7 +1,7 @@
 ---
 title: "Instagram TV Shutdown Procedure for 2024"
-date: 2024-05-21T14:56:35.005Z
-updated: 2024-05-22T14:56:35.005Z
+date: 2024-06-27T01:11:47.636Z
+updated: 2024-06-28T01:11:47.636Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Instagram TV Shutdown Procedure for 2024"
 excerpt: "This Article Describes Instagram TV Shutdown Procedure for 2024"
 keywords: "InstaTV Shutoff Guide,Instagram TV Termination Steps,TV on Instagram Closure Tips,How to End Instagram Live,Instagram Live Shutdown Process,Cease Instagram Broadcasting,Disabling Instagram Video Streams"
-thumbnail: https://www.lifewire.com/thmb/x5GNQJojOBpr_j8SzfzWCPR37e4=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/WomeninGaming_GettyImages-1395688501_Maskot_Getty_CROPPED-879a39555c2b4c869413033cb8b13112.jpg
+thumbnail: https://thmb.techidaily.com/fc56be1104b47b174a9a13d9255575e8e01dfcc34ec60d7f7f9e3cbb3a84553c.jpg
 ---
 
 ## Instagram TV Shutdown Procedure

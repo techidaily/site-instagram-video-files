@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Shoot Spectaculr IGTV Videos Using Smartphone/DLSR Cameras"
-date: 2024-05-21T14:00:51.680Z
-updated: 2024-05-22T14:00:51.680Z
+date: 2024-06-27T01:11:50.223Z
+updated: 2024-06-28T01:11:50.223Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, How to Shoot Spectaculr IGTV Videos Using Smartphone/DLSR Cameras"
 excerpt: "This Article Describes In 2024, How to Shoot Spectaculr IGTV Videos Using Smartphone/DLSR Cameras"
 keywords: "\"Mobile IGTV Recording Tips: 30 Characters,DSLR IGTV Shooting Techniques: 27 Characters,Smartphone IGTV Quality: 25 Characters,Professional IGTV Video Filming: 26 Characters,High-Res IGTV with Phone/DSLR: 28 Characters,Enhance IGTV Audio: 19 Characters,DSLR IGTV Lighting Setup: 24 Characters\""
-thumbnail: https://www.lifewire.com/thmb/_LD1aIwjdYWyiwfg_uebghNGc94=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/007_how-to-whitelist-a-sender-or-domain-in-gmail-1172106-5c2fad4646e0fb0001ec70ed.jpg
+thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c094ea57055633d7f6bda8cb6.jpg
 ---
 
 ## How to Shoot Spectaculr IGTV Videos Using Smartphone/DLSR Cameras

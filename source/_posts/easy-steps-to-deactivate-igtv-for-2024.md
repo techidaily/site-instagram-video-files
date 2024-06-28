@@ -1,7 +1,7 @@
 ---
 title: "Easy Steps to Deactivate IGTV for 2024"
-date: 2024-05-21T13:57:26.585Z
-updated: 2024-05-22T13:57:26.585Z
+date: 2024-06-27T01:11:55.159Z
+updated: 2024-06-28T01:11:55.159Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Easy Steps to Deactivate IGTV for 2024"
 excerpt: "This Article Describes Easy Steps to Deactivate IGTV for 2024"
 keywords: "Turn Off IGTV,Deactivate IGTV,Disable IGTV,Halt IGTV Streaming,Cease IGTV Upload,Quit IGTV Broadcast,Shut Down IGTV Service"
-thumbnail: https://www.lifewire.com/thmb/7qDbbPuSLzuZN4zFzJ05A8TCM0k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/panos-sakalakis-525108-unsplash-5c76011f46e0fb00019b8cda.jpg
+thumbnail: https://thmb.techidaily.com/1b4d426689bd18514a96cb95968cc5a755b1ea7a22bc00e9feef5b8e8bfa78d1.jpg
 ---
 
 ## Easy Steps to Deactivate IGTV

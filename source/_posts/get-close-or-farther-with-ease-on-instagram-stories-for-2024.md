@@ -1,7 +1,7 @@
 ---
 title: "Get Close or Farther with Ease on Instagram Stories for 2024"
-date: 2024-05-21T13:45:35.560Z
-updated: 2024-05-22T13:45:35.560Z
+date: 2024-06-27T01:11:55.964Z
+updated: 2024-06-28T01:11:55.964Z
 tags:
   - ai video
   - ai instagram
@@ -12,14 +12,12 @@ categories:
 description: "This Article Describes Get Close or Farther with Ease on Instagram Stories for 2024"
 excerpt: "This Article Describes Get Close or Farther with Ease on Instagram Stories for 2024"
 keywords: "Instagram Story Share,Easy Distance Control,InstaStory Zoom Feature,Remote Engagement Tool,Social Media Closeness,Instagram Interaction Enhancement,Stories Reach Expansion"
-thumbnail: https://www.lifewire.com/thmb/AdJw0Uo65Rvhz4XSH8SUHKWY3YQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/podcasts-safeforkids-5b2f3dd4eb97de0036d9f87b.jpg
+thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb6f2fa2e2f0075e18f87eaf2.jpg
 ---
 
 ## Get Close or Farther with Ease on Instagram Stories
 
-# How to Zoom in/Out in Instagram Stories
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Zoom in/Out in Instagram Stories ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -46,25 +44,19 @@ Image resource: later.com
 
 **Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
 
-#### 2\. Rewind Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
+#### 2\. Rewind Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
 
-#### 3\. Boomerang
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+#### 3\. Boomerang ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
 
-#### 4\. Hands-Free Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+#### 4\. Hands-Free Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
 Image resource: later.com
 
@@ -126,25 +118,19 @@ Image resource: later.com
 
 **Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
 
-#### 2\. Rewind Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
+#### 2\. Rewind Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
 
-#### 3\. Boomerang
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+#### 3\. Boomerang ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
 
-#### 4\. Hands-Free Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+#### 4\. Hands-Free Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
 Image resource: later.com
 
@@ -206,25 +192,19 @@ Image resource: later.com
 
 **Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
 
-#### 2\. Rewind Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
+#### 2\. Rewind Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
 
-#### 3\. Boomerang
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+#### 3\. Boomerang ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
 
-#### 4\. Hands-Free Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+#### 4\. Hands-Free Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
 Image resource: later.com
 
@@ -286,25 +266,19 @@ Image resource: later.com
 
 **Note:** Make sure to hold your finger on the record button while zooming in/out, else the recording will stop.
 
-#### 2\. Rewind Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
+#### 2\. Rewind Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
 
-#### 3\. Boomerang
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+#### 3\. Boomerang ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
 
-#### 4\. Hands-Free Mode
-
-![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+#### 4\. Hands-Free Mode ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
 
 Image resource: later.com
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick & Easy  Conducting Instagram Stories Polls Today\""
-date: 2024-05-21T15:08:34.095Z
-updated: 2024-05-22T15:08:34.095Z
+date: 2024-06-27T01:11:50.620Z
+updated: 2024-06-28T01:11:50.620Z
 tags:
   - ai video
   - ai instagram
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [Updated] Quick & Easy: Conducting Instagram Stories Polls Today\""
 excerpt: "\"This Article Describes [Updated] Quick & Easy: Conducting Instagram Stories Polls Today\""
 keywords: "\"Quick Stories Polls,Easy Insta Polls,Fast Interactive Stories,Simple Story Quizzes,Quick Stories Voting,Ease-of-Use Story Surveys,Rapid Stories Polls\""
-thumbnail: https://www.lifewire.com/thmb/_4viXU74NMGmsK3mNHNeZ1JWOGk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Android-Auto-vs-Apple-Carplay-392b0e27330d42f4be8ac186a3257459.jpg
+thumbnail: https://thmb.techidaily.com/672b93a029ff6e4433ec19a377fab4ffa2a67286a950d0a63433c57fd863da90.jpg
 ---
 
 ## Quick & Easy: Conducting Instagram Stories Polls Today
 
-# How to Do a Poll on Instagram Stories: The Only Guide You Need to Read
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Do a Poll on Instagram Stories: The Only Guide You Need to Read ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

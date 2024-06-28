@@ -1,7 +1,7 @@
 ---
 title: "\"Social Media Sync  Integrating Multiple Photographs/Videos Into Your IG Feed for 2024\""
-date: 2024-05-21T14:48:19.412Z
-updated: 2024-05-22T14:48:19.412Z
+date: 2024-06-27T01:11:55.438Z
+updated: 2024-06-28T01:11:55.438Z
 tags:
   - ai video
   - ai instagram
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes Social Media Sync: Integrating Multiple Photographs/Videos Into Your IG Feed for 2024\""
 excerpt: "\"This Article Describes Social Media Sync: Integrating Multiple Photographs/Videos Into Your IG Feed for 2024\""
 keywords: "Social Media Syncs,Photo/Video Integration,Instagram Feed Upload,Multimedia Syncing,Image+Vid Sync IG,Photosync to Insta,Video+Image IG Feed"
-thumbnail: https://www.lifewire.com/thmb/jbamhywtXiyGSlJ3P3Gh1VQ_dkA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/FaceTime-Conference-Call-d68241b6f5914009a7eb2486fddab0e1.jpg
+thumbnail: https://thmb.techidaily.com/2151304b15358b5e0486365b1b4e0f5fc2185a4452deb2b08eaf2b9d1e47c0a1.jpg
 ---
 
 ## Social Media Sync: Integrating Multiple Photographs/Videos Into Your IG Feed
 
-# How to Upload Multiple Photos and Videos to Instagram
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Upload Multiple Photos and Videos to Instagram ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

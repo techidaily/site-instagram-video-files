@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Upgrade Instagram Visuals with 3 Effective Borders for 2024"
-date: 2024-05-21T14:19:10.165Z
-updated: 2024-05-22T14:19:10.165Z
+date: 2024-06-27T01:11:50.543Z
+updated: 2024-06-28T01:11:50.543Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Upgrade Instagram Visuals with 3 Effective Borders for 2024"
 excerpt: "This Article Describes [Updated] Upgrade Instagram Visuals with 3 Effective Borders for 2024"
 keywords: "Instagram Image Enhance,Border Boost for IG,Edge Designs on Insta,Instagram Picture Upgrade,Visual Border Improvement,Effortless IG Borders,Simple Borders in Photos"
-thumbnail: https://www.lifewire.com/thmb/xWg1yHDU11x4ZrjNTzzLWwJyEKI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1005528904-7d476f41edcd46bb809080651f746d68.jpg
+thumbnail: https://thmb.techidaily.com/9be334cdafc76019f9e5ad788ad6c3507c69da5b07f01ac5528173fed7156fb9.jpg
 ---
 
 ## Upgrade Instagram Visuals with 3 Effective Borders
@@ -72,7 +72,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
@@ -102,7 +102,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
+_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/) _.
 
 ## Part 3: How to Add Border to Video for Instagram Online?
 
@@ -197,7 +197,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
@@ -227,7 +227,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
+_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/) _.
 
 ## Part 3: How to Add Border to Video for Instagram Online?
 
@@ -322,7 +322,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
@@ -352,7 +352,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
+_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/) _.
 
 ## Part 3: How to Add Border to Video for Instagram Online?
 
@@ -447,7 +447,7 @@ Moreover, adding borders to your favorite Instagram videos is pretty much a stra
 
 **Step 5**: In the **Effects** tab, look for the **Utility** option to open an array of effects, such as **Mosaic,** **Shape Mask, Auto Enhance, Image Mask**, and **Borders**.
 
-![ filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
+![filmora border effects](https://images.wondershare.com/filmora/article-images/filmora-border-effects.jpg)
 
 **Step 6**: If you _don't_ see the **Utility** section in the **Effects** tab, head over to the **Search** bar located at the top right corner of the interface and type "**_Border"_** to find the desired effect directly.
 
@@ -477,7 +477,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/)_.
+_Learn more about [how to edit Instagram videos with Filmora](https://tools.techidaily.com/wondershare/filmora/download/) _.
 
 ## Part 3: How to Add Border to Video for Instagram Online?
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Do a Poll on Instagram Stories  The Only Guide You Need to Read\""
-date: 2024-05-21T14:36:15.697Z
-updated: 2024-05-22T14:36:15.697Z
+date: 2024-06-27T01:11:51.404Z
+updated: 2024-06-28T01:11:51.404Z
 tags:
   - ai video
   - ai instagram
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes 2024 Approved: How to Do a Poll on Instagram Stories: The Only Guide You Need to Read\""
 excerpt: "\"This Article Describes 2024 Approved: How to Do a Poll on Instagram Stories: The Only Guide You Need to Read\""
 keywords: "InstaPollCreation,SocialMediaSurvey,StoryBasedQuiz,PollingInstaStories,EngageAudienceQuestions,InteractiveStoryFeatures,DirectFeedbackTool"
-thumbnail: https://www.lifewire.com/thmb/yiCG9aCDz-S_uEZuz03MfJhTX40=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-3ea2024baf504584905b3806f88613e5.jpg
+thumbnail: https://thmb.techidaily.com/104a8ce1329a7cadce28c36353075eec1970039296b8147989b16ec309b7b44b.jpg
 ---
 
 ## From Concept to Completion: A Stories Polling Handbook
 
-# How to Do a Poll on Instagram Stories: The Only Guide You Need to Read
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Do a Poll on Instagram Stories: The Only Guide You Need to Read ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Demystifying Social Engagement  Instagram Stories Surveys\""
-date: 2024-05-21T13:26:36.036Z
-updated: 2024-05-22T13:26:36.036Z
+date: 2024-06-27T01:11:56.399Z
+updated: 2024-06-28T01:11:56.399Z
 tags:
   - ai video
   - ai instagram
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes Demystifying Social Engagement: Instagram Stories Surveys\""
 excerpt: "\"This Article Describes Demystifying Social Engagement: Instagram Stories Surveys\""
 keywords: "Instagram Story Insights,Social Media Survey Data,Engagement on Instagram,Content Trends in Stories,User Interaction Studies,Social Feedback Analysis,Branding Through Stories"
-thumbnail: https://www.lifewire.com/thmb/J824Ra8KQFbLaWC_ATGxX22EzOA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/trends_MontyRakusen_Getty-5a4aa079482c5200362b0987.jpg
+thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373d5c47d7a53f258bef450907.jpg
 ---
 
 ## Demystifying Social Engagement: Instagram Stories Surveys
 
-# How to Do a Poll on Instagram Stories: The Only Guide You Need to Read
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Do a Poll on Instagram Stories: The Only Guide You Need to Read ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

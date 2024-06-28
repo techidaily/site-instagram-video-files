@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Favorite Frames  Most Engaged IG Filters\""
-date: 2024-05-21T13:39:32.106Z
-updated: 2024-05-22T13:39:32.106Z
+date: 2024-06-27T01:11:53.232Z
+updated: 2024-06-28T01:11:53.232Z
 tags:
   - ai video
   - ai instagram
@@ -17,9 +17,7 @@ thumbnail: https://www.lifewire.com/thmb/vH4PYIwBcO7InoBYDokkPyMXgv0=/210x138/fi
 
 ## Favorite Frames: Most Engaged IG Filters
 
-# Top 8 Instagram Story Filters in 2024
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# Top 8 Instagram Story Filters in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 

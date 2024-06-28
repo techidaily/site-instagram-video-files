@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Spice Up Your Storytelling  The Secrets Behind Looped Videos in Instagram\""
-date: 2024-05-21T14:27:15.680Z
-updated: 2024-05-22T14:27:15.680Z
+date: 2024-06-27T01:11:50.740Z
+updated: 2024-06-28T01:11:50.740Z
 tags:
   - ai video
   - ai instagram
@@ -118,7 +118,7 @@ Since we’re sharing looping videos to Instagram, let’s set up the project as
 
  **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
 
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+![create Ins looping video with Filmora](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
 
  **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
 
@@ -235,7 +235,7 @@ Since we’re sharing looping videos to Instagram, let’s set up the project as
 
  **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
 
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+![create Ins looping video with Filmora](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
 
  **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
 
@@ -352,7 +352,7 @@ Since we’re sharing looping videos to Instagram, let’s set up the project as
 
  **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
 
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+![create Ins looping video with Filmora](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
 
  **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
 
@@ -469,7 +469,7 @@ Since we’re sharing looping videos to Instagram, let’s set up the project as
 
  **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
 
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+![create Ins looping video with Filmora](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
 
  **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
 

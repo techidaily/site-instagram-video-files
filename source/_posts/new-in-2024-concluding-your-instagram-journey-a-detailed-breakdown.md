@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Concluding Your Instagram Journey  A Detailed Breakdown\""
-date: 2024-05-21T13:13:59.685Z
-updated: 2024-05-22T13:13:59.686Z
+date: 2024-06-27T01:11:50.412Z
+updated: 2024-06-28T01:11:50.412Z
 tags:
   - ai video
   - ai instagram
@@ -12,14 +12,12 @@ categories:
 description: "\"This Article Describes [New] In 2024, Concluding Your Instagram Journey: A Detailed Breakdown\""
 excerpt: "\"This Article Describes [New] In 2024, Concluding Your Instagram Journey: A Detailed Breakdown\""
 keywords: "\"Ending Instagram Stories,Conclude Your Insta-Journey,Finalizing Instagram Use,Wrap Up Instagram Experience,Closing Your Social Media Path,Complete Instagram Sessions,Terminate Your Photo Stream Journey\""
-thumbnail: https://www.lifewire.com/thmb/eEVPWCT5HwE2s4lij-XloW15xgg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/bingai-91d0ab49af5a418cbe50fb230171624d.png
+thumbnail: https://thmb.techidaily.com/799b62d064a45ec31383dad7a037b165e61e53db2f1095b1f1474aef4ef5c21f.png
 ---
 
 ## Concluding Your Instagram Journey: A Detailed Breakdown
 
-# How to Delete or Deactivate An Instagram Account Permanently
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Delete or Deactivate An Instagram Account Permanently ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -37,9 +35,7 @@ If you are choosing to delete an Instagram account it is important to know that 
 
 To delete an account:
 
-**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
-
-![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
+**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
 
@@ -103,9 +99,7 @@ To create a video using Filmora that stand out among the audience:
 
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
-**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
-
-![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
+**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution ![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
 
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
 
@@ -145,9 +139,7 @@ If you are choosing to delete an Instagram account it is important to know that 
 
 To delete an account:
 
-**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
-
-![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
+**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
 
@@ -211,9 +203,7 @@ To create a video using Filmora that stand out among the audience:
 
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
-**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
-
-![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
+**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution ![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
 
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
 
@@ -253,9 +243,7 @@ If you are choosing to delete an Instagram account it is important to know that 
 
 To delete an account:
 
-**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
-
-![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
+**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
 
@@ -319,9 +307,7 @@ To create a video using Filmora that stand out among the audience:
 
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
-**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
-
-![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
+**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution ![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
 
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
 
@@ -361,9 +347,7 @@ If you are choosing to delete an Instagram account it is important to know that 
 
 To delete an account:
 
-**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials
-
-![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
+**Step 1**: [Log in](https://www.instagram.com/) to your Instagram account from your web browser using your credentials ![log-in-instagram](https://images.wondershare.com/filmora/article-images/1-log-in-instagram.jpg)
 
 **Step 2**: After logging in, [click here](https://www.instagram.com/accounts/remove/request/permanent/) and you will be diverted to the accounts deleting page of Instagram
 
@@ -427,9 +411,7 @@ To create a video using Filmora that stand out among the audience:
 
 ![import instagram video](https://images.wondershare.com/filmora/article-images/import-instagram-video-to-filmora1.jpg)
 
-**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution
-
-![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
+**Step 2**: Change the resolution of the video by tapping on the File – Project Setting. A small window will appear from which you can change the resolution (for example 1080×1080). Tap on OK after selecting your desired resolution ![adjust instagram video ratio](https://images.wondershare.com/filmora/article-images/fit-instagram-aspect-ratio2.jpg)
 
 **Step 3**: The video can be made attractive by changing the black bars on the top and the bottom of the video. This can be done by selecting a background you like and placing it just below the video on the timeline.
 
