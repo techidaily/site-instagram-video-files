@@ -1,7 +1,7 @@
 ---
 title: "\"From Joke to Jest  Constructing Impactful Social Media Memes\""
-date: 2024-05-21T14:22:27.631Z
-updated: 2024-05-22T14:22:27.631Z
+date: 2024-07-06T16:03:35.408Z
+updated: 2024-07-07T16:03:35.408Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes From Joke to Jest: Constructing Impactful Social Media Memes\""
 excerpt: "\"This Article Describes From Joke to Jest: Constructing Impactful Social Media Memes\""
 keywords: "Meme Creation,Impactful Memes,Social Media Laughs,Humorous Content,Viral Jokes,Memetic Engagement,Shareable Satire"
-thumbnail: https://www.lifewire.com/thmb/gJKFG61aOboY-p-Jj99nDXe3X4A=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/KasonPatterson2-7a0b0bc9de574c37a2bc5cdd310ce142.png
+thumbnail: https://thmb.techidaily.com/d0ab1cb7b8b22999ef087a383ed3db769492e1f7dd341f7046ddf8ecb2ad394e.png
 ---
 
 ## From Joke to Jest: Constructing Impactful Social Media Memes
@@ -25,7 +25,7 @@ thumbnail: https://www.lifewire.com/thmb/gJKFG61aOboY-p-Jj99nDXe3X4A=/400x300/fi
 
  Mar 27, 2024• Proven solutions
 
- When you think of video memes, Facebook and Instagram top the list as the [repository for memes]( https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
+ When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
 
  In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
 
@@ -105,7 +105,7 @@ Follow @Ollie Mattison
 
  Mar 27, 2024• Proven solutions
 
- When you think of video memes, Facebook and Instagram top the list as the [repository for memes]( https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
+ When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
 
  In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
 
@@ -185,7 +185,7 @@ Follow @Ollie Mattison
 
  Mar 27, 2024• Proven solutions
 
- When you think of video memes, Facebook and Instagram top the list as the [repository for memes]( https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
+ When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
 
  In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
 
@@ -265,7 +265,7 @@ Follow @Ollie Mattison
 
  Mar 27, 2024• Proven solutions
 
- When you think of video memes, Facebook and Instagram top the list as the [repository for memes]( https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
+ When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
 
  In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
 

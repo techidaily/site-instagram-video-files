@@ -1,7 +1,7 @@
 ---
 title: "How to Turn Off IGTV?"
-date: 2024-05-21T13:26:36.955Z
-updated: 2024-05-22T13:26:36.955Z
+date: 2024-07-06T16:03:38.846Z
+updated: 2024-07-07T16:03:38.846Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How to Turn Off IGTV?"
 excerpt: "This Article Describes How to Turn Off IGTV?"
 keywords: "IGTV Shutdown Guide,Disabling IGTV,IGTV Deactivation Steps,Stop IGTV Playback,Turning Off IGTV,IGTV No More,Cease IGTV Streaming"
-thumbnail: https://www.lifewire.com/thmb/dMx9heVT2DVApYYCeunE8JND7XE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/headphonesrunning-5c8877304cedfd000190b254.jpg
+thumbnail: https://thmb.techidaily.com/747b49f807ccf9f14c19b340ff456a78dd6771beaa7f3b2a1e86afcc1230369a.jpg
 ---
 
 ## Simply Turn Off Your Insta TV

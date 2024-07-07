@@ -1,7 +1,7 @@
 ---
 title: "\"Blur the Outside, Sharpen Inside  Bokeh Balance Guide\""
-date: 2024-05-21T14:17:33.716Z
-updated: 2024-05-22T14:17:33.716Z
+date: 2024-07-06T16:03:36.518Z
+updated: 2024-07-07T16:03:36.518Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Blur the Outside, Sharpen Inside: Bokeh Balance Guide\""
 excerpt: "\"This Article Describes Blur the Outside, Sharpen Inside: Bokeh Balance Guide\""
 keywords: "\"Blur Outside Sharpen Inside,Bokeh Guide Balance,Inside Focus Bokeh Effect,Bokeh Technique Sharpness,Achieving Blurred Backgrounds,Mastering In-Focus Areas,Balancing Bokeh and Depth\""
-thumbnail: https://www.lifewire.com/thmb/dQQ6K-YemgwELjvg6ZsDbY1lSus=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed1-da6285c1120045d79e82ad7259c4240b.png
+thumbnail: https://thmb.techidaily.com/3098d762b6d8dcd72acd0532421367ade2e95fba7b5406862c612e4d87ad3713.png
 ---
 
 ## Blur the Outside, Sharpen Inside: Bokeh Balance Guide

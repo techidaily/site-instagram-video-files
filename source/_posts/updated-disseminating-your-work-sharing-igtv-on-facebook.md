@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Disseminating Your Work  Sharing IGTV on Facebook\""
-date: 2024-05-21T14:25:59.645Z
-updated: 2024-05-22T14:25:59.645Z
+date: 2024-07-06T16:03:44.192Z
+updated: 2024-07-07T16:03:44.192Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Disseminating Your Work: Sharing IGTV on Facebook\""
 excerpt: "\"This Article Describes [Updated] Disseminating Your Work: Sharing IGTV on Facebook\""
 keywords: "\"Share IGTV on FB,IGTV to FB Broadcasting,Social Media Integration,Cross-Platform Content,Platform Promotion,Video Sharing Strategies,Engaging Multimedia Content\""
-thumbnail: https://www.lifewire.com/thmb/RuMU3Fr0cPHrL8k7T5fBnqjnGVE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/163727875-56a1044b3df78cafdaa7de78.jpg
+thumbnail: https://thmb.techidaily.com/b23f7aea0239ccf0208f3f76d9301c76c818b9985a4f6edf3b35f62e51fa261d.jpg
 ---
 
 ## Disseminating Your Work: Sharing IGTV on Facebook

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Automatically Resize Videos for Instagram on Mac?"
-date: 2024-05-21T14:13:58.026Z
-updated: 2024-05-22T14:13:58.026Z
+date: 2024-07-06T16:03:46.977Z
+updated: 2024-07-07T16:03:46.977Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, How to Automatically Resize Videos for Instagram on Mac?"
 excerpt: "This Article Describes [New] In 2024, How to Automatically Resize Videos for Instagram on Mac?"
 keywords: "Auto Video Size Reduce,Instagram Video Scale,Mac Video Resizer,Quick Video Shrinkage,Optimized Video Mac,Adaptive Video Editing,Streamline Video Format"
-thumbnail: https://www.lifewire.com/thmb/X9r-EBgpSwWythkpkXXJDKFU7oM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/google-meet-laptops-6a8fc642d63044d681d29bd53aab3f03.png
+thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d3ad76e322c0705c64d5daa2.png
 ---
 
 ## Maximize Engagement: Auto-Resized Videos From Mac for Instagram

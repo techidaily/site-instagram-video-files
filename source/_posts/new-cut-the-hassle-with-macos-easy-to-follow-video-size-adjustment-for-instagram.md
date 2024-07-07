@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cut the Hassle with MacOS  Easy-to-Follow Video Size Adjustment for Instagram\""
-date: 2024-05-21T14:19:23.348Z
-updated: 2024-05-22T14:19:23.348Z
+date: 2024-07-06T16:03:43.151Z
+updated: 2024-07-07T16:03:43.151Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Cut the Hassle with MacOS: Easy-to-Follow Video Size Adjustment for Instagram\""
 excerpt: "\"This Article Describes [New] Cut the Hassle with MacOS: Easy-to-Follow Video Size Adjustment for Instagram\""
 keywords: "\"MacOS Size Adjustment,Instagram Video Tips,MacOS Screen Optimization,Hassle-Free Video Edits,Instagram Image Resizing,Quick MacOS Settings,Video Enhancement Guide\""
-thumbnail: https://www.lifewire.com/thmb/he26hNDyU2vpo9vDwma05qKk-R8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/espnplus-6d79c347f2df42d7a38cdb0ba9a2472b.jpg
+thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d750526e3d62954932be609de318.jpg
 ---
 
 ## Cut the Hassle with MacOS: Easy-to-Follow Video Size Adjustment for Instagram

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Creating Illusionary Settings with Instagram’s Chroma Key\""
-date: 2024-05-21T13:19:15.972Z
-updated: 2024-05-22T13:19:15.972Z
+date: 2024-07-06T16:03:36.635Z
+updated: 2024-07-07T16:03:36.635Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Creating Illusionary Settings with Instagram’s Chroma Key\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Creating Illusionary Settings with Instagram’s Chroma Key\""
 keywords: "ChromaKeyEffect,IllusoryBackground,SocialMediaFilming,VisualFXEditing,GreenScreenTechnique,FakeRealityCreation,ProfessionalFilmmaking"
-thumbnail: https://www.lifewire.com/thmb/KLuam83BrZsFZ3VSU4PH8DBGYxY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/before-you-buy-a-video-projector-1847845-v3-ED-8a08e03f2cfc4835a13872618bd4ad00.png
+thumbnail: https://thmb.techidaily.com/c9e5ca8d00ac8479f694130618d3f9a3080c0193f44d3a38cfaa7537d0961fac.png
 ---
 
 ## Creating Illusionary Settings with Instagram’s Chroma Key
@@ -131,11 +131,11 @@ Al Portrait is not a free module, so either you have to **Purchase** it or **Try
 
 Different effects have different settings so that you can adjust the effects according to your convenience. You have to **double click** the video in the timeline and then go to the Video Effects to adjust the **Percentage, Edge thickness, Edge Feature, and Alpha** setting of the effect. You can also restore the changes you've made by selecting the **Restore** button.
 
-![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
+![add human segmentation effects](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
-![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
+![compose green screen video](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
 
 ### Step 4: Export the video
 
@@ -267,11 +267,11 @@ Al Portrait is not a free module, so either you have to **Purchase** it or **Try
 
 Different effects have different settings so that you can adjust the effects according to your convenience. You have to **double click** the video in the timeline and then go to the Video Effects to adjust the **Percentage, Edge thickness, Edge Feature, and Alpha** setting of the effect. You can also restore the changes you've made by selecting the **Restore** button.
 
-![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
+![add human segmentation effects](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
-![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
+![compose green screen video](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
 
 ### Step 4: Export the video
 
@@ -403,11 +403,11 @@ Al Portrait is not a free module, so either you have to **Purchase** it or **Try
 
 Different effects have different settings so that you can adjust the effects according to your convenience. You have to **double click** the video in the timeline and then go to the Video Effects to adjust the **Percentage, Edge thickness, Edge Feature, and Alpha** setting of the effect. You can also restore the changes you've made by selecting the **Restore** button.
 
-![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
+![add human segmentation effects](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
-![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
+![compose green screen video](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
 
 ### Step 4: Export the video
 
@@ -539,11 +539,11 @@ Al Portrait is not a free module, so either you have to **Purchase** it or **Try
 
 Different effects have different settings so that you can adjust the effects according to your convenience. You have to **double click** the video in the timeline and then go to the Video Effects to adjust the **Percentage, Edge thickness, Edge Feature, and Alpha** setting of the effect. You can also restore the changes you've made by selecting the **Restore** button.
 
-![add human segmentation effects ](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
+![add human segmentation effects](https://images.wondershare.com/filmora/article-images/human-segmentation-effects-adjust.jpg)
 
 Now you have gotten a video without a background, you can now add your own background to compose them together.
 
-![compose green screen video ](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
+![compose green screen video](https://images.wondershare.com/filmora/article-images/compose-video-without-green-screen.jpg)
 
 ### Step 4: Export the video
 

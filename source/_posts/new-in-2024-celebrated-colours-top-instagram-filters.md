@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Celebrated Colours  Top Instagram Filters\""
-date: 2024-05-21T14:26:39.382Z
-updated: 2024-05-22T14:26:39.382Z
+date: 2024-07-06T16:03:35.960Z
+updated: 2024-07-07T16:03:35.960Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Celebrated Colours: Top Instagram Filters\""
 excerpt: "\"This Article Describes [New] In 2024, Celebrated Colours: Top Instagram Filters\""
 keywords: "Celebrated Color Filters,Popular Insta Filter Uses,Instagram Vibrant Effects,Trendy Image Transformations,Top Filter Favorites,Premium Insta Colouring,Iconic Social Media Colors"
-thumbnail: https://www.lifewire.com/thmb/img6T68Fg1fTMamba3P66n34F08=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/theregisti-wbDsOAMynRo-unsplash-6b32cc049cda496b8cbd6150d77f5abc.jpg
+thumbnail: https://thmb.techidaily.com/7055739b2ba9c96c4320b4adbabab9131b89b7fc1348792ff9e2250cf6de872e.jpg
 ---
 
 ## Celebrated Colours: Top Instagram Filters

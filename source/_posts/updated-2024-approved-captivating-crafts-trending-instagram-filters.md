@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Captivating Crafts  Trending Instagram Filters\""
-date: 2024-05-21T13:32:38.576Z
-updated: 2024-05-22T13:32:38.576Z
+date: 2024-07-06T16:03:43.351Z
+updated: 2024-07-07T16:03:43.351Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Captivating Crafts: Trending Instagram Filters\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Captivating Crafts: Trending Instagram Filters\""
 keywords: "InstaFiltersTrendy,CraftingViralGlam,ArtisticFilterBuzz,GlossyCraftyHacks,TrendingCraftersArt,StylishCraftyViews,PopularInstaEffects"
-thumbnail: https://www.lifewire.com/thmb/IGe5tDXunE7ah0Jj1vkTBJ078Jc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ring-binders-aligned-gac91bbfa1_1920-fa755b0998814dfe8a1d1477af095588.jpg
+thumbnail: https://thmb.techidaily.com/f35affd0446f81f879a70f50fd131f599003c290d87b21cce9966af54d527118.jpg
 ---
 
 ## Captivating Crafts: Trending Instagram Filters

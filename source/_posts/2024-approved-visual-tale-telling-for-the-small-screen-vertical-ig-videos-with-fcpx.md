@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Visual Tale-Telling for the Small Screen  Vertical IG Videos with FCPX\""
-date: 2024-05-21T13:58:00.157Z
-updated: 2024-05-22T13:58:00.157Z
+date: 2024-07-06T16:03:47.062Z
+updated: 2024-07-07T16:03:47.062Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Visual Tale-Telling for the Small Screen: Vertical IG Videos with FCPX\""
 excerpt: "\"This Article Describes 2024 Approved: Visual Tale-Telling for the Small Screen: Vertical IG Videos with FCPX\""
 keywords: "Small Screen Visuals,Vertical Video Content,IG Video Editing,FCPX Tales,Short Film Making,Mobile Storytelling,Narrative Videos FCP"
-thumbnail: https://www.lifewire.com/thmb/Dd7T82dGMkHY5br1ZwaLgN_nGgs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/best-samsung-smart-tv-apps-1847456-3ff4f2926f38431bb8623c7525c3c5ed.png
+thumbnail: https://thmb.techidaily.com/d2f76001c4f2646491c0fc840a81d8218602e492050e0d16896d960da5c49a16.png
 ---
 
 ## Visual Tale-Telling for the Small Screen: Vertical IG Videos with FCPX

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Art of Background Blur in Modern Photography"
-date: 2024-05-21T15:12:12.350Z
-updated: 2024-05-22T15:12:12.350Z
+date: 2024-07-06T16:03:41.960Z
+updated: 2024-07-07T16:03:41.960Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, The Art of Background Blur in Modern Photography"
 excerpt: "This Article Describes [New] In 2024, The Art of Background Blur in Modern Photography"
 keywords: "Photo Background Blur Technique,Modern Photo Blurring,Blur Effect Photography,Aesthetic Photoshoot Blur,Sharpen Focus Artistry,Creative Image Depth,Subtle Photo Depth"
-thumbnail: https://www.lifewire.com/thmb/YoFEWWlqY0abEBrjSUdesHbTeyU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/dts-play-fi-lifestyle-aaa-5a4c211daad52b00366a3575.jpg
+thumbnail: https://thmb.techidaily.com/cb2689090616a1ba21a99aa6be50929e603a0dc8061abd47262715b07e4d29cd.jpg
 ---
 
 ## The Art of Background Blur in Modern Photography

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Instagram Videography Guide - Size Matters\""
-date: 2024-05-21T14:04:29.930Z
-updated: 2024-05-22T14:04:29.930Z
+date: 2024-07-06T16:03:37.211Z
+updated: 2024-07-07T16:03:37.211Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Instagram Videography Guide - Size Matters\""
 excerpt: "\"This Article Describes 2024 Approved: Instagram Videography Guide - Size Matters\""
 keywords: "Insta Video Guide,Video Guidelines,Instagram Filming Tips,Professional Instagram Videos,Insta Vid Sizing,Size Videography Advice,Insta Video Optimization"
-thumbnail: https://www.lifewire.com/thmb/chsI3SooU_IsFYskK8_W__r_-OY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/sites-to-watch-free-tv-shows-online-3486367-fd026082f1ff45e4930d1f828c3af7af.png
+thumbnail: https://thmb.techidaily.com/c7f6e1d56c05b1571f57a7f9b04e195b30e35f1ef9fbc6554b9991ddbdbae23c.png
 ---
 
 ## Instagram Videography Guide - Size Matters

@@ -1,7 +1,7 @@
 ---
 title: "\"Captivating Clips  Transforming Footage Vertically in Final Cut X for 2024\""
-date: 2024-05-21T13:20:13.178Z
-updated: 2024-05-22T13:20:13.178Z
+date: 2024-07-06T16:03:47.311Z
+updated: 2024-07-07T16:03:47.311Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Captivating Clips: Transforming Footage Vertically in Final Cut X for 2024\""
 excerpt: "\"This Article Describes Captivating Clips: Transforming Footage Vertically in Final Cut X for 2024\""
 keywords: "Vertical Video Edit,FCPX Vertical Conversion,Horizontal to Vertical,FCPX Resizing,Footage Rotation,Clip Transformation,Editing Aspect Ratio"
-thumbnail: https://www.lifewire.com/thmb/Wey1hmvaFNXkpGULggG7yXOy4ro=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-525956536-f1c8a23b12e2480cad7b8a4544b1c0d2.jpg
+thumbnail: https://thmb.techidaily.com/77f34903e1df34b362b3683a958e0b57f8d631d69cf5a5eaeee681f0ad029756.jpg
 ---
 
 ## Captivating Clips: Transforming Footage Vertically in Final Cut X

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Key Metrics to Track  IGTV Video Analytics\""
-date: 2024-05-21T13:19:33.808Z
-updated: 2024-05-22T13:19:33.808Z
+date: 2024-07-06T16:03:43.230Z
+updated: 2024-07-07T16:03:43.230Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Key Metrics to Track: IGTV Video Analytics\""
 excerpt: "\"This Article Describes [Updated] In 2024, Key Metrics to Track: IGTV Video Analytics\""
 keywords: "IGTV Traffic Analysis,Video Engagement Metrics,IGTV Views Counting,IGTV Reach Ratio,Audience Growth Tracking,Content Performance Insights,Video Success Indicators"
-thumbnail: https://www.lifewire.com/thmb/y195DEyC8S1G6HHauL9pRR_tQwQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-507833293-5a6b71d1c67335003716512d.jpg
+thumbnail: https://thmb.techidaily.com/4622c737506cba1a23868ce6098299cf82c4724d17bc893106f7883eb3c1b7e3.jpg
 ---
 
 ## Key Metrics to Track: IGTV Video Analytics

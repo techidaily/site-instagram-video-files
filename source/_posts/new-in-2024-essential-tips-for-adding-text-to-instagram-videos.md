@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Essential Tips for Adding Text to Instagram Videos"
-date: 2024-05-21T13:15:49.496Z
-updated: 2024-05-22T13:15:49.496Z
+date: 2024-07-06T16:03:43.059Z
+updated: 2024-07-07T16:03:43.059Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Essential Tips for Adding Text to Instagram Videos"
 excerpt: "This Article Describes [New] In 2024, Essential Tips for Adding Text to Instagram Videos"
 keywords: "Video Text Tips,Add Text in IG,Insta Video Captioning,Essential Text Guide,Instagram Captions Tricks,Effective Video Titles,Engaging Video Texts"
-thumbnail: https://www.lifewire.com/thmb/6cfWgGiacV0hIPesk10niWAAjo8=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/Streaming_GettyImages-1317927924_grinvalds_CROPPED-71ab52546b8b477ca2c0788bc26d150f.jpg
+thumbnail: https://thmb.techidaily.com/891c1ef62d1f0cae8f261e14a3ae4e9d18efe066afd0af7e2373c813aa6b6f85.jpg
 ---
 
 ## Essential Tips for Adding Text to Instagram Videos
