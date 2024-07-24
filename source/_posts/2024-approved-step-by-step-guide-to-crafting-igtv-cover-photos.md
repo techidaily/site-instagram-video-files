@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step Guide to Crafting IGTV Cover Photos\""
-date: 2024-05-21T13:18:52.632Z
-updated: 2024-05-22T13:18:52.632Z
+date: 2024-07-23T12:55:10.973Z
+updated: 2024-07-24T12:55:10.973Z
 tags:
   - ai video
   - ai instagram
@@ -12,13 +12,16 @@ categories:
 description: "\"This Article Describes 2024 Approved: Step-by-Step Guide to Crafting IGTV Cover Photos\""
 excerpt: "\"This Article Describes 2024 Approved: Step-by-Step Guide to Crafting IGTV Cover Photos\""
 keywords: "IGTV Cover Designs,Creating IGTV Covers,IGTV Video Frames,DIY IGTV Backgrounds,Tutorial for IGTV Clips,Making IGTV Backdrops,Customizing IGTV Photos"
-thumbnail: https://www.lifewire.com/thmb/ialXQxlrWEBC8WWbKRy-2KuXaw0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_how-to-share-play-ps5-b769f171ceea4710beb6433e0701aa13.jpg
+thumbnail: https://thmb.techidaily.com/f4454436a06ba033a7b99f5b7a9f44fe470868599b2299ee24471567dbe046e5.jpg
 ---
 
 ## Step-by-Step Guide to Crafting IGTV Cover Photos
 
 # How to Create and Change an IGTV Cover Photo (Thumbnail)?
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -41,6 +44,9 @@ You may also like: [How to make thumbnails with an online thumbnail maker](https
 
 The images you use as cover photos for your videos will be displayed in different aspect ratios depending on the device that is used to view them. You can use a picture that has **1080X1680** pixels, **a near 9:16 aspect ratio**, as a cover photo for all IGTV videos you upload to your channel or you can choose to work with smaller images that **have 420X654 pixels and a 1:1.55 aspect ratio.** If you upload a cover photo that has **1080X1920 pixels** the platform will automatically **crop approximately 120 pixels** from both shorter and longer sides of the image. The size of a file you’re using for an IGTV video cover photo cannot exceed **4MB,** and the file must be saved as **a JPEG** since presently this is the only picture file format supported by IGTV.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
 
 While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
@@ -65,6 +71,139 @@ Filmora is a video editing software for people at different levels. Should you b
 
 A small and seemingly insignificant detail like a cover photo of an IGTV video can be far more important for the video’s success on social networks than you’d expect. A cover photo can often be a reason why people choose to watch a video since it can spark their curiosity or attract their attention by suggesting what the video is about. Do you think that **IGTV cover photos** can help increase the number of views a video is getting? Leave a comment below and share your opinions with us.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+There are so many different things you need to pay attention to when sharing new content on your social media accounts. Each platform is slightly different, so you can't use the same information when sharing a post on Facebook, YouTube or Instagram TV. However, the videos you share on your IGTV channel can benefit quite a bit from simple things like a[video title, a description of a video](https://tools.techidaily.com/wondershare/filmora/download/) or a cover photo. That’s why in this article we are going to take you through each step of the process of creating and changing an IGTV cover photo.
+
+* Part 1: Dimensions and Specifications for Cover Photos on IGTV
+* Part 2: How to Create a Cover Photo for Your IGTV Channel?
+* Part 3: Bonus! Edit Your IGTV Video with Filmora
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
+## Part 1: Dimensions and Specifications for Cover Photos on IGTV
+
+IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
+
+YouTuber The K Guy has made a video to demonstrate the IGTV Cover Thumbnail size and dimensions and safe zone. You can check the video tutorial below.
+
+You may also like: [How to make thumbnails with an online thumbnail maker](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The images you use as cover photos for your videos will be displayed in different aspect ratios depending on the device that is used to view them. You can use a picture that has **1080X1680** pixels, **a near 9:16 aspect ratio**, as a cover photo for all IGTV videos you upload to your channel or you can choose to work with smaller images that **have 420X654 pixels and a 1:1.55 aspect ratio.** If you upload a cover photo that has **1080X1920 pixels** the platform will automatically **crop approximately 120 pixels** from both shorter and longer sides of the image. The size of a file you’re using for an IGTV video cover photo cannot exceed **4MB,** and the file must be saved as **a JPEG** since presently this is the only picture file format supported by IGTV.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
+
+While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
+
+## Part 2: How to Create a Cover Photo for Your IGTV Channel?
+
+Adding a cover photo to your IGTV video is easy since you just have **to upload a photo from your camera roll or from a video.** After adding a title of a video and a description you can simply tap on **the Edit Cover option** and select either **Upload from Camera Roll or Choose Cover from Video** options and proceed to pick the image you want to upload. In case you choose to add a picture from a video you will be able to navigate to the exact point in the video where the still frame you’d like to use a cover photo is located. The picture will be automatically added as your cover photo as soon as you confirm the changes.
+
+**[Photo editing apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhones and Android** devices can help you create captivating cover photos for your IGTV videos, but you can also edit your IGTV cover photos with the image editor that is available in Instagram Stories. Despite the limited amount of features you will have at your disposal, using Instagram Stories to create cover photos for your IGTV videos is still a good idea, especially if you’re looking for a way to quickly save an image to your camera roll and upload it as an IGTV cover photo.
+
+Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
+## Part 3: Bonus! Edit Your IGTV Video with Filmora
+
+Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
+
+Filmora is a video editing software for people at different levels. Should you be a beginner or skilled editor, Filmora is the software for you. Here is a video about how to edit IGTV with Filmora, check it out!
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Conclusion**
+
+A small and seemingly insignificant detail like a cover photo of an IGTV video can be far more important for the video’s success on social networks than you’d expect. A cover photo can often be a reason why people choose to watch a video since it can spark their curiosity or attract their attention by suggesting what the video is about. Do you think that **IGTV cover photos** can help increase the number of views a video is getting? Leave a comment below and share your opinions with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+There are so many different things you need to pay attention to when sharing new content on your social media accounts. Each platform is slightly different, so you can't use the same information when sharing a post on Facebook, YouTube or Instagram TV. However, the videos you share on your IGTV channel can benefit quite a bit from simple things like a[video title, a description of a video](https://tools.techidaily.com/wondershare/filmora/download/) or a cover photo. That’s why in this article we are going to take you through each step of the process of creating and changing an IGTV cover photo.
+
+* Part 1: Dimensions and Specifications for Cover Photos on IGTV
+* Part 2: How to Create a Cover Photo for Your IGTV Channel?
+* Part 3: Bonus! Edit Your IGTV Video with Filmora
+
+## Part 1: Dimensions and Specifications for Cover Photos on IGTV
+
+IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
+
+YouTuber The K Guy has made a video to demonstrate the IGTV Cover Thumbnail size and dimensions and safe zone. You can check the video tutorial below.
+
+You may also like: [How to make thumbnails with an online thumbnail maker](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The images you use as cover photos for your videos will be displayed in different aspect ratios depending on the device that is used to view them. You can use a picture that has **1080X1680** pixels, **a near 9:16 aspect ratio**, as a cover photo for all IGTV videos you upload to your channel or you can choose to work with smaller images that **have 420X654 pixels and a 1:1.55 aspect ratio.** If you upload a cover photo that has **1080X1920 pixels** the platform will automatically **crop approximately 120 pixels** from both shorter and longer sides of the image. The size of a file you’re using for an IGTV video cover photo cannot exceed **4MB,** and the file must be saved as **a JPEG** since presently this is the only picture file format supported by IGTV.
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
+
+While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to Create a Cover Photo for Your IGTV Channel?
+
+Adding a cover photo to your IGTV video is easy since you just have **to upload a photo from your camera roll or from a video.** After adding a title of a video and a description you can simply tap on **the Edit Cover option** and select either **Upload from Camera Roll or Choose Cover from Video** options and proceed to pick the image you want to upload. In case you choose to add a picture from a video you will be able to navigate to the exact point in the video where the still frame you’d like to use a cover photo is located. The picture will be automatically added as your cover photo as soon as you confirm the changes.
+
+**[Photo editing apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhones and Android** devices can help you create captivating cover photos for your IGTV videos, but you can also edit your IGTV cover photos with the image editor that is available in Instagram Stories. Despite the limited amount of features you will have at your disposal, using Instagram Stories to create cover photos for your IGTV videos is still a good idea, especially if you’re looking for a way to quickly save an image to your camera roll and upload it as an IGTV cover photo.
+
+Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+## Part 3: Bonus! Edit Your IGTV Video with Filmora
+
+Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
+
+Filmora is a video editing software for people at different levels. Should you be a beginner or skilled editor, Filmora is the software for you. Here is a video about how to edit IGTV with Filmora, check it out!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Conclusion**
+
+A small and seemingly insignificant detail like a cover photo of an IGTV video can be far more important for the video’s success on social networks than you’d expect. A cover photo can often be a reason why people choose to watch a video since it can spark their curiosity or attract their attention by suggesting what the video is about. Do you think that **IGTV cover photos** can help increase the number of views a video is getting? Leave a comment below and share your opinions with us.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -105,110 +244,9 @@ Adding a cover photo to your IGTV video is easy since you just have **to upload 
 
 Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
 
-## Part 3: Bonus! Edit Your IGTV Video with Filmora
-
-Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
-
-Filmora is a video editing software for people at different levels. Should you be a beginner or skilled editor, Filmora is the software for you. Here is a video about how to edit IGTV with Filmora, check it out!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Conclusion**
-
-A small and seemingly insignificant detail like a cover photo of an IGTV video can be far more important for the video’s success on social networks than you’d expect. A cover photo can often be a reason why people choose to watch a video since it can spark their curiosity or attract their attention by suggesting what the video is about. Do you think that **IGTV cover photos** can help increase the number of views a video is getting? Leave a comment below and share your opinions with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-There are so many different things you need to pay attention to when sharing new content on your social media accounts. Each platform is slightly different, so you can't use the same information when sharing a post on Facebook, YouTube or Instagram TV. However, the videos you share on your IGTV channel can benefit quite a bit from simple things like a[video title, a description of a video](https://tools.techidaily.com/wondershare/filmora/download/) or a cover photo. That’s why in this article we are going to take you through each step of the process of creating and changing an IGTV cover photo.
-
-* Part 1: Dimensions and Specifications for Cover Photos on IGTV
-* Part 2: How to Create a Cover Photo for Your IGTV Channel?
-* Part 3: Bonus! Edit Your IGTV Video with Filmora
-
-## Part 1: Dimensions and Specifications for Cover Photos on IGTV
-
-IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
-
-YouTuber The K Guy has made a video to demonstrate the IGTV Cover Thumbnail size and dimensions and safe zone. You can check the video tutorial below.
-
-You may also like: [How to make thumbnails with an online thumbnail maker](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The images you use as cover photos for your videos will be displayed in different aspect ratios depending on the device that is used to view them. You can use a picture that has **1080X1680** pixels, **a near 9:16 aspect ratio**, as a cover photo for all IGTV videos you upload to your channel or you can choose to work with smaller images that **have 420X654 pixels and a 1:1.55 aspect ratio.** If you upload a cover photo that has **1080X1920 pixels** the platform will automatically **crop approximately 120 pixels** from both shorter and longer sides of the image. The size of a file you’re using for an IGTV video cover photo cannot exceed **4MB,** and the file must be saved as **a JPEG** since presently this is the only picture file format supported by IGTV.
-
-![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
-
-While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
-
-## Part 2: How to Create a Cover Photo for Your IGTV Channel?
-
-Adding a cover photo to your IGTV video is easy since you just have **to upload a photo from your camera roll or from a video.** After adding a title of a video and a description you can simply tap on **the Edit Cover option** and select either **Upload from Camera Roll or Choose Cover from Video** options and proceed to pick the image you want to upload. In case you choose to add a picture from a video you will be able to navigate to the exact point in the video where the still frame you’d like to use a cover photo is located. The picture will be automatically added as your cover photo as soon as you confirm the changes.
-
-**[Photo editing apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhones and Android** devices can help you create captivating cover photos for your IGTV videos, but you can also edit your IGTV cover photos with the image editor that is available in Instagram Stories. Despite the limited amount of features you will have at your disposal, using Instagram Stories to create cover photos for your IGTV videos is still a good idea, especially if you’re looking for a way to quickly save an image to your camera roll and upload it as an IGTV cover photo.
-
-Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 3: Bonus! Edit Your IGTV Video with Filmora
-
-Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
-
-Filmora is a video editing software for people at different levels. Should you be a beginner or skilled editor, Filmora is the software for you. Here is a video about how to edit IGTV with Filmora, check it out!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Conclusion**
-
-A small and seemingly insignificant detail like a cover photo of an IGTV video can be far more important for the video’s success on social networks than you’d expect. A cover photo can often be a reason why people choose to watch a video since it can spark their curiosity or attract their attention by suggesting what the video is about. Do you think that **IGTV cover photos** can help increase the number of views a video is getting? Leave a comment below and share your opinions with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-There are so many different things you need to pay attention to when sharing new content on your social media accounts. Each platform is slightly different, so you can't use the same information when sharing a post on Facebook, YouTube or Instagram TV. However, the videos you share on your IGTV channel can benefit quite a bit from simple things like a[video title, a description of a video](https://tools.techidaily.com/wondershare/filmora/download/) or a cover photo. That’s why in this article we are going to take you through each step of the process of creating and changing an IGTV cover photo.
-
-* Part 1: Dimensions and Specifications for Cover Photos on IGTV
-* Part 2: How to Create a Cover Photo for Your IGTV Channel?
-* Part 3: Bonus! Edit Your IGTV Video with Filmora
-
-## Part 1: Dimensions and Specifications for Cover Photos on IGTV
-
-IGTV is centered around the idea that people hold their phones vertically while watching videos, and for that reason, all videos on this platform are in the **9:16 aspect ratio**. Hence the cover photos you can add to your IGTV videos have to be **vertically oriented** as well, and if you would like to prevent IGTV from cropping your cover photo, you need to make sure that the picture matches the platform’s specifications. If you follow these specifications the cover photos for your IGTV videos are going to look equally good inside the IGTV app, the Instagram.com website, Instagram app search grid or Instagram app search feed.
-
-YouTuber The K Guy has made a video to demonstrate the IGTV Cover Thumbnail size and dimensions and safe zone. You can check the video tutorial below.
-
-You may also like: [How to make thumbnails with an online thumbnail maker](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The images you use as cover photos for your videos will be displayed in different aspect ratios depending on the device that is used to view them. You can use a picture that has **1080X1680** pixels, **a near 9:16 aspect ratio**, as a cover photo for all IGTV videos you upload to your channel or you can choose to work with smaller images that **have 420X654 pixels and a 1:1.55 aspect ratio.** If you upload a cover photo that has **1080X1920 pixels** the platform will automatically **crop approximately 120 pixels** from both shorter and longer sides of the image. The size of a file you’re using for an IGTV video cover photo cannot exceed **4MB,** and the file must be saved as **a JPEG** since presently this is the only picture file format supported by IGTV.
-
-![IGTV Cover Photo Safe Zone ](https://images.wondershare.com/filmora/article-images/igtv-cover-photo-dimensions.jpg)
-
-While creating a cover photo for an IGTV video you need to keep in mind that different graphics and text overlays are going to be displayed over the picture once you upload it to your channel. During the process of uploading IGTV video’s cover photo, you will be able to add text to it, but the **Title Safe Area** suggests where you can place the text without the risk of it being cropped while being viewed from different devices won’t be shown. So, make sure that all text you add to your IGTV video cover photo is **placed in the central area of the image** in order for it to be clearly visible on all devices.
-
-## Part 2: How to Create a Cover Photo for Your IGTV Channel?
-
-Adding a cover photo to your IGTV video is easy since you just have **to upload a photo from your camera roll or from a video.** After adding a title of a video and a description you can simply tap on **the Edit Cover option** and select either **Upload from Camera Roll or Choose Cover from Video** options and proceed to pick the image you want to upload. In case you choose to add a picture from a video you will be able to navigate to the exact point in the video where the still frame you’d like to use a cover photo is located. The picture will be automatically added as your cover photo as soon as you confirm the changes.
-
-**[Photo editing apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhones and Android** devices can help you create captivating cover photos for your IGTV videos, but you can also edit your IGTV cover photos with the image editor that is available in Instagram Stories. Despite the limited amount of features you will have at your disposal, using Instagram Stories to create cover photos for your IGTV videos is still a good idea, especially if you’re looking for a way to quickly save an image to your camera roll and upload it as an IGTV cover photo.
-
-Learn more details about [How to edit IGTV videos with best app on mobile](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Bonus! Edit Your IGTV Video with Filmora
 
 Now that you have learned about how to create an attractive IGTV thumbnail, don't let it get wasted! Create a video that is as attractive as your thumbnail with Filmora.
@@ -252,3 +290,44 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-highlighting-twitvideos-twitters-viral-video-trends/"><u>[New] 2024 Approved  Highlighting TwitVideos  Twitter's Viral Video Trends</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-power-of-persuasion-maximizing-facebook-ad-performance-through-animation/"><u>[New] In 2024, The Power of Persuasion  Maximizing Facebook Ad Performance Through Animation</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transform-your-vfx-workflow-implementing-luts-within-after-effects/"><u>[New] Transform Your VFX Workflow  Implementing LUTs Within After Effects</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unlock-the-full-potential-of-your-reels-with-these-6-essentials-for-2024/"><u>[New] Unlock the Full Potential of Your Reels with These 6 Essentials for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unleashing-the-power-of-your-instagram-vids-appeal/"><u>[Updated] 2024 Approved  Unleashing the Power of Your Instagram Vids' Appeal</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-4-proven-methods-for-perfect-instagram-video-loops/"><u>[Updated] 4 Proven Methods for Perfect Instagram Video Loops</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-add-captions-to-instagram-videos/"><u>[Updated] In 2024, How to Add Captions to Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unlocking-the-power-of-instagrams-visual-storytelling-covers-edition/"><u>[Updated] In 2024, Unlocking the Power of Instagram's Visual Storytelling  Covers Edition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unveiling-secrets-for-converting-instagram-vids-into-high-quality-mp4-for-2024/"><u>[Updated] Unveiling Secrets for Converting Instagram Vids Into High-Quality MP4 for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/aural-ascendancy-mastering-sound-integration-on-reels/"><u>Aural Ascendancy  Mastering Sound Integration on Reels</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-vivo-t2x-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Vivo T2x 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/compreranium-unpacking-apeaksoft-screen-tech-2023-edition-for-2024/"><u>Compreranium  Unpacking Apeaksoft Screen Tech, 2023 Edition for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/converting-insta-videos-to-mp3-a-comprehensive-overview/"><u>Converting Insta Videos to MP3 - A Comprehensive Overview</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/detailed-insights-into-instagrams-video-time-policy/"><u>Detailed Insights Into Instagram’s Video Time Policy</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/enhancing-engagement-10-must-have-tools-for-ig-gurus/"><u>Enhancing Engagement  10 Must-Have Tools for IG Gurus</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/essential-tips-and-templates-for-impactful-ig-footage/"><u>Essential Tips & Templates for Impactful IG Footage</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/expanding-your-audience-syncing-igtv-and-facebook/"><u>Expanding Your Audience  Syncing IGTV & Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-apple-iphone-x-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>How to Fix Apple iPhone X Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/how-to-retain-your-instagram-captures-on-iphone/"><u>How to Retain Your Instagram Captures on iPhone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/identify-wolfs-call-resonance/"><u>Identify Wolfs Call Resonance</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-c50-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Poco C50 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-seamless-srt-creation-the-ultimate-xmlssattml-playbook/"><u>In 2024, Seamless SRT Creation  The Ultimate XML/SSA/TTML Playbook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/leading-apps-to-monitor-facebook-twitter-and-instagram-tags/"><u>Leading Apps to Monitor Facebook, Twitter and Instagram Tags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-subtitles-on-the-social-media-stage-igtv/"><u>Mastering Subtitles on the Social Media Stage  IGTV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-legalities-of-instagram-harmonies/"><u>Navigating Legalities of Instagram Harmonies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-the-world-of-instagram-stories-easily/"><u>Navigating the World of Instagram Stories Easily</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-looking-for-simple-steps-to-apply-fade-in-effect-to-your-text-in-premiere-pro-here-are-two-different-methods-along-with-an-alternative-way-to-fade-text-/"><u>New Looking for Simple Steps to Apply Fade in Effect to Your Text in Premiere Pro? Here Are Two Different Methods Along with an Alternative Way to Fade Text in Videos</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-the-soundtrack-search-navigating-the-iphones-abilities-for-track-titling/"><u>New The Soundtrack Search Navigating the iPhones Abilities for Track Titling</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/optimizing-engagement-on-igtv-through-thoughtful-dimension-tweaks/"><u>Optimizing Engagement on IGTV Through Thoughtful Dimension Tweaks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/orchestrate-instagram-reel-magic-with-music-and-voiceovers/"><u>Orchestrate Instagram Reel Magic with Music & Voiceovers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/step-by-step-for-crafting-top-tier-memes-on-9gag/"><u>Step-By-Step for Crafting Top-Tier Memes on 9GAG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-commerce-codex-for-instagram-creators-securing-profitable-alignments/"><u>The Commerce Codex for Instagram Creators  Securing Profitable Alignments</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-essential-imovie-steps-for-squaring-up-instagram-posts/"><u>The Essential iMovie Steps for Squaring Up Instagram Posts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-pathway-to-prominence-on-social-media/"><u>The Pathway to Prominence on Social Media</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-premier-voice-recorders-for-android-comprehensive-and-cost-free/"><u>Updated Premier Voice Recorders for Android - Comprehensive and Cost-Free</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-say-goodbye-to-shaky-videos-top-free-online-stabilizers-reviewed/"><u>Updated Say Goodbye to Shaky Videos Top Free Online Stabilizers Reviewed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/watch-local-videos-on-chromecast-a-comprehensive-guide-for-windows-mac-android-and-ios-users-for-2024/"><u>Watch Local Videos on Chromecast A Comprehensive Guide for Windows, Mac, Android, and iOS Users for 2024</u></a></li>
+</ul></div>

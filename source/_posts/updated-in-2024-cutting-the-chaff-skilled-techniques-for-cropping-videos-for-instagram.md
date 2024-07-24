@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Cutting the Chaff  Skilled Techniques for Cropping Videos for Instagram\""
-date: 2024-05-21T15:02:15.754Z
-updated: 2024-05-22T15:02:15.754Z
+date: 2024-07-23T17:52:28.373Z
+updated: 2024-07-24T17:52:28.373Z
 tags:
   - ai video
   - ai instagram
@@ -12,13 +12,16 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Cutting the Chaff: Skilled Techniques for Cropping Videos for Instagram\""
 excerpt: "\"This Article Describes [Updated] In 2024, Cutting the Chaff: Skilled Techniques for Cropping Videos for Instagram\""
 keywords: "Video Cropping Tips,Instagram Optimization,Crop Videos Professionally,Filters for Videographers,Instagram Content Creation,Mastering Video Edits,Social Media Video Trends"
-thumbnail: https://www.lifewire.com/thmb/2mfMkf9Nh38PrId0xERnppf9iAg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-view-instagram-without-an-account-5271416-505eeceaf0e142ed8674d2ce2244a8be.jpg
+thumbnail: https://thmb.techidaily.com/92459487433dd8191ecb6f79f9b025b7d93038fc1418a5a54e50bbd98af412de.jpg
 ---
 
 ## Cutting the Chaff: Skilled Techniques for Cropping Videos for Instagram
 
 # How to Crop and Export Videos to Instagram
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -45,12 +48,100 @@ Unless you shoot your video directly from the Instagram app, the aspect ratio of
 
 In order to start cropping your videos, you first must install the Filmora video editing software on your computer. Open the video editor in the **Full Feature Mode**, and then click on the Import drop-down menu and select the Import Media Files option.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
+
+Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
+
+**Step 3: Crop videos for Instagram**
+
+**1\. Landscape (16:9)**
+
+Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
+
+Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
+
+Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
+
+![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
+
+**2\. Portrait (4:3)**
+
+In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
+
+![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
+
+Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
+
+**3\. Square (1:1)**
+
+The process of creating a square video is the same as the process of creating a portrait video, but height and weight values need to be identical, so you'll want to set them to 1080X1080, for example. Adjust the position of the crop rectangle and click OK.
+
+The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
+
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+With more than 500 million active daily users Instagram has become one of the largest photo and video sharing platforms in the world. Videos posted on this platform have a sixty-second limit, but Instagram users must also pay close attention to the aspect ratio of their videos. Instagram allows you to upload videos in square (1:1), landscape (16:9) and portrait (4:5) aspect ratios and in this article we will show you how to export videos that have an aspect ratio that matches the one demanded by Instagram.
+
+**You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to crop and export videos to instagram
+
+#### **Best cropping tool – Wondershare Filmora**
+
+In order to create videos that will get thousands of likes on Instagram, you need a video editing software that will enable you to adjust the aspect ratio of the videos you want to upload to this platform.[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that provides support for a large number of different video file formats and it will enable you to crop your videos and get them ready for online use.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### **How to crop videos for instagram in Filmora**
+
+Unless you shoot your video directly from the Instagram app, the aspect ratio of your videos will not match the square aspect ratio used on Instagram. The only solution to this issue is to crop the video and change its aspect ratio so it fits one of the commonly used aspect ratios on Instagram.
+
+**Step 1: Download Filmora and Import the file into the software**
+
+In order to start cropping your videos, you first must install the Filmora video editing software on your computer. Open the video editor in the **Full Feature Mode**, and then click on the Import drop-down menu and select the Import Media Files option.
+
+![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**Step 2: Drag and Drop the video file onto the Timeline**
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
@@ -99,12 +190,18 @@ With more than 500 million active daily users Instagram has become one of the la
 
 **You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to crop and export videos to instagram
 
 #### **Best cropping tool – Wondershare Filmora**
 
 In order to create videos that will get thousands of likes on Instagram, you need a video editing software that will enable you to adjust the aspect ratio of the videos you want to upload to this platform.[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that provides support for a large number of different video file formats and it will enable you to crop your videos and get them ready for online use.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### **How to crop videos for instagram in Filmora**
@@ -115,12 +212,18 @@ Unless you shoot your video directly from the Instagram app, the aspect ratio of
 
 In order to start cropping your videos, you first must install the Filmora video editing software on your computer. Open the video editor in the **Full Feature Mode**, and then click on the Import drop-down menu and select the Import Media Files option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Step 2: Drag and Drop the video file onto the Timeline**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
 Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
@@ -131,6 +234,9 @@ Now that the video clip you want to edit is in the editor's media library, drag 
 
 Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
 
 Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
@@ -143,6 +249,9 @@ Click on the Settings button and then set the Quality of the video to Best and s
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
@@ -175,6 +284,9 @@ With more than 500 million active daily users Instagram has become one of the la
 
 In order to create videos that will get thousands of likes on Instagram, you need a video editing software that will enable you to adjust the aspect ratio of the videos you want to upload to this platform.[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that provides support for a large number of different video file formats and it will enable you to crop your videos and get them ready for online use.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### **How to crop videos for instagram in Filmora**
@@ -207,12 +319,18 @@ Once the new window appears, you should click on the Format icon positioned in t
 
 Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
 
 **2\. Portrait (4:3)**
 
 In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
 
 Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
@@ -223,76 +341,9 @@ The process of creating a square video is the same as the process of creating a 
 
 The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-With more than 500 million active daily users Instagram has become one of the largest photo and video sharing platforms in the world. Videos posted on this platform have a sixty-second limit, but Instagram users must also pay close attention to the aspect ratio of their videos. Instagram allows you to upload videos in square (1:1), landscape (16:9) and portrait (4:5) aspect ratios and in this article we will show you how to export videos that have an aspect ratio that matches the one demanded by Instagram.
-
-**You May Also Like:** [How to Crop Photos/Images on iPhone](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## How to crop and export videos to instagram
-
-#### **Best cropping tool – Wondershare Filmora**
-
-In order to create videos that will get thousands of likes on Instagram, you need a video editing software that will enable you to adjust the aspect ratio of the videos you want to upload to this platform.[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that provides support for a large number of different video file formats and it will enable you to crop your videos and get them ready for online use.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### **How to crop videos for instagram in Filmora**
-
-Unless you shoot your video directly from the Instagram app, the aspect ratio of your videos will not match the square aspect ratio used on Instagram. The only solution to this issue is to crop the video and change its aspect ratio so it fits one of the commonly used aspect ratios on Instagram.
-
-**Step 1: Download Filmora and Import the file into the software**
-
-In order to start cropping your videos, you first must install the Filmora video editing software on your computer. Open the video editor in the **Full Feature Mode**, and then click on the Import drop-down menu and select the Import Media Files option.
-
-![](https://images.wondershare.com/filmora/article-images/filmora-import.jpg)
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Step 2: Drag and Drop the video file onto the Timeline**
-
-![](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
-
-Now that the video clip you want to edit is in the editor's media library, drag it and drop it to the timeline.
-
-**Step 3: Crop videos for Instagram**
-
-**1\. Landscape (16:9)**
-
-Chances are that the camera you used to record your video clip recorded the footage in the landscape aspect ratio. Before you can export your video clip, you must first check the resolution and frame rate of the clip you want to export. Right-click on the clip in the media panel and select Properties. After you found out this information, click on the Export button located just below the media panel.
-
-![check aspect ratio](https://images.wondershare.com/filmora/article-images/check-aspect-ratio.jpg)
-
-Once the new window appears, you should click on the Format icon positioned in the upper left corner of the screen. Select the MP4 format, name your file and select the folder where the file will be exported.
-
-Click on the Settings button and then set the Quality of the video to Best and select the HD Optimized option in the Encoder menu. Choose the Resolution and Frame Rate that match the ones in your video and change the Bitrate in the Audio settings to 128 Kbps and hit OK.
-
-![](https://images.wondershare.com/filmora/article-images/16-9-aspect-ratio-export.jpg)
-
-**2\. Portrait (4:3)**
-
-In order to create a video that has a portrait aspect ratio, you need to crop it. You can do this by clicking on the **Crop and Pan tool**, located in the timeline tools. Use an [online aspect ratio calculator](https://calculateaspectratio.com/) to find the exact resolution that matches the portrait aspect ratio. Once you made the calculations return to Filmora and click on the Manually option in the Crop and Pan screen. Insert the numbers manually to resize the video.
-
-![crop and zoom filmora](https://images.wondershare.com/filmora/article-images/crop-and-zoom-filmora.jpg)
-
-Adjust the crop tool's position and click OK. The export process for landscape and portrait videos is nearly identical and the only thing you need to change is the resolution. Click on the Resolution drop-down menu and select the custom option and then enter the height and weight values you inserted in the cropping tool. Your portrait video is ready to be exported.
-
-**3\. Square (1:1)**
-
-The process of creating a square video is the same as the process of creating a portrait video, but height and weight values need to be identical, so you'll want to set them to 1080X1080, for example. Adjust the position of the crop rectangle and click OK.
-
-The steps for exporting square videos are the same as the steps you need to take to export a portrait video. Make sure to change the resolution of the video to 1080X1080 before hitting the Export button and enjoy sharing your videos on Instagram.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -324,3 +375,65 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-game-on-6-efficient-techniques-for-perfect-pc-snapshots/"><u>[New] 2024 Approved  Game On  6 Efficient Techniques for Perfect PC Snapshots</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-ideas-in-images-top-20-photos-to-fire-up-creativity/"><u>[New] Ideas in Images  Top 20 Photos to Fire Up Creativity</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-pixelpreserve-a-comprehensive-screen-record-review/"><u>[New] In 2024, 'PixelPreserve'  A Comprehensive Screen Record Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-channel-finale-101-insider-tricks-for-successful-outros/"><u>[New] In 2024, Channel Finale 101  Insider Tricks for Successful Outros</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-chatcam-save-extractor-for-facebook/"><u>[New] In 2024, ChatCam Save Extractor for Facebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-video-boundaries-explained/"><u>[New] Instagram Video Boundaries Explained</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-launching-into-the-spotlight-instagram-lives/"><u>[New] Launching Into the Spotlight  Instagram Lives</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-revolutionize-your-tiktok-presence-2-effective-ways-using-filmora-techniques-for-2024/"><u>[New] Revolutionize Your TikTok Presence  2 Effective Ways Using Filmora Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-strategies-for-successful-longer-content-on-social-media-hubs/"><u>[New] Strategies for Successful Longer Content on Social Media Hubs</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-elevate-your-tiktok-footage-with-stunning-template-techniques-for-2024/"><u>[Updated] Elevate Your TikTok Footage with Stunning Template Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-add-music-to-ig-story-an-ultimate-guide/"><u>[Updated] How to Add Music to IG Story – an Ultimate Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-pinpoint-premium-video-keywords-on-youtube/"><u>[Updated] How to Pinpoint Premium Video Keywords on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-masterclass-in-instagram-designing-eye-catching-cover-images/"><u>[Updated] Masterclass in Instagram  Designing Eye-Catching Cover Images</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-masterful-content-creation-with-these-top-editing-tools/"><u>[Updated] Masterful Content Creation with These Top Editing Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-hashtags-with-leading-apps-on-fb-twitter-and-instagram/"><u>[Updated] Mastering Hashtags with Leading Apps on FB, Twitter & Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-video-scaling-on-mac-for-perfect-instagram-posts/"><u>[Updated] Mastering Video Scaling on Mac for Perfect Instagram Posts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-meme-ology-the-science-of-popularizing-video-laughs-on-social-platforms/"><u>[Updated] Meme-Ology  The Science of Popularizing Video Laughs on Social Platforms</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-instagram-the-essential-guide-to-mastering-reels/"><u>[Updated] Navigating Instagram  The Essential Guide to Mastering Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-melody-rights-on-instagram-a-full-breakdown/"><u>[Updated] Navigating Melody Rights on Instagram  A Full Breakdown</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-optimal-instagram-posting-times-a-comprehensive-overview/"><u>[Updated] Optimal Instagram Posting Times  A Comprehensive Overview</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-overcoming-video-limitations-on-instagram-platform/"><u>[Updated] Overcoming Video Limitations on Instagram Platform</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-seamless-streams-addressing-instagrams-video-snags/"><u>[Updated] Seamless Streams  Addressing Instagram's Video Snags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-simple-routines-for-saving-instagram-stories-efficiently/"><u>[Updated] Simple Routines for Saving Instagram Stories Efficiently</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-smooth-blur-magic-for-instagrams-story-moments/"><u>[Updated] Smooth Blur Magic for Instagram's Story Moments</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-exciting-online-cam-challenges/"><u>2024 Approved  Exciting Online Cam Challenges</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-how-to-become-an-instagram-influencer-a-complete-guide/"><u>2024 Approved  How to Become an Instagram Influencer  A Complete Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-insta-marketing-brilliance-top-10-innovative-approaches-for-video-ads/"><u>2024 Approved  Insta-Marketing Brilliance  Top 10 Innovative Approaches for Video Ads</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-leading-tools-to-monitor-hashtags-on-fb-twitter-and-instagram/"><u>2024 Approved  Leading Tools to Monitor Hashtags on FB, Twitter & Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastering-the-social-maze-avoiding-the-ban-on-fb/"><u>2024 Approved  Mastering the Social Maze  Avoiding the Ban on FB</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-rethinking-content-strategy-with-instagrams-new-order/"><u>2024 Approved  Rethinking Content Strategy with Instagram's New Order</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-seamless-file-access-top-windows-and-mac-strategies-for-downloading-igtv/"><u>2024 Approved  Seamless File Access  Top Windows & Mac Strategies for Downloading IGTV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-smooth-streams-combining-a-multitude-of-images-and-videos-for-instagram/"><u>2024 Approved  Smooth Streams  Combining a Multitude of Images & Videos for Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-things-you-need-to-know-about-music-for-instagram/"><u>2024 Approved  Things You Need to Know About Music for Instagram</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-top-10-websites-to-create-free-customizable-invitation-videos/"><u>2024 Approved Top 10 Websites to Create Free Customizable Invitation Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/accelerated-record-functionality-and-narrator-support/"><u>Accelerated Record Functionality & Narrator Support</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/castwithease-how-to-make-livestreaming-your-podcast-effortless-for-2024/"><u>CastWithEase  How to Make Livestreaming Your Podcast Effortless for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-xr-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From Apple iPhone XR If Youve Tried Everything</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-switch-between-normal-and-picture-in-picture-views-in-youtube/"><u>How to Switch Between Normal and Picture In Picture Views in Youtube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-how-to-achieve-and-share-your-most-lengthy-instagram-videos/"><u>In 2024, How to Achieve and Share Your Most Lengthy Instagram Videos</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-vivo-t2x-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Vivo T2x 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-how-to-turn-onoff-motion-blur-in-dying-light-2/"><u>In 2024, How to Turn On/Off Motion Blur in Dying Light 2?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-insta-reel-power-mimicking-high-flying-tiktok-methods/"><u>In 2024, Insta Reel Power  Mimicking High-Flying TikTok Methods</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-optimal-video-sizes-on-instagram-explained/"><u>In 2024, Optimal Video Sizes on Instagram Explained</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-protocols-for-preserving-instagram-footage-on-windowsmacos-platforms/"><u>In 2024, Protocols for Preserving Instagram Footage on Windows/macOS Platforms</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-smooth-video-capture-with-your-laptops-webcam/"><u>In 2024, Smooth Video Capture with Your Laptop's Webcam</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instaidentity-100-innovative-caption-examples-for-global-sharing-for-2024/"><u>InstaIdentity  100 Innovative Caption Examples for Global Sharing for 2024</u></a></li>
+<li><a href="https://techidaily.com/is-your-oneplus-ace-3-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your OnePlus Ace 3 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-instagram-boost-your-following-for-2024/"><u>Mastering Instagram  Boost Your Following for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-instagram-video-dimensions-for-peak-performance-for-2024/"><u>Mastering Instagram Video Dimensions for Peak Performance for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mobile-mastery-saving-igtv-videos-on-your-device-for-2024/"><u>Mobile Mastery  Saving IGTV Videos on Your Device for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-top-gaming-destinations-best-sites-to-download-pc-games-for-2024/"><u>New The Top Gaming Destinations Best Sites to Download PC Games for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/power-up-with-the-ultimate-exercise-soundtrack-guide-for-2024/"><u>Power Up with the Ultimate Exercise Soundtrack Guide for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/radiate-on-reels-instagram-highlight-techniques-simplified-to-three-for-2024/"><u>Radiate on Reels  Instagram Highlight Techniques, Simplified to Three for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/scaling-movies-on-a-mac-for-impeccable-instagram-shares-for-2024/"><u>Scaling Movies on a Mac for Impeccable Instagram Shares for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/secure-social-space-end-following-protocols-for-2024/"><u>Secure Social Space  End Following Protocols for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/squared-up-crafting-square-format-videos-with-imovie-and-instagram-for-2024/"><u>Squared Up  Crafting Square-Format Videos with iMovie and Instagram for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/thorough-investigation-dji-inspire-1-reviewed-for-2024/"><u>Thorough Investigation  DJI Inspire 1 Reviewed for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating Music Licens Written by John Doe\""
-date: 2024-05-21T13:46:30.940Z
-updated: 2024-05-22T13:46:30.940Z
+date: 2024-07-23T14:14:07.132Z
+updated: 2024-07-24T14:14:07.132Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Navigating Music Licens Written by John Doe\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Navigating Music Licens Written by John Doe\""
 keywords: "Music License Guide,Copyright In Music,Music Publishing Basics,Legal Rights in Music,Author's Music Licensing,Understanding Music Royalties,Written Music Licensing"
-thumbnail: https://www.lifewire.com/thmb/QSOkVMBCO__10c9yExi2xlfXUGg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-626970032-497800518dac4d6cafa0dc19b953f1ff.jpg
+thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a57dd0707f44eeaa06c560dbc.jpg
 ---
 
 ## Navigating Music Licens Written by John Doe
@@ -39,6 +39,9 @@ If the system detects copyrighted content, here's what happens to your Instagram
 
 ![instagram copyright notification](https://images.wondershare.com/filmora/article-images/2023/03/instagram-copyright-notification.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Instagram Music Copyright Rules
 
 After knowing how Instagram detects copyrighted music and the results of being involved with music copyright issues, you may wonder how to avoid the risks.
@@ -55,6 +58,9 @@ Under Instagram's automated detection system and copyright music rules, using co
 
 In this part, we will focus on using royalty-free music on Instagram. We have prepared three aspects about its usage of it to provide overall guidance for you.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### (1) Workarounds for Using Copyrighted Music on Instagram
 
 There are several workarounds for using **copyrighted music on Instagram:**
@@ -65,6 +71,18 @@ There are several workarounds for using **copyrighted music on Instagram:**
 * **Give Credit In Your Caption:** To use copyrighted music on your IG content, give credit to the original creator in your post's caption.
 * **Post Instagram Reel Videos:** Reels are short videos of about 15 seconds with a built-in music feature that applies a sticker to your content with the song's details and can save you from Instagram copyright music issues.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### (2) A Video Editor To Avoid Copyright Issue And Post Your Videos On Instagram
 
 Copyright can be a tricky thing, especially when it comes to posting music videos on Instagram. However, there is a way to avoid issues and still post your content on the platform.
@@ -77,6 +95,9 @@ When you use FilmoragGo, you can be sure that your content will be safe to post 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### (3) Exceptions For Asking Permission To Use The Music
 
 Here are some exceptions where you don't need to ask for permission to use copyrighted music in your IG posts, reels, or Livestreams:
@@ -89,6 +110,9 @@ Here are some exceptions where you don't need to ask for permission to use copyr
 * **Royalty-Free Music:** It's a type of music content where you have to give credit to the creator or pay some upfront for using their songs in your content. To learn more about this, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 * **Creative Commons Music Licensing**: Generally speaking, music in the Creative Commons still has some copyright protection. However, artists who publish under this license usually permit anyone to use their work for free. You can find CC-Music Licensing content on [TakeTones.](https://taketones.com/track/experience)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: What Do You Do When Instagram Blocks Your Video?
 
 Even though we have learned about the rules of using copyrighted music on Instagram, what to do if you are or have been in copyright issues?
@@ -105,6 +129,9 @@ Step2Read the notice that says you have permission to share the content in the v
 
 Step3Tap the **"Appeal"** button. You can anticipate a decision within 24 hours. If you have adhered to the rules and possess the authority to use copyrighted music in your content, Instagram should lift all limitations.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## FAQs About Copyright Music On Instagram
 
 Below, you'll find answers to common questions Instagram users ask about copyrighted music.
@@ -125,6 +152,9 @@ There are some conditions to playing music on your Instagram Live. For instance,
 
 Unfortunately, there's no simple rule on Instagram that says using 5, 15, or 30 seconds of a song is always an acceptable use. So using 30 seconds of copyrighted music on Instagram is not considered a safe bet.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've discussed Instagram's rules about copyrighted music, how the platform detects copyrighted music, and some exceptions in which you don't have to ask permission to use the music in your posts. We've also recommended using the Filmora app to avoid these issues.
@@ -137,6 +167,9 @@ Hopefully, you've found this article helpful and can now understand the dos and 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### (3) Exceptions For Asking Permission To Use The Music
 
 Here are some exceptions where you don't need to ask for permission to use copyrighted music in your IG posts, reels, or Livestreams:
@@ -165,6 +198,9 @@ Step2Read the notice that says you have permission to share the content in the v
 
 Step3Tap the **"Appeal"** button. You can anticipate a decision within 24 hours. If you have adhered to the rules and possess the authority to use copyrighted music in your content, Instagram should lift all limitations.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQs About Copyright Music On Instagram
 
 Below, you'll find answers to common questions Instagram users ask about copyrighted music.
@@ -216,3 +252,41 @@ Hopefully, you've found this article helpful and can now understand the dos and 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-fine-tuning-your-videos-for-viral-instagram-moments/"><u>[New] Fine-Tuning Your Videos for Viral Instagram Moments</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-how-to-cut-video-for-instagram-on-mac/"><u>[New] How To Cut Video For Instagram On Mac</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-identifying-trends-analyzing-the-success-of-your-igtv-video/"><u>[New] Identifying Trends  Analyzing the Success of Your IGTV Video</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-gamers-blueprint-securing-memorable-moments-with-4-methods/"><u>[New] In 2024, The Gamers' Blueprint  Securing Memorable Moments with 4 Methods</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-victory-tackling-video-tribulations-head-on/"><u>[New] Instagram Victory  Tackling Video Tribulations Head-On</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-navigating-education-without-the-video-element/"><u>[New] Navigating Education without the Video Element</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-transforming-ideas-into-impactful-scenes-through-dialogue/"><u>[New] Transforming Ideas Into Impactful Scenes Through Dialogue</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-az-vision-recorder-complete-application-audits-and-substitutes-for-2024/"><u>[Updated] AZ Vision Recorder  Complete Application Audits & Substitutes for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-enrich-engagement-tailored-questions-for-ig-story-boosting/"><u>[Updated] Enrich Engagement  Tailored Questions for IG Story Boosting</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-exclusive-insight-into-the-6-most-advanced-instagram-reel-apps/"><u>[Updated] Exclusive Insight Into the 6 Most Advanced Instagram Reel Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-become-an-instagram-influencer-a-complete-guide/"><u>[Updated] How to Become an Instagram Influencer  A Complete Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-photo-and-video-size-adjustment-guide/"><u>[Updated] Instagram Photo and Video Size Adjustment Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unveiling-youtubes-monthly-monetization-rules/"><u>[Updated] Unveiling YouTube’s Monthly Monetization Rules</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-finding-icons-a-targeted-approach-to-instas-powerful-voices/"><u>2024 Approved  Finding Icons  A Targeted Approach to Insta's Powerful Voices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-gain-on-ig-unveiling-high-payoff-content-strategies/"><u>2024 Approved  Gain on IG  Unveiling High-Payoff Content Strategies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagram-video-speed-boosting-for-smooth-playbacks-mobiledesktop/"><u>2024 Approved  Instagram Video Speed Boosting for Smooth Playbacks (Mobile/Desktop)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagrams-secret-weapons-for-follower-increase/"><u>2024 Approved  Instagram's Secret Weapons for Follower Increase</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instastorysaver-free-storage-beyond-counts/"><u>2024 Approved  InstaStorySaver  Free Storage Beyond Counts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-capturing-attention-top-6-videos-to-watch/"><u>2024 Approved  The Art of Capturing Attention  Top 6 Videos to Watch</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/expert-techniques-for-changing-your-instagram-sound-for-2024/"><u>Expert Techniques for Changing Your Instagram Sound for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-xiaomi-redmi-a2-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Xiaomi Redmi A2 Unlock Without Password</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-enhancing-instagram-video-performance-desktop/"><u>In 2024, Enhancing Instagram Video Performance (Desktop)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-from-idea-to-income-a-comprehensive-instagram-guide/"><u>In 2024, From Idea to Income  A Comprehensive Instagram Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-from-unknown-to-iconic-the-journey-of-viral-instagram-films/"><u>In 2024, From Unknown to Iconic  The Journey of Viral Instagram Films</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-how-to-search-filters-on-instagram-and-get-more-filters-for-free/"><u>In 2024, How to Search Filters on Instagram and Get More Filters for Free</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-imageimprint-tips-for-insta-size-customization/"><u>In 2024, ImageImprint  Tips for Insta Size Customization</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagrams-hidden-details-uncovering-story-viewer-truths/"><u>In 2024, Instagram's Hidden Details  Uncovering Story Viewer Truths</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagrams-latest-trends-in-video-loop-production/"><u>In 2024, Instagram's Latest Trends in Video Loop Production</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-lifecam-videoapp-quality-checkup/"><u>In 2024, LifeCam VideoApp Quality Checkup</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-understanding-and-exploiting-youtubes-featured-slot-for-maximum-reach/"><u>In 2024, Understanding and Exploiting YouTube's Featured Slot for Maximum Reach</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-archive-mastery-how-and-why-in-2024/"><u>Instagram Archive Mastery  How and Why, In 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-edge-video-cutting-techniques-to-boost-engagement-for-2024/"><u>Instagram Edge  Video Cutting Techniques to Boost Engagement for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-stories-unseen-aspects-revealed-for-2024/"><u>Instagram Stories  Unseen Aspects Revealed for 2024</u></a></li>
+</ul></div>

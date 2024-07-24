@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Delight in These Top 10 Insta Memes That Spark Joy & Sobs\""
-date: 2024-05-21T14:35:07.944Z
-updated: 2024-05-22T14:35:07.944Z
+date: 2024-07-23T16:33:53.712Z
+updated: 2024-07-24T16:33:53.712Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Delight in These Top 10 Insta Memes That Spark Joy & Sobs\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Delight in These Top 10 Insta Memes That Spark Joy & Sobs\""
 keywords: "Instagram Meme Joy,Emotional Insta Memes,Delightful Insta Jokes,Joyful Insta Content,Shared Insta Laughter,Insta Heartfelt Moments,Sobbing Insta Humor"
-thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1149123484-a277077c6bb643caaf22a94a39dfc15d.jpg
+thumbnail: https://thmb.techidaily.com/b940b6b0f5ea7e32cad1821c53c7dd63eece1d15c1851d2a65f8ffeb1e28c4c2.jpg
 ---
 
 ## Delight in These Top 10 Insta Memes That Spark Joy & Sobs
@@ -30,8 +30,14 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 * [**Part 1: 10 best Instagram meme accounts**](#part1)
 * [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Dank Memes Instagram Compilation
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part1: 10 best Instagram meme accounts
 
 ### 1. [memes](https://www.instagram.com/memes/)
@@ -40,6 +46,9 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 
  Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
 
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
@@ -48,8 +57,14 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 
  7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3. [memezar](https://www.instagram.com/memezar/)
 
  Followers – 5.4 Million
@@ -80,6 +95,9 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 
  FuckJerry runs a website based on memes and the culture around them, and has also developed a very popular card game called “What Do You Meme?” based on the same premise as Cards Against Humanity. His meme site is one of the most popular that you will find on the web.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
 
 ### 7. [memerizey](https://www.instagram.com/memerizey/)
@@ -88,6 +106,9 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 
  Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
 
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
@@ -98,6 +119,9 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 
 ![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 9. [funnymemes](https://www.instagram.com/funnymemes/)
 
  Followers – 7.9 million
@@ -120,6 +144,177 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 
  Here are two of the big reasons why they’ve become a popular form of communication.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### 1\. Memes are Very Easy to Understand
+
+ Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+### 2\. We Like Sharing Memes
+
+ Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+ There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
+
+ These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Given how stressful life is these days, memes are a great way for us to feel confident and happy. When searching for great memes, don’t forget Instagram. It’s one of the places to [find entertaining memes](https://tools.techidaily.com/wondershare/filmora/download/). Here’s a look at the 10 best meme accounts on Instagram that you should follow so that you can get your daily dose of laughter.
+
+* [**Part 1: 10 best Instagram meme accounts**](#part1)
+* [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
+
+## Dank Memes Instagram Compilation
+
+## Part1: 10 best Instagram meme accounts
+
+### 1. [memes](https://www.instagram.com/memes/)
+
+ Followers - 3 Million
+
+ Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
+
+![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
+
+### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
+
+ Followers - 5.3 Million
+
+ 7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3. [memezar](https://www.instagram.com/memezar/)
+
+ Followers – 5.4 Million
+
+ Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
+
+![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 4. [vines](https://www.instagram.com/vines/)
+
+ Followers 5.7 million
+
+ While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
+
+![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+### 5. [drunk](https://www.instagram.com/drunk/)
+
+ Followers - 5.6 million
+
+ This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
+
+![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
+
+ Followers - 13.9 million
+
+ FuckJerry runs a website based on memes and the culture around them, and has also developed a very popular card game called “What Do You Meme?” based on the same premise as Cards Against Humanity. His meme site is one of the most popular that you will find on the web.
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
+### 7. [memerizey](https://www.instagram.com/memerizey/)
+
+ Followers – 175 thousand
+
+ Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
+
+![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
+### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
+
+ Followers - 528 thousand
+
+ Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
+
+### 9. [funnymemes](https://www.instagram.com/funnymemes/)
+
+ Followers – 7.9 million
+
+ Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+### 10. [swearcasm](https://www.instagram.com/swearcasm/)
+
+ Followers – 359 thousand
+
+ According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
+
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
+![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
+
+## Part 2: Why Are Memes So Popular On Instagram, Anyway
+
+ There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
+
+ Here are two of the big reasons why they’ve become a popular form of communication.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### 1\. Memes are Very Easy to Understand
 
  Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
@@ -128,12 +323,185 @@ thumbnail: https://www.lifewire.com/thmb/7iSqR9T6Aul7nVcsld8FAGRFQ6k=/400x300/fi
 
  Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
  There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
 
  These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
 
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Given how stressful life is these days, memes are a great way for us to feel confident and happy. When searching for great memes, don’t forget Instagram. It’s one of the places to [find entertaining memes](https://tools.techidaily.com/wondershare/filmora/download/). Here’s a look at the 10 best meme accounts on Instagram that you should follow so that you can get your daily dose of laughter.
+
+* [**Part 1: 10 best Instagram meme accounts**](#part1)
+* [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
+
+## Dank Memes Instagram Compilation
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part1: 10 best Instagram meme accounts
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
+### 1. [memes](https://www.instagram.com/memes/)
+
+ Followers - 3 Million
+
+ Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
+
+![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
+### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
+
+ Followers - 5.3 Million
+
+ 7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
+
+### 3. [memezar](https://www.instagram.com/memezar/)
+
+ Followers – 5.4 Million
+
+ Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 4. [vines](https://www.instagram.com/vines/)
+
+ Followers 5.7 million
+
+ While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
+![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
+
+### 5. [drunk](https://www.instagram.com/drunk/)
+
+ Followers - 5.6 million
+
+ This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
+
+![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
+
+### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
+
+ Followers - 13.9 million
+
+ FuckJerry runs a website based on memes and the culture around them, and has also developed a very popular card game called “What Do You Meme?” based on the same premise as Cards Against Humanity. His meme site is one of the most popular that you will find on the web.
+
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
+
+### 7. [memerizey](https://www.instagram.com/memerizey/)
+
+ Followers – 175 thousand
+
+ Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
+
+![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
+
+### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
+
+ Followers - 528 thousand
+
+ Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+### 9. [funnymemes](https://www.instagram.com/funnymemes/)
+
+ Followers – 7.9 million
+
+ Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
+
+### 10. [swearcasm](https://www.instagram.com/swearcasm/)
+
+ Followers – 359 thousand
+
+ According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
+![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+## Part 2: Why Are Memes So Popular On Instagram, Anyway
+
+ There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
+
+ Here are two of the big reasons why they’ve become a popular form of communication.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 1\. Memes are Very Easy to Understand
+
+ Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
+
+### 2\. We Like Sharing Memes
+
+ Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+ There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
+
+ These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -179,14 +547,23 @@ Follow @Ollie Mattison
 
 ![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### 4. [vines](https://www.instagram.com/vines/)
 
  Followers 5.7 million
 
  While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 5. [drunk](https://www.instagram.com/drunk/)
 
  Followers - 5.6 million
@@ -209,14 +586,23 @@ Follow @Ollie Mattison
 
  Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
 
  Followers - 528 thousand
 
  Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
 
 ### 9. [funnymemes](https://www.instagram.com/funnymemes/)
@@ -225,6 +611,9 @@ Follow @Ollie Mattison
 
  Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
 
 ### 10. [swearcasm](https://www.instagram.com/swearcasm/)
@@ -249,254 +638,19 @@ Follow @Ollie Mattison
 
  Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
  There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
 
  These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Given how stressful life is these days, memes are a great way for us to feel confident and happy. When searching for great memes, don’t forget Instagram. It’s one of the places to [find entertaining memes](https://tools.techidaily.com/wondershare/filmora/download/). Here’s a look at the 10 best meme accounts on Instagram that you should follow so that you can get your daily dose of laughter.
-
-* [**Part 1: 10 best Instagram meme accounts**](#part1)
-* [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
-
-## Dank Memes Instagram Compilation
-
-## Part1: 10 best Instagram meme accounts
-
-### 1. [memes](https://www.instagram.com/memes/)
-
- Followers - 3 Million
-
- Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
-
-![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
-
-### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
-
- Followers - 5.3 Million
-
- 7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
-
-![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
-
-### 3. [memezar](https://www.instagram.com/memezar/)
-
- Followers – 5.4 Million
-
- Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
-
-![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
-
-### 4. [vines](https://www.instagram.com/vines/)
-
- Followers 5.7 million
-
- While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
-
-![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
-
-### 5. [drunk](https://www.instagram.com/drunk/)
-
- Followers - 5.6 million
-
- This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
-
-![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
-
-### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
-
- Followers - 13.9 million
-
- FuckJerry runs a website based on memes and the culture around them, and has also developed a very popular card game called “What Do You Meme?” based on the same premise as Cards Against Humanity. His meme site is one of the most popular that you will find on the web.
-
-![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
-
-### 7. [memerizey](https://www.instagram.com/memerizey/)
-
- Followers – 175 thousand
-
- Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
-
-![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
-
-### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
-
- Followers - 528 thousand
-
- Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
-
-![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
-
-### 9. [funnymemes](https://www.instagram.com/funnymemes/)
-
- Followers – 7.9 million
-
- Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
-
-![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
-
-### 10. [swearcasm](https://www.instagram.com/swearcasm/)
-
- Followers – 359 thousand
-
- According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
-
-![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
-
-## Part 2: Why Are Memes So Popular On Instagram, Anyway
-
- There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
-
- Here are two of the big reasons why they’ve become a popular form of communication.
-
-### 1\. Memes are Very Easy to Understand
-
- Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
-
-### 2\. We Like Sharing Memes
-
- Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
-
-## Conclusion
-
- There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
-
- These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Given how stressful life is these days, memes are a great way for us to feel confident and happy. When searching for great memes, don’t forget Instagram. It’s one of the places to [find entertaining memes](https://tools.techidaily.com/wondershare/filmora/download/). Here’s a look at the 10 best meme accounts on Instagram that you should follow so that you can get your daily dose of laughter.
-
-* [**Part 1: 10 best Instagram meme accounts**](#part1)
-* [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
-
-## Dank Memes Instagram Compilation
-
-## Part1: 10 best Instagram meme accounts
-
-### 1. [memes](https://www.instagram.com/memes/)
-
- Followers - 3 Million
-
- Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
-
-![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
-
-### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
-
- Followers - 5.3 Million
-
- 7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
-
-![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
-
-### 3. [memezar](https://www.instagram.com/memezar/)
-
- Followers – 5.4 Million
-
- Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
-
-![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
-
-### 4. [vines](https://www.instagram.com/vines/)
-
- Followers 5.7 million
-
- While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
-
-![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
-
-### 5. [drunk](https://www.instagram.com/drunk/)
-
- Followers - 5.6 million
-
- This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
-
-![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
-
-### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
-
- Followers - 13.9 million
-
- FuckJerry runs a website based on memes and the culture around them, and has also developed a very popular card game called “What Do You Meme?” based on the same premise as Cards Against Humanity. His meme site is one of the most popular that you will find on the web.
-
-![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
-
-### 7. [memerizey](https://www.instagram.com/memerizey/)
-
- Followers – 175 thousand
-
- Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
-
-![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
-
-### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
-
- Followers - 528 thousand
-
- Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
-
-![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
-
-### 9. [funnymemes](https://www.instagram.com/funnymemes/)
-
- Followers – 7.9 million
-
- Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
-
-![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
-
-### 10. [swearcasm](https://www.instagram.com/swearcasm/)
-
- Followers – 359 thousand
-
- According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
-
-![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
-
-## Part 2: Why Are Memes So Popular On Instagram, Anyway
-
- There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
-
- Here are two of the big reasons why they’ve become a popular form of communication.
-
-### 1\. Memes are Very Easy to Understand
-
- Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
-
-### 2\. We Like Sharing Memes
-
- Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
-
-## Conclusion
-
- There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
-
- These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -528,3 +682,57 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-focusing-on-content-reach-sharing-igtv-across-platforms/"><u>[New] 2024 Approved  Focusing on Content Reach  Sharing IGTV Across Platforms</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-hide-and-discover-instagram-stories-leaders/"><u>[New] 2024 Approved  Hide & Discover  Instagram Stories Leaders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagram-video-descriptions-the-key-to-threefold-success/"><u>[New] 2024 Approved  Instagram Video Descriptions - The Key to Threefold Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-learn-to-edit-the-ultimate-guide-for-igtv-titles/"><u>[New] 2024 Approved  Learn to Edit  The Ultimate Guide for IGTV Titles</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-masterful-media-management-dynamic-video-scaling-on-mac/"><u>[New] 2024 Approved  Masterful Media Management  Dynamic Video Scaling on Mac</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-obs-rescue-cameras-are-back-up/"><u>[New] 2024 Approved  OBS Rescue  Cameras Are Back Up</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-pave-your-path-to-popularity-secure-1000-fansmonth-on-instagram/"><u>[New] 2024 Approved  Pave Your Path to Popularity  Secure 1,000 Fans/Month on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-hide-and-seek-top-5-for-secret-story-lovers-for-2024/"><u>[New] Hide & Seek  Top 5 For Secret Story Lovers for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-ideas-in-images-top-20-photos-to-fire-up-creativity-for-2024/"><u>[New] Ideas in Images  Top 20 Photos to Fire Up Creativity for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-igtv-saved-iosandroid-techniques-and-tricks-for-2024/"><u>[New] IGTV Saved  IOS/Android Techniques and Tricks for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-elevate-your-content-game-mastering-the-art-of-instagram-video-uploads-on-desktop/"><u>[New] In 2024, Elevate Your Content Game  Mastering the Art of Instagram Video Uploads on Desktop</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-engaging-audiences-the-path-to-instagram-video-fame/"><u>[New] In 2024, Engaging Audiences  The Path to Instagram Video Fame</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-engaging-eyes-most-favored-insta-filters/"><u>[New] In 2024, Engaging Eyes  Most Favored Insta Filters</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-expert-tips-for-crafting-engaging-instagram-stories/"><u>[New] In 2024, Expert Tips for Crafting Engaging Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-final-cuts-vertical-voyage-editing-for-the-modern-instagram-reader/"><u>[New] In 2024, Final Cut's Vertical Voyage  Editing for the Modern Instagram Reader</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-make-your-instagram-pop-with-sharing-gifs-in-4-easy-steps/"><u>[New] In 2024, How to Make Your Instagram Pop with Sharing GIFs in 4 Easy Steps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-use-the-instagram-question-sticker-the-way-you-may-miss/"><u>[New] In 2024, How to Use the Instagram Question Sticker [The Way You May Miss]</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-reels-unlocking-the-ninja-mindset/"><u>[New] In 2024, Instagram Reels  Unlocking the Ninja Mindset</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-keep-it-lighthearted-a-straightforward-guide-to-posting-gifs-on-instagram/"><u>[New] In 2024, Keep It Lighthearted  A Straightforward Guide to Posting GIFs on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-leveraging-instagram-stories-with-ease-and-flair/"><u>[New] In 2024, Leveraging Instagram Stories with Ease and Flair</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-optimize-your-instagram-posts-the-ultimate-guide-for-video-spinning/"><u>[New] In 2024, Optimize Your Instagram Posts  The Ultimate Guide for Video Spinning</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-leveraging-highlights-proven-techniques-for-business-engagement-for-2024/"><u>[New] Leveraging Highlights  Proven Techniques for Business Engagement for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-beyond-ustream-live-streaming-choices/"><u>[Updated] 2024 Approved  Beyond Ustream  Live Streaming Choices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-focus-on-yourself-insta-stylezoom-techniques-explained/"><u>[Updated] 2024 Approved  Focus on Yourself  Insta Style—Zoom Techniques Explained</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-from-zero-to-hero-on-twitter-live/"><u>[Updated] 2024 Approved  From Zero to Hero on Twitter Live</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-guide-to-revamping-igtv-title-and-description-texts/"><u>[Updated] 2024 Approved  Guide to Revamping IGTV Title & Description Texts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-insta-velocity-strategic-use-of-likes-and-videos-for-growth/"><u>[Updated] 2024 Approved  Insta Velocity  Strategic Use of Likes & Videos for Growth</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-leading-social-media-hash-tracking-software-for-fb-tweet-and-insta/"><u>[Updated] 2024 Approved  Leading Social Media Hash Tracking Software for FB, Tweet & Insta</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mastering-instagram-media-the-finest-downloading-options/"><u>[Updated] 2024 Approved  Mastering Instagram Media  The Finest Downloading Options</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mastering-the-use-of-custom-gifs-in-your-instagram-stories/"><u>[Updated] 2024 Approved  Mastering the Use of Custom GIFs in Your Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-diy-ig-videos-tips-and-template-inspirations-for-2024/"><u>[Updated] DIY IG Videos  Tips & Template Inspirations for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-boring-to-breathtaking-insta-video-tips-for-2024/"><u>[Updated] From Boring to Breathtaking  Insta Video Tips for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-followers-to-brand-ambassadors-the-five-pillars-of-influencer-success-for-2024/"><u>[Updated] From Followers to Brand Ambassadors  The Five Pillars of Influencer Success for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-add-instagram-filter-to-existing-photos-and-videos-for-2024/"><u>[Updated] How to Add Instagram Filter to Existing Photos and Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-iconic-instagram-aesthetics-compilation-for-2024/"><u>[Updated] Iconic Instagram Aesthetics Compilation for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elevating-visual-storytelling-expert-techniques-for-instagram-video-edits/"><u>[Updated] In 2024, Elevating Visual Storytelling  Expert Techniques for Instagram Video Edits</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-expert-tips-for-shifting-gender-identity-in-digital-imagery/"><u>[Updated] In 2024, Expert Tips for Shifting Gender Identity in Digital Imagery</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-from-zero-to-hero-on-instagram-6-strategies-that-lead-to-verified-status/"><u>[Updated] In 2024, From Zero to Hero on Instagram  6 Strategies That Lead to Verified Status</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-making-your-instagram-story-pop-with-youtube-vids/"><u>[Updated] In 2024, Making Your Instagram Story Pop with YouTube Vids</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-the-underestimated-aspects-of-instagram/"><u>[Updated] In 2024, Mastering the Underestimated Aspects of Instagram</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-pixel-perfection-your-guide-to-youtube-twitters-and-hd-for-2024/"><u>[Updated] Pixel Perfection  Your Guide to YouTube, Twitters, and HD for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-capture-to-share-proven-methods-for-live-360-video-on-youtube/"><u>From Capture to Share  Proven Methods for Live 360° Video on Youtube</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-simplified-methods-for-google-meet-recordings/"><u>In 2024, Simplified Methods for Google Meet Recordings</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-spotlight-podcast-in-one-ig-swipe/"><u>In 2024, Spotlight Podcast in One IG Swipe</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/perfect-pitch-in-words-crafting-captivating-podcast-episodes-for-2024/"><u>Perfect Pitch in Words  Crafting Captivating Podcast Episodes for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-realme-12-pro-5g-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Realme 12 Pro 5G</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-step-by-step-guide-to-audio-keyframing-with-adobe-premiere-pro-on-apple-devices-2023-edition/"><u>Updated 2024 Approved Step-by-Step Guide to Audio Keyframing with Adobe Premiere Pro on Apple Devices, 2023 Edition</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-uncovered-top-mac-speech-to-text-apps-you-never-knew-existed-free-and-no-install-required/"><u>Updated 2024 Approved Uncovered Top Mac Speech-to-Text Apps You Never Knew Existed (Free & No Install Required)</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updatedhow-to-make-a-valentines-day-video-for-the-person-you-love-for-2024/"><u>UpdatedHow to Make a Valentines Day Video for the Person You Love for 2024</u></a></li>
+</ul></div>

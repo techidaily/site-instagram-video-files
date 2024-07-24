@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking the Secrets  The Ultimate Guide to Instagram Stories Mastery\""
-date: 2024-05-21T13:37:28.322Z
-updated: 2024-05-22T13:37:28.322Z
+date: 2024-07-23T13:48:33.233Z
+updated: 2024-07-24T13:48:33.233Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Unlocking the Secrets: The Ultimate Guide to Instagram Stories Mastery\""
 excerpt: "\"This Article Describes 2024 Approved: Unlocking the Secrets: The Ultimate Guide to Instagram Stories Mastery\""
 keywords: "InstaStory Skills Guide,Mastery in InstaStories,InstaStories Tips,Storytelling on Instagram,Stories Strategy for IG,Mastering Instagram Stories,Ultimate IG Stories Techniques"
-thumbnail: https://www.lifewire.com/thmb/tclvUc96-Ait5kPqxaZfBNJHuEo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-choose-your-ideal-phonecase-ca91460721b143b0b0ae61b5baf11b3c.jpg
+thumbnail: https://thmb.techidaily.com/017337439b4f792b0246468061b8e1aa8f8f36d01cdf2619fb3c06685fc0972f.jpg
 ---
 
 ## Unlocking the Secrets: The Ultimate Guide to Instagram Stories Mastery
@@ -64,6 +64,9 @@ Note: By default the 'Normal' mode is ready to capture your subject. We bring yo
 
 After launching the Instagram Camera, you need to choose the following camera options as you desire –
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-3.jpg)
 
 Image resource: Ryan Bilello
@@ -94,14 +97,23 @@ So, you have tried all the options with Instagram camera? Let's go through 'Hand
 
 After you have captured the video using any of the above lenses, you can share them as your Insta Story. We are sure that you have enjoyed reading about these cool camera lenses. It's time to go out and check how to use them for Instagram Stories. So, get ready with your smartphone and start capturing. Click! Click! Click!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Tips and Tricks
 
 Now that you have an idea about all the filters and lenses of Instagram, we thought of introducing you to some cool add-ons for your captivating Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-4.jpg)
 
 Image resource: Ryan Bilello
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use Stickers
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
@@ -126,12 +138,18 @@ Now that you have used funny stickers to make your picture (for Insta Story) att
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Add color overlays
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
@@ -243,8 +261,20 @@ Now that you have an idea about all the filters and lenses of Instagram, we thou
 
 Image resource: Ryan Bilello
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### Use Stickers
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
@@ -259,16 +289,33 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### Use your pen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Add text
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
@@ -295,6 +342,9 @@ If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfec
 
 With this complete guide for Instagram Stories, we are hopeful that you are going to be a pro in how to use Instagram Stories. Bring out that creative soul in you and explore the world of Insta Stories with these amazingly cool features. Keep telling your stories through your camera lens (the Instagram one!).
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -324,6 +374,9 @@ First of all, update your Instagram app and then launch it. Now, you can make yo
 * a. Tap on the camera icon at the top-left corner on your Instagram screen.
 * b. Click your profile picture with a '+' sign from the 'Stories' section (it's found just below the camera icon).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-1.jpg)
 
 * c. You can swipe right on the screen (to launch the Instagram Camera there).
@@ -346,6 +399,10 @@ Note: By default the 'Normal' mode is ready to capture your subject. We bring yo
 
 After launching the Instagram Camera, you need to choose the following camera options as you desire –
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-3.jpg)
 
 Image resource: Ryan Bilello
@@ -380,12 +437,22 @@ After you have captured the video using any of the above lenses, you can share t
 
 Now that you have an idea about all the filters and lenses of Instagram, we thought of introducing you to some cool add-ons for your captivating Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-4.jpg)
 
 Image resource: Ryan Bilello
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Use Stickers
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
@@ -400,14 +467,23 @@ You can add 'Polls', 'Location', and 'Hashtags' to your Insta Stories by tapping
 
 To turn your own face into a sticker, you can tap the camera icon under the 'Stickers' section and take a selfie. Then tap on the selfie to pin it as a sticker on your picture or video, and then share as your Instagram Story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ### Use your pen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 Now that you have used funny stickers to make your picture (for Insta Story) attractive, how about adding a cute personal note as well? Well, you can do that by tapping on the pen icon right next to 'Stickers'. Select the desired pen type (highlighter, airbrush, eraser, etc.) from the top and then color from the bottom of the screen. You can adjust the pen size using the slider found at the left side. After writing or doodling on the image, tap on the tick mark at the top right corner and you are good to go.
 
 Whoa! You are becoming a sport at how to use Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### Add text
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
@@ -416,6 +492,9 @@ You can also add text to make your Instagram Stories more attractive. Tap on the
 
 ### Add color overlays
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-pen.jpg)
 
 Adorn your creative hat and weave some magic into the Insta Stories now. For adding color overlays to your Insta Story image or video you need to use the 'Pen' tool here and choose a color. Now, click anywhere on the screen and hold for a moment until the entire screen is covered with that color. After that tap on the 'Eraser' tool and uncover specific portions of the picture or video to create interesting Instagram Stories.
@@ -428,6 +507,9 @@ First add a video or picture and then click on the paperclip icon from the top r
 
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Add music
 
 If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfect Insta Story video, why don't you try adding your favorite music to it? First of all play an audio using the inbuilt player in your phone (you can stream online as well) and then move to Instagram and tap the camera icon to shoot the video. When your recording is complete, you can share this video along with your favorite track as your Instagram Story. Take care that the music icon is not muted ('X' mark over it).
@@ -436,6 +518,9 @@ If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfec
 
 With this complete guide for Instagram Stories, we are hopeful that you are going to be a pro in how to use Instagram Stories. Bring out that creative soul in you and explore the world of Insta Stories with these amazingly cool features. Keep telling your stories through your camera lens (the Instagram one!).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -450,6 +535,9 @@ Follow @Shanoon Cox
 
 There's no rocket science behind efficiently using Instagram Stories. In fact, most of us capture what we ate, where we went, whom we met, and what was remarkable – these feed our Instagram Stories. Instagram Stories last for 24 hours, and let you have a glance of the exciting things in people's lives within few seconds. You might be using Instagram but there is a lot to explore inside the app. You can transform your regular photos and video posts in an innovative and enchanting way using the latest features. Let's get through this detailed guide to understand how to use Instagram Stories efficiently.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to use Instagram Stories?
 
 Before you use Instagram Stories, it is important to know how to create these stories. There are number of features and filters in Instagram, but you achieve the best out of them once you learn their nuances.
@@ -465,6 +553,9 @@ First of all, update your Instagram app and then launch it. Now, you can make yo
 * a. Tap on the camera icon at the top-left corner on your Instagram screen.
 * b. Click your profile picture with a '+' sign from the 'Stories' section (it's found just below the camera icon).
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-1.jpg)
 
 * c. You can swipe right on the screen (to launch the Instagram Camera there).
@@ -487,6 +578,9 @@ Note: By default the 'Normal' mode is ready to capture your subject. We bring yo
 
 After launching the Instagram Camera, you need to choose the following camera options as you desire –
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-3.jpg)
 
 Image resource: Ryan Bilello
@@ -521,12 +615,21 @@ After you have captured the video using any of the above lenses, you can share t
 
 Now that you have an idea about all the filters and lenses of Instagram, we thought of introducing you to some cool add-ons for your captivating Instagram Stories.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-insta-stories-4.jpg)
 
 Image resource: Ryan Bilello
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ### Use Stickers
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-stickers.jpg)
 
 Using 'Stickers' with your video or images you can spice up your Insta Stories. To use these stickers, first open Instagram, and then capture a video/picture or select one from your gallery. Now, tap on the smiley icon at the top right corner of the picture or video. You will see lot of options under it. Select any of them and then pin it to your picture/video to share. You can resize the 'Stickers' by pinching (to zoom in and out) them.
@@ -551,6 +654,9 @@ Whoa! You are becoming a sport at how to use Instagram Stories.
 
 ### Add text
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-instagram.jpg)
 
 You can also add text to make your Instagram Stories more attractive. Tap on the 'Aa' icon on the extreme right corner of your screen (in Instagram camera) and start typing. You can change the font style by tapping the style available on top of the screen, as well as select the color of the 'Text'. You can also tag people in 'Text' by typing '@' and then the handle name of the person, then click on their image.
@@ -569,6 +675,9 @@ First add a video or picture and then click on the paperclip icon from the top r
 
 **You May Also Like:** [How to Post a Link to Instagram Stories and Posts](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Add music
 
 If adding 'Stickers', 'Text', and choosing filters aren't enough for your perfect Insta Story video, why don't you try adding your favorite music to it? First of all play an audio using the inbuilt player in your phone (you can stream online as well) and then move to Instagram and tap the camera icon to shoot the video. When your recording is complete, you can share this video along with your favorite track as your Instagram Story. Take care that the music icon is not muted ('X' mark over it).
@@ -608,3 +717,50 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-influence-unleashed-instas-most-stellar-personalities-ranked/"><u>[New] 2024 Approved  Influence Unleashed  Insta’s Most Stellar Personalities Ranked</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-perfecting-the-art-of-borders-in-instagram-photos/"><u>[New] 2024 Approved  Perfecting the Art of Borders in Instagram Photos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-how-to-get-instagram-sponsorship-for-making-money-for-2024/"><u>[New] How to Get Instagram Sponsorship for Making Money for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-insights-into-instagrams-selfie-verification/"><u>[New] In 2024, Insights Into Instagram's Selfie Verification</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagrams-video-length-limit-a-compre-written-for-you/"><u>[New] In 2024, Instagram’s Video Length Limit - A Compre Written for You</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-mastering-metrics-top-10-instagram-tags-right-now/"><u>[New] In 2024, Mastering Metrics  Top 10 Instagram Tags Right Now</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-maximize-impact-mastering-igtv-content-submission/"><u>[New] In 2024, Maximize Impact  Mastering IGTV Content Submission</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-merging-worlds-youtube-in-instagram-narrative-art/"><u>[New] In 2024, Merging Worlds  YouTube in Instagram Narrative Art</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-navigating-instagrams-video-limit-regulations/"><u>[New] In 2024, Navigating Instagram's Video Limit Regulations</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-searching-skills-unlock-additional-free-filters-for-2024/"><u>[New] Instagram Searching Skills – Unlock Additional Free Filters for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-navigating-the-world-of-insta-influencers-5-pivotal-moves-and-results-for-2024/"><u>[New] Navigating the World of Insta Influencers  5 Pivotal Moves and Results for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-optimizing-your-video-images-for-instagram-highlights-for-2024/"><u>[New] Optimizing Your Video Images for Instagram Highlights for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premier-list-photos-with-perfect-beats-recorders/"><u>[New] Premier List  Photos with Perfect Beats Recorders</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-full-vision-media-the-smart-mcn-selection-process/"><u>[Updated] 2024 Approved  Full Vision Media  The Smart MCN Selection Process</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-how-to-convert-your-instagram-followers-into-earnings/"><u>[Updated] 2024 Approved  How to Convert Your Instagram Followers Into Earnings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-how-to-duplicate-your-instagram-posts/"><u>[Updated] 2024 Approved  How to Duplicate Your Instagram Posts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-how-to-layer-melodies-into-instagram-media-content/"><u>[Updated] 2024 Approved  How to Layer Melodies Into Instagram Media Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-keeping-your-virtual-circle-true-not-tainted-by-tricks/"><u>[Updated] 2024 Approved  Keeping Your Virtual Circle True, Not Tainted by Tricks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-latest-instagram-photo-and-video-size-checklist/"><u>[Updated] 2024 Approved  Latest Instagram Photo and Video Size Checklist</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mac-techniques-for-instagram-short-form-videos/"><u>[Updated] 2024 Approved  Mac Techniques for Instagram Short-Form Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-navigating-content-savings-top-5-techniques-to-download-igtv-videos/"><u>[Updated] 2024 Approved  Navigating Content Savings  Top 5 Techniques to Download IGTV Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-navigating-rights-in-instagram-songs/"><u>[Updated] 2024 Approved  Navigating Rights in Instagram Songs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-navigating-the-pathway-ios-tips-for-instagram-content/"><u>[Updated] 2024 Approved  Navigating the Pathway  IOS Tips for Instagram Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-practical-ways-to-preserve-your-instagram-stories/"><u>[Updated] 2024 Approved  Practical Ways to Preserve Your Instagram Stories</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-revel-in-the-best-virtual-playgrounds/"><u>[Updated] 2024 Approved  Revel in the Best Virtual Playgrounds</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-insights-adjusting-tempo-for-optimal-snapchat-viewing/"><u>[Updated] Expert Insights  Adjusting Tempo for Optimal Snapchat Viewing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-igtvs-top-picks-for-next-weeks-feed-for-2024/"><u>[Updated] IGTV's Top Picks for Next Week's Feed for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-how-to-create-a-square-video-for-instragram-in-imovie/"><u>[Updated] In 2024, How to Create a Square Video for Instragram in iMovie?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-improve-instagram-video-loading-times-effectively/"><u>[Updated] In 2024, Improve Instagram Video Loading Times Effectively</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-economics-a-detailed-blueprint-for-profit/"><u>[Updated] In 2024, Instagram Economics  A Detailed Blueprint for Profit</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagrams-sequential-visual-showcase/"><u>[Updated] In 2024, Instagram's Sequential Visual Showcase</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-key-metrics-to-track-igtv-video-analytics/"><u>[Updated] In 2024, Key Metrics to Track  IGTV Video Analytics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-maintaining-your-instagram-circle-health/"><u>[Updated] In 2024, Maintaining Your Instagram Circle Health</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-multimedia-content-putting-photos-together-on-insta-story/"><u>[Updated] In 2024, Mastering Multimedia Content  Putting Photos Together on Insta Story</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-incorporate-live-captions-seamlessly-into-stories-for-2024/"><u>[Updated] Incorporate Live Captions Seamlessly Into Stories for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-video-size-for-standout-instagram-content-for-2024/"><u>[Updated] Mastering Video Size for Standout Instagram Content for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mastering-the-art-of-tiktok-intros-on-mac-devices/"><u>2024 Approved  Mastering the Art of TikTok Intros on Mac Devices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-vivo-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Vivo</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-blur-the-borders-enhancing-your-videos-appeal-on-yt/"><u>In 2024, Blur the Borders  Enhancing Your Video's Appeal on YT</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-from-coded-channels-to-audible-sounds-ten-futuristic-routes-to-extracting-mp4-audio/"><u>In 2024, From Coded Channels to Audible Sounds Ten Futuristic Routes to Extracting MP4 Audio</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-demystifying-hd-video-pixel-size-a-simple-explanation/"><u>Updated 2024 Approved Demystifying HD Video Pixel Size A Simple Explanation</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-ultimate-guide-to-green-screen-software-for-mac-users/"><u>Updated In 2024, The Ultimate Guide to Green Screen Software for Mac Users</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-vertical-video-mastery-top-editing-apps-for-iphone-and-android/"><u>Updated In 2024, Vertical Video Mastery Top Editing Apps for iPhone and Android</u></a></li>
+</ul></div>

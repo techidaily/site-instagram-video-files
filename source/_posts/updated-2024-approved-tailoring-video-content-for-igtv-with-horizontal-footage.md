@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tailoring Video Content for IGTV with Horizontal Footage\""
-date: 2024-05-21T15:09:25.419Z
-updated: 2024-05-22T15:09:25.419Z
+date: 2024-07-23T18:13:06.995Z
+updated: 2024-07-24T18:13:06.995Z
 tags:
   - ai video
   - ai instagram
@@ -19,6 +19,9 @@ thumbnail: https://www.lifewire.com/thmb/TIhbojtPiLWxPexEUegjc5UUv38=/400x300/fi
 
 # How to Upload Horizontal Videos to IGTV
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -46,6 +49,9 @@ Even though you can now share videos that last up to ten minutes or an entire ho
 
 If you already have an Instagram account, you can upload your videos to IGTV directly from your computer. All you have to do is head over to **Instagram.com** and then click on the **IGTV icon** on your profile page. This means that you can use Mac and PC-based video editing software products to edit your videos before you share them on IGTV.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### Using Filmora Video Editor to Edit IGTV Videos
 
 If you decide to edit the videos you want to upload to IGTV on a Mac or a PC computer, then we suggest using the Filmora video editor, because it offers all the tools you’re going to need to create a landscape video you can share on your IGTV channel.
@@ -68,6 +74,9 @@ Optionally, you can **take a snapshot of your video** by clicking on the **Photo
 
 Once your video is exported from Filmora, you should go to Instagram.com, click on the IGTV icon on your profile page and upload the horizontal video to your IGTV channel.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Using the Instagram App to Upload Horizontal Videos to IGTV from Smartphones
 
 In case you’d just like to post a video to your IGTV channel, you can use the Instagram app to quickly create a horizontally oriented video. **The stories editor** enables you to accomplish this, but you should keep in mind that this solution only works if the duration of a video doesn’t exceed the **15-second limit**.
@@ -90,6 +99,9 @@ The app will then take you to the **Project Settings** window and you should jus
 
 None of the options for creating vertical videos for IGTV are perfect because each of them leaves portions of the frame empty. Basically, you will be creating a vertically oriented frame with a 9:16 aspect ratio, that contains a centrally positioned and horizontally oriented video. This is only a good option if the video you want to upload to IGTV doesn’t make any sense when it is vertically oriented, which can be the case more often than you’d expect. Which method of creating landscape videos for IGTV do you like to use the most? Leave a comment below and let us know.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -129,6 +141,9 @@ If you decide to edit the videos you want to upload to IGTV on a Mac or a PC com
 
 Check out our video guide about how to edit videos for Instagram.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here is the process in word format in case you don't have time to check the video.
@@ -145,6 +160,9 @@ Optionally, you can **take a snapshot of your video** by clicking on the **Photo
 
 Once your video is exported from Filmora, you should go to Instagram.com, click on the IGTV icon on your profile page and upload the horizontal video to your IGTV channel.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Using the Instagram App to Upload Horizontal Videos to IGTV from Smartphones
 
 In case you’d just like to post a video to your IGTV channel, you can use the Instagram app to quickly create a horizontally oriented video. **The stories editor** enables you to accomplish this, but you should keep in mind that this solution only works if the duration of a video doesn’t exceed the **15-second limit**.
@@ -167,6 +185,9 @@ The app will then take you to the **Project Settings** window and you should jus
 
 None of the options for creating vertical videos for IGTV are perfect because each of them leaves portions of the frame empty. Basically, you will be creating a vertically oriented frame with a 9:16 aspect ratio, that contains a centrally positioned and horizontally oriented video. This is only a good option if the video you want to upload to IGTV doesn’t make any sense when it is vertically oriented, which can be the case more often than you’d expect. Which method of creating landscape videos for IGTV do you like to use the most? Leave a comment below and let us know.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -194,8 +215,14 @@ Even though you can now share videos that last up to ten minutes or an entire ho
 [What is IGTV and How to Use It: Everything You Need to Know>>](https://tools.techidaily.com/wondershare/filmora/download/)
 [How to Download/Save Instagram Photos/Videos on iPhone>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Save Instagram photos/videos on iPhone
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Upload a Landscape Video to IGTV from a Mac or a PC computer?
 
 If you already have an Instagram account, you can upload your videos to IGTV directly from your computer. All you have to do is head over to **Instagram.com** and then click on the **IGTV icon** on your profile page. This means that you can use Mac and PC-based video editing software products to edit your videos before you share them on IGTV.
@@ -232,6 +259,9 @@ After you’ve selected the video you’ll be able to see **two arrows on the sc
 
 Tap on the **Save icon** to confirm the changes and proceed to upload the video to your IGTV channel.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## Creating a Horizontal Video from a Mobile Device with GoPro Splice
 
 iPhone users can easily create landscape videos for their IGTV channels with GoPro’s [Splice](https://itunes.apple.com/us/app/splice-video-editor-maker/id409838725?mt=8) app. You can **download the app for free from the App Store** and you won’t have to make any in-app purchases after you install Splice on your device.
@@ -261,6 +291,9 @@ Vertically oriented videos were never a part of a filmmaker’s dictionary, befo
 * [IGTV Video Specs You Should Know Before Uploading a Video to Your Channel](#part1)
 * [How to Upload a Landscape Video to IGTV from a Mac or a PC computer?](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## IGTV Video Specs You Should Know Before Uploading a Video to Your Channel
 
 Instagram is famous for severely limiting the options its users have at their disposal because it only allowed them to post square-shaped photos for years. IGTV seems to be following the same pattern, not only because you can’t upload horizontally oriented videos, but also because your videos must be in **MP4 format**. Yes, that’s right, the platform currently doesn’t support any other video file format.
@@ -271,12 +304,19 @@ Even though you can now share videos that last up to ten minutes or an entire ho
 [What is IGTV and How to Use It: Everything You Need to Know>>](https://tools.techidaily.com/wondershare/filmora/download/)
 [How to Download/Save Instagram Photos/Videos on iPhone>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Save Instagram photos/videos on iPhone
 
 ## How to Upload a Landscape Video to IGTV from a Mac or a PC computer?
 
 If you already have an Instagram account, you can upload your videos to IGTV directly from your computer. All you have to do is head over to **Instagram.com** and then click on the **IGTV icon** on your profile page. This means that you can use Mac and PC-based video editing software products to edit your videos before you share them on IGTV.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Using Filmora Video Editor to Edit IGTV Videos
 
 If you decide to edit the videos you want to upload to IGTV on a Mac or a PC computer, then we suggest using the Filmora video editor, because it offers all the tools you’re going to need to create a landscape video you can share on your IGTV channel.
@@ -299,6 +339,9 @@ Optionally, you can **take a snapshot of your video** by clicking on the **Photo
 
 Once your video is exported from Filmora, you should go to Instagram.com, click on the IGTV icon on your profile page and upload the horizontal video to your IGTV channel.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Using the Instagram App to Upload Horizontal Videos to IGTV from Smartphones
 
 In case you’d just like to post a video to your IGTV channel, you can use the Instagram app to quickly create a horizontally oriented video. **The stories editor** enables you to accomplish this, but you should keep in mind that this solution only works if the duration of a video doesn’t exceed the **15-second limit**.
@@ -309,6 +352,9 @@ After you’ve selected the video you’ll be able to see **two arrows on the sc
 
 Tap on the **Save icon** to confirm the changes and proceed to upload the video to your IGTV channel.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Creating a Horizontal Video from a Mobile Device with GoPro Splice
 
 iPhone users can easily create landscape videos for their IGTV channels with GoPro’s [Splice](https://itunes.apple.com/us/app/splice-video-editor-maker/id409838725?mt=8) app. You can **download the app for free from the App Store** and you won’t have to make any in-app purchases after you install Splice on your device.
@@ -352,3 +398,46 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-elevating-your-cinematic-expedition-through-border-techniques/"><u>[New] 2024 Approved  Elevating Your Cinematic Expedition Through Border Techniques</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-epicmosaic-insta-video-fusion-for-iosandroid/"><u>[New] 2024 Approved  EpicMosaic  Insta Video Fusion for iOS/Android</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-guides-for-gathering-live-video-conversations/"><u>[New] 2024 Approved  Guides for Gathering Live Video Conversations</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-how-to-create-impressive-slow-motion-content-a-step-by-step-instagram-reel-masterclass/"><u>[New] 2024 Approved  How to Create Impressive Slow Motion Content  A Step by Step Instagram Reel Masterclass</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-igtv-video-sharing-to-facebook-explained-in-3-ways/"><u>[New] 2024 Approved  IGTV Video Sharing to Facebook Explained in 3 Ways</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-insider-secrets-mastering-unseen-social-media-features/"><u>[New] 2024 Approved  Insider Secrets  Mastering Unseen Social Media Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-elevating-your-instagram-experience-through-smart-archiving-for-2024/"><u>[New] Elevating Your Instagram Experience Through Smart Archiving for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-explore-the-power-of-repeated-imagery-in-your-instagram-content-for-2024/"><u>[New] Explore the Power of Repeated Imagery in Your Instagram Content for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-effortlessly-excel-at-creating-instagram-reels/"><u>[New] In 2024, Effortlessly Excel at Creating Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-essential-igtv-feeds-for-modern-viewers/"><u>[New] In 2024, Essential IGTV Feeds for Modern Viewers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-explore-and-apply-instagrams-latest-filters-for-stunning-feeds/"><u>[New] In 2024, Explore and Apply Instagram's Latest Filters for Stunning Feeds</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-fast-and-furious-how-to-turbocharge-instagram-videos/"><u>[New] In 2024, Fast and Furious  How to Turbocharge Instagram Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-from-social-media-savant-to-money-maker-on-instagram/"><u>[New] In 2024, From Social Media Savant to Money Maker on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-add-good-bokeh-effects-in-instagram-stories/"><u>[New] In 2024, How to Add Good Bokeh Effects in Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-film-techniques-flawless-virtual-backdrops-integration/"><u>[New] In 2024, Instagram Film Techniques  Flawless Virtual Backdrops Integration</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-depth-analysis-of-altering-facial-gender-on-social-platforms-for-2024/"><u>[New] In-Depth Analysis of Altering Facial Gender on Social Platforms for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ey-points-in-youtube-monetization-overhaul-for-2024/"><u>[New] Key Points in YouTube Monetization Overhaul for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-expert-guide-to-overcoming-instagrams-video-obstacles/"><u>[Updated] 2024 Approved  Expert Guide to Overcoming Instagram's Video Obstacles</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-explore-these-6-powerful-instagram-reel-tools/"><u>[Updated] 2024 Approved  Explore These 6 Powerful Instagram Reel Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-expressive-poetry-in-images-and-text-top-100-instagramcaptions/"><u>[Updated] 2024 Approved  Expressive Poetry in Images and Text - Top 100 #InstagramCaptions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-how-to-watermark-instagram-photos/"><u>[Updated] 2024 Approved  How to Watermark Instagram Photos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-insights-pro-tips-for-downloading-igtv-videos-on-computers/"><u>[Updated] 2024 Approved  Instagram Insights  Pro Tips for Downloading IGTV Videos on Computers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-engagement-the-list-of-todays-hot-instagram-hashtags/"><u>[Updated] Elevate Engagement  The List of Today's Hot Instagram Hashtags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-elevating-your-instagram-highlights-with-exquisite-photography-for-2024/"><u>[Updated] Elevating Your Instagram Highlights with Exquisite Photography for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-endless-memories-free-saving-on-instagram-stories-for-2024/"><u>[Updated] Endless Memories  FREE Saving on Instagram Stories for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-essential-steps-for-resizing-videos-in-igtv-for-2024/"><u>[Updated] Essential Steps for Resizing Videos in IGTV for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-excellent-apps-for-streamlined-igtv-vertical-cuts-for-2024/"><u>[Updated] Excellent Apps for Streamlined IGTV Vertical Cuts for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-create-insta-highlight-cover-photos-a-complete-guide-for-2024/"><u>[Updated] How to Create Insta Highlight Cover Photos  A Complete Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-upload-a-video-to-instagram-from-a-desktop-for-2024/"><u>[Updated] How to Upload a Video to Instagram From a Desktop for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-8-free-instagram-story-savers-save-instagram-stories-without-limits/"><u>[Updated] In 2024, 8 Free Instagram Story Savers-Save Instagram Stories without Limits</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-designing-engaging-instagram-feature-film-posts/"><u>[Updated] In 2024, Designing Engaging Instagram Feature Film Posts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-driving-engagement-on-instagram-a-step-by-step-guide/"><u>[Updated] In 2024, Driving Engagement on Instagram  A Step-by-Step Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-innovative-ideas-to-make-money-from-your-snapchat-community/"><u>[Updated] In 2024, Innovative Ideas to Make Money From Your Snapchat Community</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-shedding-light-techniques-for-improving-youtube-video-quality/"><u>2024 Approved  Shedding Light  Techniques for Improving YouTube Video Quality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-methods-to-reduce-youtube-video-size-for-2024/"><u>Cutting-Edge Methods to Reduce YouTube Video Size for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/elevate-your-zoom-sessions-utilizing-filters-effectively/"><u>Elevate Your Zoom Sessions  Utilizing Filters Effectively</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Motorola Moto G Stylus (2023)? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/unlock-smooth-conversions-top-10-free-4k-video-converters-for-2024/"><u>Unlock Smooth Conversions Top 10 Free 4K Video Converters for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-edit-like-a-pro-the-ultimate-free-guide-to-gopro-video-editing/"><u>Updated 2024 Approved Edit Like a Pro The Ultimate Free Guide to GoPro Video Editing</u></a></li>
+</ul></div>

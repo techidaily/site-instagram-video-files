@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Go Live on Instagram"
-date: 2024-06-10T08:05:32.996Z
-updated: 2024-06-11T08:05:32.996Z
+date: 2024-07-23T16:22:13.080Z
+updated: 2024-07-24T16:22:13.080Z
 tags:
   - ai video
   - ai instagram
@@ -19,6 +19,23 @@ thumbnail: https://thmb.techidaily.com/ce4adb63fa2c2ea65274491b10b565805f9f069cb
 
 # How to Go Live on Instagram
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -31,16 +48,25 @@ On Instagram live streaming is given the top spot in terms of billing; it appear
 * [How to make good use of Instagram live video for business](#part2)
 * [Eleven Live video tips](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Go Live on Instagram - Step by step
 
 If you're in the market to find out how to start a live video on Instagram, this step by step guide will get you Instagram live streaming in no time. Check out our three key steps for how to start a live video on Instagram and have a go at your first stream too.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 1: Start Instagram live streaming
 
 You might think it's obvious how to go live on Instagram, but it's actually not as straightforward as you might think. To start an Instagram broadcast you need to begin by tapping on the 'Your Story' photo at the top of the menu. You'll see a little plus sign next to it in blue. If you've been scrolling through your feed then this bar may have disappeared, in which case you'll need to tap the camera button at the top left to bring it back again.
 
 Now you should be in your story menu, which will let you choose one of three available options.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/go-live-on-insta.jpg)
 
 * **Live:** This is Instagram live streaming, which disappears instantly once the broadcast is complete.
@@ -135,6 +161,121 @@ On Instagram live streaming is given the top spot in terms of billing; it appear
 
 If you're in the market to find out how to start a live video on Instagram, this step by step guide will get you Instagram live streaming in no time. Check out our three key steps for how to start a live video on Instagram and have a go at your first stream too.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 1: Start Instagram live streaming
+
+You might think it's obvious how to go live on Instagram, but it's actually not as straightforward as you might think. To start an Instagram broadcast you need to begin by tapping on the 'Your Story' photo at the top of the menu. You'll see a little plus sign next to it in blue. If you've been scrolling through your feed then this bar may have disappeared, in which case you'll need to tap the camera button at the top left to bring it back again.
+
+Now you should be in your story menu, which will let you choose one of three available options.
+
+![](https://images.wondershare.com/filmora/article-images/go-live-on-insta.jpg)
+
+* **Live:** This is Instagram live streaming, which disappears instantly once the broadcast is complete.
+* **Normal:** Here you can add a photo or video which will be available for 24 hours
+* **Boomerang:** This is for uploading a batch of photos which are stitched together to create a time-lapse type video
+
+For the purposes of Instagram live streaming, you'll need to slide on over to the 'Live' option.
+
+Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/)introduced by Instagram last year.
+
+Now you're all set. Check that your camera is pointing the right way, take a deep breath, and hit 'Start Live Video' once you're sure you're ready to start.
+
+#### Step 2: Manage the stream
+
+When thinking about how to go live on Instagram, it's worth considering how you will manage your broadcast whilst in full flow. There are a few key settings built into Instagram which will help you to do this:
+
+* **Viewer count:** Up in the top right corner of your screen, you'll see a number next to an eye. This tells you how many people are currently watching your stream. Keeping an eye on when people exit or join will give you some indication of how engaging they are finding your content.
+* **Comments:** At the bottom, you'll see a comment field, which will display comments made by your viewers. If you're great at multi-tasking you can respond to comments as you go or ask people to message you their input, so you can reply to them after the stream. If you want to turn off commenting, tap the three dots in the bottom right corner.
+* **Likes:** Viewers can express their love for your video in real-time, which you'll see as a heart animation. Feel free to thank them and encourage additional likes where you can.
+* **Time broadcasting:** Tap the little button that says 'live' to see how long your stream has been broadcasting.
+* **Block user:** To see who's watching, tap the little eye that is counting your viewers. If someone is becoming a nuisance, simply click the 'x' next to their name to remove them from your stream.
+
+![](https://images.wondershare.com/filmora/article-images/go-live-on-insta-1.jpg)
+
+Effective management of your stream is crucial, so ensure you are confident enough with what you want to cover in your broadcast that you can do this without interrupting your flow. Remember, there are no retakes with this type of content, so when planning how to start a live video on Instagram, make sure you dedicate enough time to the preparation to put you in a great position for an awesome video first time.
+
+### Step 3: End the broadcast and wrap it up
+
+To end your stream, simply hit the 'end' button in the top right of your screen. Instagram will return the limited analytics they hold for your stream, which is basically just the number of viewers. Unfortunately, Instagram Analytics doesn't record data about your live streams, so it's important to record this yourself for future reference. Either take a screenshot or note it down in some other way, so you can see how your different video topics return different results.
+
+If you made any promises during your live stream, now is the time to keep them. Set aside a bit of time immediately after your video to follow up any direct messages, respond to any questions you might have had, and to send on any information as promised. Your followers will appreciate your swift response.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to make good use of Instagram live video for business
+
+It's crucial to start figuring out how to go live on Instagram from a good, solid foundation. Unlike other video formats, live streaming offers no retakes, no edits, and no opportunity to undo your mistakes. For this reason, you need to have a good idea of what you're going to be covering and how it's going to work.
+
+Here are some ideas, tips, and advice for making the most of your Instagram live streaming for your business, and how you can ensure you're an insta-hit and not a flop-agram.
+
+### Ideas for Instagram live streaming videos
+
+**You May Also Like:** [How to Create Instagram Business Account >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Before you can start thinking about how to start a live video on Instagram, you need to have a topic. Live streams really can be about anything, but some tried and tested formats work a little better than others. For example:
+
+* **Q and A sessions:** If you've got a product, service, or knowledge base to draw upon, invite interaction with your viewers for a session of questions and answers
+* **Instant feedback:** Show you care and that you're listening by inviting feedback on a new product or recent activity you've been involved with
+* **Behind the scenes:** Viewers love to see how businesses operate, so why not take them on a tour of your warehouse or while you're getting ready for a trade show?
+* **Tutorials and insight:** Whatever your industry, you can be confident you know more than just about anyone else about what you do. Teach them how to use a product, give tips on getting the best from your service, or give them some insider tips that only you know
+* **Special guest features:** You don't have to have celebrity connections, but if you can rope in an influencer or brand to do an interview session with you, you'll have double the traffic with your fans and theirs
+* **Comment on the comments:** You'll find a world of inspiration in your own direct messages and comments sections. Sure, much of it will be inane drivel, but just occasionally there is a
+* **Wonderful and wacky:** Never underestimate the power of the unexpected. Sometimes just doing something a bit weird or unusual is enough to captivate a bigger audience than ever!
+
+Hopefully, these ideas for Instagram live streaming videos have given you some nuggets of inspiration to start your own amazing stream. What works for you will depend on your overall goal, whether you're promoting a product, offering a service, or simply solidifying your position as an industry influencer. Brainstorm ideas before you begin, and keep a list of ideas on your desk, to add to as new motivation arises.
+
+### Eleven Live video tips
+
+You know you're going to get noticed when you start a live broadcast on Instagram, so it's important to get it the right the first time. Make the most of every Instagram live streaming opportunity you get with our 11 awesome live video tips:
+
+* **Check who has tuned in:** You can find out who's watching your feed by tapping the eye icon in the corner of the screen. Viewers love a bit of interaction, so if you've got a regular viewer or a username you recognize, be sure to give them a shout out to acknowledge their visit.
+* **Make sure people know what you're broadcasting about:** Being clear about what your video is covering is a great way to get people hooked, and to keep them there. You can do this easily by pinning a comment that describes or offers a 'title' for your live feed.
+* **Keep reminding them why they came here:** Your viewers chose to watch your Instagram live streaming session because there was a nugget they wanted a piece of. Whether it's a product reveal, a key piece of info, or a tutorial on something, keep reminding them why they're watching to maintain interest and stop them from leaving.
+* **Request direct messages:** If you've got a popular live stream going, the number of comments can be overwhelming, to say the least, and can interfere with the flow of the video. Ask people with specific questions or comments to DM your account and take the time to reply to all of them once you've finished.
+* **Change the view:** You can make your live broadcast more engaging and interesting by switching what the viewers see from time to time. Do this by reversing the view of your camera, maybe to show off a product or to see what is around you.
+* **Say no to trolls:** The internet is full of them, and it can be highly frustrating to have to deal with someone trying to disrupt your broadcast. Rather than turning off all the comments, which defeats part of the object of live streaming, click the 'X' next to the user's name to mute their comments instead.
+* **Save the videos you make:** We learn as we go, particularly with new activities that we don't have much experience of, so don't forget to save your video so you can watch it back later. Don't beat yourself up when you view your own video but do take note of what you love and what you hate so you can improve for the future.
+* **Announce and follow up each live broadcast:** Announce your plan to do some Instagram live streaming with a post or story, so people know where to come and when. After, you can create a follow-up post or story to share with those who couldn't make it along to the live broadcast, highlighting what happened and letting them know when you're streaming next.
+* **Answer all those questions:** Remember you asked your viewers to DM your account with their specific questions or comments? Well, now you need to keep your promise and reply to all those messages! Set aside sometime straight after your stream to do this, so that they aren't kept waiting for a reply.
+* **Note your results:** Keep a record of how many people watched your broadcast, and other useful metrics such as how many direct messages you got, or product inquiries were generated. This will help you evaluate which videos work the best for you, and to play your Instagram live streaming activities for the future.
+* **Be cool and calm:** You've got this. There's no need to panic if things wander off-topic, or if everything is not going quite as you planned; just take a deep breath and steer things back in the direction you wanted. Remember; people have tuned in to see you being you, so relax, be yourself, and enjoy the moment.
+
+When you're thinking about how to go live on Instagram with your business, product, or personality, keep these top tips in mind for a more successful outcome. Do you have any more tips on how to start a live video on Instagram? If you've tried live streaming already, what would you recommend to others in your position? Let us know!
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+On Instagram live streaming is given the top spot in terms of billing; it appears as a number one priority in user's feeds, so if you're on a mission to get noticed, finding out **how to go live on Instagram** has to be a priority. However, it's not easy to get it right. If you're wondering how to start a live video on Instagram, and what it should be about, we've got all the answers you need right here.
+
+* [How to Go Live on Instagram - Step by step](#part1)
+* [How to make good use of Instagram live video for business](#part2)
+* [Eleven Live video tips](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Go Live on Instagram - Step by step
+
+If you're in the market to find out how to start a live video on Instagram, this step by step guide will get you Instagram live streaming in no time. Check out our three key steps for how to start a live video on Instagram and have a go at your first stream too.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### Step 1: Start Instagram live streaming
 
 You might think it's obvious how to go live on Instagram, but it's actually not as straightforward as you might think. To start an Instagram broadcast you need to begin by tapping on the 'Your Story' photo at the top of the menu. You'll see a little plus sign next to it in blue. If you've been scrolling through your feed then this bar may have disappeared, in which case you'll need to tap the camera button at the top left to bring it back again.
@@ -179,6 +320,9 @@ It's crucial to start figuring out how to go live on Instagram from a good, soli
 
 Here are some ideas, tips, and advice for making the most of your Instagram live streaming for your business, and how you can ensure you're an insta-hit and not a flop-agram.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ideas for Instagram live streaming videos
 
 **You May Also Like:** [How to Create Instagram Business Account >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -231,6 +375,9 @@ On Instagram live streaming is given the top spot in terms of billing; it appear
 * [How to make good use of Instagram live video for business](#part2)
 * [Eleven Live video tips](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## How to Go Live on Instagram - Step by step
 
 If you're in the market to find out how to start a live video on Instagram, this step by step guide will get you Instagram live streaming in no time. Check out our three key steps for how to start a live video on Instagram and have a go at your first stream too.
@@ -241,6 +388,9 @@ You might think it's obvious how to go live on Instagram, but it's actually not 
 
 Now you should be in your story menu, which will let you choose one of three available options.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/go-live-on-insta.jpg)
 
 * **Live:** This is Instagram live streaming, which disappears instantly once the broadcast is complete.
@@ -263,22 +413,34 @@ When thinking about how to go live on Instagram, it's worth considering how you 
 * **Time broadcasting:** Tap the little button that says 'live' to see how long your stream has been broadcasting.
 * **Block user:** To see who's watching, tap the little eye that is counting your viewers. If someone is becoming a nuisance, simply click the 'x' next to their name to remove them from your stream.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/go-live-on-insta-1.jpg)
 
 Effective management of your stream is crucial, so ensure you are confident enough with what you want to cover in your broadcast that you can do this without interrupting your flow. Remember, there are no retakes with this type of content, so when planning how to start a live video on Instagram, make sure you dedicate enough time to the preparation to put you in a great position for an awesome video first time.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3: End the broadcast and wrap it up
 
 To end your stream, simply hit the 'end' button in the top right of your screen. Instagram will return the limited analytics they hold for your stream, which is basically just the number of viewers. Unfortunately, Instagram Analytics doesn't record data about your live streams, so it's important to record this yourself for future reference. Either take a screenshot or note it down in some other way, so you can see how your different video topics return different results.
 
 If you made any promises during your live stream, now is the time to keep them. Set aside a bit of time immediately after your video to follow up any direct messages, respond to any questions you might have had, and to send on any information as promised. Your followers will appreciate your swift response.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## How to make good use of Instagram live video for business
 
 It's crucial to start figuring out how to go live on Instagram from a good, solid foundation. Unlike other video formats, live streaming offers no retakes, no edits, and no opportunity to undo your mistakes. For this reason, you need to have a good idea of what you're going to be covering and how it's going to work.
 
 Here are some ideas, tips, and advice for making the most of your Instagram live streaming for your business, and how you can ensure you're an insta-hit and not a flop-agram.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ideas for Instagram live streaming videos
 
 **You May Also Like:** [How to Create Instagram Business Account >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -295,106 +457,9 @@ Before you can start thinking about how to start a live video on Instagram, you 
 
 Hopefully, these ideas for Instagram live streaming videos have given you some nuggets of inspiration to start your own amazing stream. What works for you will depend on your overall goal, whether you're promoting a product, offering a service, or simply solidifying your position as an industry influencer. Brainstorm ideas before you begin, and keep a list of ideas on your desk, to add to as new motivation arises.
 
-### Eleven Live video tips
-
-You know you're going to get noticed when you start a live broadcast on Instagram, so it's important to get it the right the first time. Make the most of every Instagram live streaming opportunity you get with our 11 awesome live video tips:
-
-* **Check who has tuned in:** You can find out who's watching your feed by tapping the eye icon in the corner of the screen. Viewers love a bit of interaction, so if you've got a regular viewer or a username you recognize, be sure to give them a shout out to acknowledge their visit.
-* **Make sure people know what you're broadcasting about:** Being clear about what your video is covering is a great way to get people hooked, and to keep them there. You can do this easily by pinning a comment that describes or offers a 'title' for your live feed.
-* **Keep reminding them why they came here:** Your viewers chose to watch your Instagram live streaming session because there was a nugget they wanted a piece of. Whether it's a product reveal, a key piece of info, or a tutorial on something, keep reminding them why they're watching to maintain interest and stop them from leaving.
-* **Request direct messages:** If you've got a popular live stream going, the number of comments can be overwhelming, to say the least, and can interfere with the flow of the video. Ask people with specific questions or comments to DM your account and take the time to reply to all of them once you've finished.
-* **Change the view:** You can make your live broadcast more engaging and interesting by switching what the viewers see from time to time. Do this by reversing the view of your camera, maybe to show off a product or to see what is around you.
-* **Say no to trolls:** The internet is full of them, and it can be highly frustrating to have to deal with someone trying to disrupt your broadcast. Rather than turning off all the comments, which defeats part of the object of live streaming, click the 'X' next to the user's name to mute their comments instead.
-* **Save the videos you make:** We learn as we go, particularly with new activities that we don't have much experience of, so don't forget to save your video so you can watch it back later. Don't beat yourself up when you view your own video but do take note of what you love and what you hate so you can improve for the future.
-* **Announce and follow up each live broadcast:** Announce your plan to do some Instagram live streaming with a post or story, so people know where to come and when. After, you can create a follow-up post or story to share with those who couldn't make it along to the live broadcast, highlighting what happened and letting them know when you're streaming next.
-* **Answer all those questions:** Remember you asked your viewers to DM your account with their specific questions or comments? Well, now you need to keep your promise and reply to all those messages! Set aside sometime straight after your stream to do this, so that they aren't kept waiting for a reply.
-* **Note your results:** Keep a record of how many people watched your broadcast, and other useful metrics such as how many direct messages you got, or product inquiries were generated. This will help you evaluate which videos work the best for you, and to play your Instagram live streaming activities for the future.
-* **Be cool and calm:** You've got this. There's no need to panic if things wander off-topic, or if everything is not going quite as you planned; just take a deep breath and steer things back in the direction you wanted. Remember; people have tuned in to see you being you, so relax, be yourself, and enjoy the moment.
-
-When you're thinking about how to go live on Instagram with your business, product, or personality, keep these top tips in mind for a more successful outcome. Do you have any more tips on how to start a live video on Instagram? If you've tried live streaming already, what would you recommend to others in your position? Let us know!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-On Instagram live streaming is given the top spot in terms of billing; it appears as a number one priority in user's feeds, so if you're on a mission to get noticed, finding out **how to go live on Instagram** has to be a priority. However, it's not easy to get it right. If you're wondering how to start a live video on Instagram, and what it should be about, we've got all the answers you need right here.
-
-* [How to Go Live on Instagram - Step by step](#part1)
-* [How to make good use of Instagram live video for business](#part2)
-* [Eleven Live video tips](#part3)
-
-## How to Go Live on Instagram - Step by step
-
-If you're in the market to find out how to start a live video on Instagram, this step by step guide will get you Instagram live streaming in no time. Check out our three key steps for how to start a live video on Instagram and have a go at your first stream too.
-
-### Step 1: Start Instagram live streaming
-
-You might think it's obvious how to go live on Instagram, but it's actually not as straightforward as you might think. To start an Instagram broadcast you need to begin by tapping on the 'Your Story' photo at the top of the menu. You'll see a little plus sign next to it in blue. If you've been scrolling through your feed then this bar may have disappeared, in which case you'll need to tap the camera button at the top left to bring it back again.
-
-Now you should be in your story menu, which will let you choose one of three available options.
-
-![](https://images.wondershare.com/filmora/article-images/go-live-on-insta.jpg)
-
-* **Live:** This is Instagram live streaming, which disappears instantly once the broadcast is complete.
-* **Normal:** Here you can add a photo or video which will be available for 24 hours
-* **Boomerang:** This is for uploading a batch of photos which are stitched together to create a time-lapse type video
-
-For the purposes of Instagram live streaming, you'll need to slide on over to the 'Live' option.
-
-Before you begin broadcasting, however, check out your settings to ensure the right people can (or can't) see the broadcast. You can also edit who is allowed to message you about this story, and block anyone you know to be a troll, for example. The 'save shared photos' setting does not work on your live streams, however, you can save your broadcast to your camera roll once you've finished the stream, thanks to a [feature](https://techcrunch.com/2017/03/20/you-can-now-save-your-instagram-live-streams-to-your-camera-roll/)introduced by Instagram last year.
-
-Now you're all set. Check that your camera is pointing the right way, take a deep breath, and hit 'Start Live Video' once you're sure you're ready to start.
-
-#### Step 2: Manage the stream
-
-When thinking about how to go live on Instagram, it's worth considering how you will manage your broadcast whilst in full flow. There are a few key settings built into Instagram which will help you to do this:
-
-* **Viewer count:** Up in the top right corner of your screen, you'll see a number next to an eye. This tells you how many people are currently watching your stream. Keeping an eye on when people exit or join will give you some indication of how engaging they are finding your content.
-* **Comments:** At the bottom, you'll see a comment field, which will display comments made by your viewers. If you're great at multi-tasking you can respond to comments as you go or ask people to message you their input, so you can reply to them after the stream. If you want to turn off commenting, tap the three dots in the bottom right corner.
-* **Likes:** Viewers can express their love for your video in real-time, which you'll see as a heart animation. Feel free to thank them and encourage additional likes where you can.
-* **Time broadcasting:** Tap the little button that says 'live' to see how long your stream has been broadcasting.
-* **Block user:** To see who's watching, tap the little eye that is counting your viewers. If someone is becoming a nuisance, simply click the 'x' next to their name to remove them from your stream.
-
-![](https://images.wondershare.com/filmora/article-images/go-live-on-insta-1.jpg)
-
-Effective management of your stream is crucial, so ensure you are confident enough with what you want to cover in your broadcast that you can do this without interrupting your flow. Remember, there are no retakes with this type of content, so when planning how to start a live video on Instagram, make sure you dedicate enough time to the preparation to put you in a great position for an awesome video first time.
-
-### Step 3: End the broadcast and wrap it up
-
-To end your stream, simply hit the 'end' button in the top right of your screen. Instagram will return the limited analytics they hold for your stream, which is basically just the number of viewers. Unfortunately, Instagram Analytics doesn't record data about your live streams, so it's important to record this yourself for future reference. Either take a screenshot or note it down in some other way, so you can see how your different video topics return different results.
-
-If you made any promises during your live stream, now is the time to keep them. Set aside a bit of time immediately after your video to follow up any direct messages, respond to any questions you might have had, and to send on any information as promised. Your followers will appreciate your swift response.
-
-## How to make good use of Instagram live video for business
-
-It's crucial to start figuring out how to go live on Instagram from a good, solid foundation. Unlike other video formats, live streaming offers no retakes, no edits, and no opportunity to undo your mistakes. For this reason, you need to have a good idea of what you're going to be covering and how it's going to work.
-
-Here are some ideas, tips, and advice for making the most of your Instagram live streaming for your business, and how you can ensure you're an insta-hit and not a flop-agram.
-
-### Ideas for Instagram live streaming videos
-
-**You May Also Like:** [How to Create Instagram Business Account >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Before you can start thinking about how to start a live video on Instagram, you need to have a topic. Live streams really can be about anything, but some tried and tested formats work a little better than others. For example:
-
-* **Q and A sessions:** If you've got a product, service, or knowledge base to draw upon, invite interaction with your viewers for a session of questions and answers
-* **Instant feedback:** Show you care and that you're listening by inviting feedback on a new product or recent activity you've been involved with
-* **Behind the scenes:** Viewers love to see how businesses operate, so why not take them on a tour of your warehouse or while you're getting ready for a trade show?
-* **Tutorials and insight:** Whatever your industry, you can be confident you know more than just about anyone else about what you do. Teach them how to use a product, give tips on getting the best from your service, or give them some insider tips that only you know
-* **Special guest features:** You don't have to have celebrity connections, but if you can rope in an influencer or brand to do an interview session with you, you'll have double the traffic with your fans and theirs
-* **Comment on the comments:** You'll find a world of inspiration in your own direct messages and comments sections. Sure, much of it will be inane drivel, but just occasionally there is a
-* **Wonderful and wacky:** Never underestimate the power of the unexpected. Sometimes just doing something a bit weird or unusual is enough to captivate a bigger audience than ever!
-
-Hopefully, these ideas for Instagram live streaming videos have given you some nuggets of inspiration to start your own amazing stream. What works for you will depend on your overall goal, whether you're promoting a product, offering a service, or simply solidifying your position as an industry influencer. Brainstorm ideas before you begin, and keep a list of ideas on your desk, to add to as new motivation arises.
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Eleven Live video tips
 
 You know you're going to get noticed when you start a live broadcast on Instagram, so it's important to get it the right the first time. Make the most of every Instagram live streaming opportunity you get with our 11 awesome live video tips:
@@ -444,3 +509,66 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-do-a-poll-on-instagram-stories-the-only-guide-you-need-to-read-for-2024/"><u>[New] How to Do a Poll on Instagram Stories  The Only Guide You Need to Read for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-step-by-step-screen-shot-on-android-devices/"><u>[New] In 2024, Step-by-Step  Screen Shot on Android Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-scaling-up-instagram-videos-mobile-and-desktop-approaches/"><u>[New] Scaling Up Instagram Videos  Mobile & Desktop Approaches</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-insiders-handbook-for-instagram-video-woes/"><u>[New] The Insider’s Handbook for Instagram Video Woes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-instagram-follower-finder-apps-safety-first-iosandroid/"><u>[New] Top Instagram Follower Finder Apps  Safety First (iOS/Android)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-transform-your-devices-display-into-a-high-quality-record/"><u>[New] Transform Your Device's Display Into a High-Quality Record</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-transforming-ordinary-footage-to-ig-masterpieces/"><u>[New] Transforming Ordinary Footage to IG Masterpieces</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-from-isolation-to-integration-how-to-mesh-obs-with-zoom/"><u>[Updated] 2024 Approved  From Isolation to Integration  How to Mesh OBS with Zoom</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-followers-and-likes-hack-top-25-instagram-hashtags-unveiled-for-2024/"><u>[Updated] Followers and Likes Hack  Top 25 Instagram Hashtags Unveiled for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-essential-tiktok-books-list-for-bibliophiles/"><u>[Updated] In 2024, Essential TikTok Books List for Bibliophiles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-miniature-film-script-sketch/"><u>[Updated] In 2024, Miniature Film Script Sketch</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-unraveling-tiktoks-veiled-prohibitive-measures/"><u>[Updated] In 2024, Unraveling TikTok's Veiled Prohibitive Measures</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-maximizing-visibility-with-instagrams-highlight-system/"><u>[Updated] Maximizing Visibility with Instagram's Highlight System</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-prime-virtual-marketplaces-ringtone-selections/"><u>[Updated] Prime Virtual Marketplaces  Ringtone Selections</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-scene-stealers-archive-responses-await/"><u>[Updated] Scene Stealers Archive  Responses Await</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-streamline-your-instagram-content-free-mp4-exporters-for-windowsmac-users/"><u>[Updated] Streamline Your Instagram Content  Free MP4 Exporters for Windows/Mac Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-quick-route-to-celebrity-status-on-insta-top-15-strategies-for-rapid-follower-growth/"><u>[Updated] The Quick Route to Celebrity Status on Insta  Top 15 Strategies For Rapid Follower Growth</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-highlight-optimization-checklist-for-brands/"><u>[Updated] The Ultimate Highlight Optimization Checklist for Brands</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-timing-and-frequency/"><u>[Updated] Timing and Frequency</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gopro-start-up-must-haves-decoded/"><u>2024 Approved  GoPro Start-Up Must-Haves Decoded</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-level-up-in-valorant-with-a-costless-cutting-edge-voice-modification-solution/"><u>2024 Approved  Level Up in Valorant with a Costless, Cutting-Edge Voice Modification Solution</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-quintessential-video-tools-for-perfecting-instagram-reels/"><u>2024 Approved  Quintessential Video Tools for Perfecting Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-rise-to-stardom-on-instagram-adopting-tiktoks-winning-strategies/"><u>2024 Approved  Rise to Stardom on Instagram  Adopting TikTok's Winning Strategies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-staying-pure-hearted-amidst-the-ruse-of-ratings-and-likes/"><u>2024 Approved  Staying Pure-Hearted Amidst the Ruse of Ratings and Likes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-step-by-step-diving-into-the-world-of-igtv/"><u>2024 Approved  Step-by-Step  Diving Into the World of IGTV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-comedic-edge-how-to-create-viral-video-memes-for-modern-audiences/"><u>2024 Approved  The Comedic Edge  How to Create Viral Video Memes for Modern Audiences</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-power-of-persuasion-how-to-boost-instagram-post-reach/"><u>2024 Approved  The Power of Persuasion  How to Boost Instagram Post Reach</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-secret-to-exceptional-instagram-reels/"><u>2024 Approved  The Secret to Exceptional Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-tutorial-creating-instagram-ready-videos-with-final-cut-pro-x/"><u>2024 Approved  The Ultimate Tutorial  Creating Instagram-Ready Videos with Final Cut Pro X</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-transform-your-visuals-instagram-video-borders/"><u>2024 Approved  Transform Your Visuals  Instagram Video Borders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-understanding-the-impact-of-igtv-videos-through-analysis/"><u>2024 Approved  Understanding the Impact of IGTV Videos Through Analysis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unleashing-potential-sharing-youtube-content-within-instagram-stories/"><u>2024 Approved  Unleashing Potential  Sharing YouTube Content Within Instagram Stories</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/avchd-editing-made-easy-top-5-software-solutions/"><u>AVCHD Editing Made Easy Top 5 Software Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-countries-that-santa-can-speak-too/"><u>Discover the Countries That Santa Can Speak Too</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/enhance-social-gaming-experience-xbox-to-fb-livestream/"><u>Enhance Social Gaming Experience  Xbox to FB Livestream</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-apple-iphone-12-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T Apple iPhone 12 with 3 Methods</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-ideal-tools-for-capturing-your-next-google-meet-success/"><u>In 2024, Ideal Tools for Capturing Your Next Google Meet Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagram-insights-ultimate-guide-to-understand-ig-data/"><u>In 2024, Instagram Insights  Ultimate Guide to Understand IG Data</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-mellow-music-palette-for-celebrating-your-twenty-fourth-years-eve-video/"><u>In 2024, Mellow Music Palette for Celebrating Your Twenty-Fourth Years Eve Video</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-rhythmic-instagrams-a-step-by-step-music-guide/"><u>In 2024, Rhythmic Instagrams  A Step-by-Step Music Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-size-your-content-smartly-video-tips-for-instagram-excellence/"><u>In 2024, Size Your Content Smartly  Video Tips for Instagram Excellence</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-step-by-step-how-to-upscalled-vids-on-instagram/"><u>In 2024, Step-by-Step  How to Upscalled Vids on Instagram</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/in-2024-the-math-behind-it-calculating-pixel-aspect-ratio/"><u>In 2024, The Math Behind It Calculating Pixel Aspect Ratio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-top-5-concealed-story-viewers-apps/"><u>In 2024, The Top 5 Concealed Story Viewers' Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-unleash-the-power-of-instagram-footage-a-compilation-of-mp4-conversion-tools-for-pc-and-mac/"><u>In 2024, Unleash the Power of Instagram Footage  A Compilation of MP4 Conversion Tools for PC & Mac</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Vivo V27 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-masterpiece-maker-unleash-the-hidden-potential-in-your-videos/"><u>New 2024 Approved Masterpiece Maker Unleash the Hidden Potential in Your Videos</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-video-editing-essentials-how-to-split-clips-in-windows-live-movie-maker-updated/"><u>New Video Editing Essentials How to Split Clips in Windows Live Movie Maker (Updated )</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/ownership-deciphering-in-instasongs-for-2024/"><u>Ownership Deciphering in InstaSongs for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/peeling-layers-to-originality-a-guide-for-instagram-photo-search-for-2024/"><u>Peeling Layers to Originality  A Guide for Instagram Photo Search for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/perfecting-posts-how-to-border-videos-on-instagram-for-2024/"><u>Perfecting Posts  How to Border Videos on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/seamless-text-overlay-the-key-to-interactive-instagram-media-for-2024/"><u>Seamless Text Overlay  The Key to Interactive Instagram Media for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/securing-an-edge-how-to-successfully-install-windows-11-for-2024/"><u>Securing an Edge  How to Successfully Install Windows 11 for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Oppo A1x 5G? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/tech-savvy-summit-unveiling-our-top-5-video-capture-tools-for-2024/"><u>Tech-Savvy Summit  Unveiling Our Top 5 Video Capture Tools for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-clandestine-way-exploring-insta-stories-on-tech-devices-for-2024/"><u>The Clandestine Way  Exploring Insta Stories on Tech Devices for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/top-tier-techniques-instagrams-clandestine-tools-for-growth-for-2024/"><u>Top-Tier Techniques  Instagram's Clandestine Tools for Growth for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/transform-your-content-the-science-of-instagram-video-loops-for-2024/"><u>Transform Your Content  The Science of Instagram Video Loops for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-unveiling-clarity-the-ultimate-blueprint-for-banishing-unwanted-acoustic-interferences/"><u>Updated 2024 Approved Unveiling Clarity The Ultimate Blueprint for Banishing Unwanted Acoustic Interferences</u></a></li>
+</ul></div>

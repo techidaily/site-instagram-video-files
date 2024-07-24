@@ -1,7 +1,7 @@
 ---
 title: "\"How to Halt Recommendations  No More Suggests\""
-date: 2024-05-21T15:06:08.254Z
-updated: 2024-05-22T15:06:08.254Z
+date: 2024-07-23T18:03:36.557Z
+updated: 2024-07-24T18:03:36.557Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes How to Halt Recommendations: No More Suggests\""
 excerpt: "\"This Article Describes How to Halt Recommendations: No More Suggests\""
 keywords: "\"Stop Suggestions Tactics,Halting Suggestion Methods,Remove Recommended Ads,Cease Auto-Suggests,Disable Suggest Feature,End Suggest Notifications,Block Automatic Prompts\""
-thumbnail: https://www.lifewire.com/thmb/tog6m8Yd2L1pQ_0Pktyl-fbgcRs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/camera-56e0976d3df78c5ba0566b37.jpg
+thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a94f5e0b261b4ccf5f3207b46.jpg
 ---
 
 ## How to Halt Recommendations: No More Suggests
@@ -59,6 +59,9 @@ Here's what you need to do:
 
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
@@ -69,10 +72,16 @@ Here's what you need to do:
 
 **Step 5:** Four options will be shown to you- report, not interested, copy URL, and finally, share. You need to click on the not interesting option.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
@@ -81,6 +90,9 @@ Now, you can apply the same steps for the rest of the posts as well. But do keep
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### For Instagram app users
 
 **Step 1:** First, you need to open your Instagram account on your handset.
@@ -93,10 +105,144 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
 
+## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
+
+Just like Instagram show you suggested users and posts, your account gets recommended to others as well. This is done so that your account can be followed by people who may be interested in your content. If you don't want to get suggested by Instagram, then here's what you need to do:
+
+**Step 1:** Open a web browser and visit Instagram.
+
+**Step 2:** Now, look at the top right, where you can see your profile picture. Please click on that, and then click on the Settings option.
+
+**Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
+
+## Part 5: How Does Instagram Suggestions Work?
+
+Instagram takes note of everything that you do online. From analysing the posts, you follow, like, and comment on, Instagram tries to show you the best recommendations so that you can have a better user experience. The new feature that it has rolled out is the suggestions. The way suggestions work is quite simple.
+
+The algorithm shows you suggestions based on your taste, the accounts you follow, and what you often browse through. This can be suggested users and suggested posts. Even if you keep your account private, you will still see the suggested posts, although suggested users will not appear. Instagram will keep track of what you like to see and explore, and based on that; the algorithm sends you suggestions that it thinks you will be interested in.
+
+For example, let's say you like to watch cats and dogs' videos, so once you are done checking out the feed, towards the bottom, it will say "you're all caught up," and then it will start showing suggested posts of cats and dogs because you have checked similar content before.
+
+So, based on that, it will start recommending posts and people that offer similar content. This encourages users to follow new people and stay updated with their latest posts. In addition to this, Instagram will also track the kind of hashtags you use, the posts that you have liked or commented on, and things like these.
+
+So, even if you clear your search history, you will still end up seeing these posts. A user name will stop appearing if they go to their settings page and check out similar account suggestions. But most users don't do that; hence, you will see their posts. Another thing to note is that these suggestions can be based on your Facebook friends as well because Facebook owns Instagram.
+
+**Conclusion**
+
+So, now you know **how to remove suggested posts on Instagram feed** and how to go about it. Remember that Instagram suggested posts is a new feature, and there's no way to delete this feature completely. You can certainly remove the suggested posts or suggested users, but you can't completely remove suggested posts and users completely. However, this feature is quite handy because it lets you explore more content easily without going through the search tab.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+How to Turn off Suggested Posts on Instagram?
+
+If you are an Instagram user, you might have seen something called a suggested post in your feed. These will be the posts from people who you are not following but might interest you. Although many people are happy with this new feature because it kind of markets you so that other people can start following; however, people who repeatedly see suggested posts aren't really happy about it.
+
+The reason? These people aren't interested in seeing random people's posts on their feed. If you feel the same and want to know **how to turn off suggested posts on Instagram,** you have come to the right place.
+
+* [Part 1: What is Instagram Suggested?](#part1)
+* [Part 2: How to Turn off Suggested Posts on Instagram?](#part2)
+* [Part 3: How to Delete Suggested Users from Instagram?](#part3)
+* [Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List?](#part4)
+* [Part 5: How Does Instagram Suggestions Work?](#part5)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: What is Instagram Suggested?
+
+Instagram is working on its features and has recently rolled out the new feature called suggested posts. When Instagram suggests something on its own, it will be basically posts of random people who Instagram thinks you might be interested in checking out. These posts will appear when you reach the end of your feed.
+
+Also, these posts will be based on what you prefer to see on Instagram, in general. If you are whether these will be the same as the ones that show up in explore, then no, they won't be that. These posts will be related to the ones that you already follow or often browse through.
+
+Suggested posts will let you scroll through Instagram a bit more and even give you a chance to follow the person you don't follow. Along with suggested posts, there is another feature called suggested friends. You will see this right after you see the first or second posts.
+
+The intent of these features is to know more like-minded people and follow them to see more of their posts.
+
+## Part 2: How to Turn off Suggested Posts on Instagram?
+
+So, if you are searching for answers to **remove suggested posts on Instagram,** here comes upsetting news, and that's there is no direct way to stop seeing unwanted suggested posts right at the bottom of the feed. Instagram has also made it clear that there is no way one can close suggested posts. However, this certainly doesn't mean that you can hide suggested posts at all.
+
+And to do that, all you will have to do is make your account private. Once you do that, you will only be seeing posts on your feed of the people that you follow.
+
+Here's what you need to do:
+
+**Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
+
+![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
+
+**Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
+
+**Step 3:** Right below that, you will see Suggested Posts, and the whole section will be filled with posts of people you don't know.
+
+**Step 4:** Now, to stop seeing a recommended user's post, you can click on the three dots. The dots will be towards the right of the user's name.
+
+**Step 5:** Four options will be shown to you- report, not interested, copy URL, and finally, share. You need to click on the not interesting option.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
+![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
+
+**Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
+
+![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
+
+Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
+## Part 3: How to Delete Suggested Users from Instagram?
+
+If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
+
+### For Instagram app users
+
+**Step 1:** First, you need to open your Instagram account on your handset.
+
+**Step 2:** Start looking at your Instagram feed. After one or two posts, you will see the Suggestions for You feature. Take a look at the screenshot to understand better.
+
+**Step 3:** Now, on top of every suggestion for you, you will see the x mark. That's what you need to click on that. Ensure you are doing that for every suggestion that appears on your home feed. After clicking on the X, that account will not be suggested to you, and it will disappear.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
+
+**Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
+
+### For web browsers
+
+The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
 
 Just like Instagram show you suggested users and posts, your account gets recommended to others as well. This is done so that your account can be followed by people who may be interested in your content. If you don't want to get suggested by Instagram, then here's what you need to do:
@@ -161,6 +307,9 @@ Suggested posts will let you scroll through Instagram a bit more and even give y
 
 The intent of these features is to know more like-minded people and follow them to see more of their posts.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: How to Turn off Suggested Posts on Instagram?
 
 So, if you are searching for answers to **remove suggested posts on Instagram,** here comes upsetting news, and that's there is no direct way to stop seeing unwanted suggested posts right at the bottom of the feed. Instagram has also made it clear that there is no way one can close suggested posts. However, this certainly doesn't mean that you can hide suggested posts at all.
@@ -181,10 +330,16 @@ Here's what you need to do:
 
 **Step 5:** Four options will be shown to you- report, not interested, copy URL, and finally, share. You need to click on the not interesting option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
 
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
@@ -193,6 +348,9 @@ Now, you can apply the same steps for the rest of the posts as well. But do keep
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### For Instagram app users
 
 **Step 1:** First, you need to open your Instagram account on your handset.
@@ -201,10 +359,17 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 
 **Step 3:** Now, on top of every suggestion for you, you will see the x mark. That's what you need to click on that. Ensure you are doing that for every suggestion that appears on your home feed. After clicking on the X, that account will not be suggested to you, and it will disappear.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
@@ -219,6 +384,9 @@ Just like Instagram show you suggested users and posts, your account gets recomm
 
 **Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
 
 ## Part 5: How Does Instagram Suggestions Work?
@@ -237,6 +405,9 @@ So, even if you clear your search history, you will still end up seeing these po
 
 So, now you know **how to remove suggested posts on Instagram feed** and how to go about it. Remember that Instagram suggested posts is a new feature, and there's no way to delete this feature completely. You can certainly remove the suggested posts or suggested users, but you can't completely remove suggested posts and users completely. However, this feature is quite handy because it lets you explore more content easily without going through the search tab.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -273,6 +444,9 @@ Suggested posts will let you scroll through Instagram a bit more and even give y
 
 The intent of these features is to know more like-minded people and follow them to see more of their posts.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Turn off Suggested Posts on Instagram?
 
 So, if you are searching for answers to **remove suggested posts on Instagram,** here comes upsetting news, and that's there is no direct way to stop seeing unwanted suggested posts right at the bottom of the feed. Instagram has also made it clear that there is no way one can close suggested posts. However, this certainly doesn't mean that you can hide suggested posts at all.
@@ -283,6 +457,9 @@ Here's what you need to do:
 
 **Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
 
 **Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
@@ -297,6 +474,9 @@ Here's what you need to do:
 
 **Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
 
 Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
@@ -305,6 +485,9 @@ Now, you can apply the same steps for the rest of the posts as well. But do keep
 
 If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### For Instagram app users
 
 **Step 1:** First, you need to open your Instagram account on your handset.
@@ -317,118 +500,9 @@ If you don't want to see suggested users on your Instagram feed, there is a way 
 
 **Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
 
-### For web browsers
-
-The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
-
-## Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List
-
-Just like Instagram show you suggested users and posts, your account gets recommended to others as well. This is done so that your account can be followed by people who may be interested in your content. If you don't want to get suggested by Instagram, then here's what you need to do:
-
-**Step 1:** Open a web browser and visit Instagram.
-
-**Step 2:** Now, look at the top right, where you can see your profile picture. Please click on that, and then click on the Settings option.
-
-**Step 3:** Scroll down towards the bottom, and you will find the similar account suggestions section. In this section, you will see a checkbox. You need to uncheck that if you don't want your name to appear as a suggested user.
-
-![ uncheck the similar account suggestions box](https://images.wondershare.com/filmora/article-images/uncheck-similar-account-suggestions.jpg)
-
-## Part 5: How Does Instagram Suggestions Work?
-
-Instagram takes note of everything that you do online. From analysing the posts, you follow, like, and comment on, Instagram tries to show you the best recommendations so that you can have a better user experience. The new feature that it has rolled out is the suggestions. The way suggestions work is quite simple.
-
-The algorithm shows you suggestions based on your taste, the accounts you follow, and what you often browse through. This can be suggested users and suggested posts. Even if you keep your account private, you will still see the suggested posts, although suggested users will not appear. Instagram will keep track of what you like to see and explore, and based on that; the algorithm sends you suggestions that it thinks you will be interested in.
-
-For example, let's say you like to watch cats and dogs' videos, so once you are done checking out the feed, towards the bottom, it will say "you're all caught up," and then it will start showing suggested posts of cats and dogs because you have checked similar content before.
-
-So, based on that, it will start recommending posts and people that offer similar content. This encourages users to follow new people and stay updated with their latest posts. In addition to this, Instagram will also track the kind of hashtags you use, the posts that you have liked or commented on, and things like these.
-
-So, even if you clear your search history, you will still end up seeing these posts. A user name will stop appearing if they go to their settings page and check out similar account suggestions. But most users don't do that; hence, you will see their posts. Another thing to note is that these suggestions can be based on your Facebook friends as well because Facebook owns Instagram.
-
-**Conclusion**
-
-So, now you know **how to remove suggested posts on Instagram feed** and how to go about it. Remember that Instagram suggested posts is a new feature, and there's no way to delete this feature completely. You can certainly remove the suggested posts or suggested users, but you can't completely remove suggested posts and users completely. However, this feature is quite handy because it lets you explore more content easily without going through the search tab.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-How to Turn off Suggested Posts on Instagram?
-
-If you are an Instagram user, you might have seen something called a suggested post in your feed. These will be the posts from people who you are not following but might interest you. Although many people are happy with this new feature because it kind of markets you so that other people can start following; however, people who repeatedly see suggested posts aren't really happy about it.
-
-The reason? These people aren't interested in seeing random people's posts on their feed. If you feel the same and want to know **how to turn off suggested posts on Instagram,** you have come to the right place.
-
-* [Part 1: What is Instagram Suggested?](#part1)
-* [Part 2: How to Turn off Suggested Posts on Instagram?](#part2)
-* [Part 3: How to Delete Suggested Users from Instagram?](#part3)
-* [Part 4: How to Avoid Showing up in Other Users' Suggestions for Your List?](#part4)
-* [Part 5: How Does Instagram Suggestions Work?](#part5)
-
----
-
-## Part 1: What is Instagram Suggested?
-
-Instagram is working on its features and has recently rolled out the new feature called suggested posts. When Instagram suggests something on its own, it will be basically posts of random people who Instagram thinks you might be interested in checking out. These posts will appear when you reach the end of your feed.
-
-Also, these posts will be based on what you prefer to see on Instagram, in general. If you are whether these will be the same as the ones that show up in explore, then no, they won't be that. These posts will be related to the ones that you already follow or often browse through.
-
-Suggested posts will let you scroll through Instagram a bit more and even give you a chance to follow the person you don't follow. Along with suggested posts, there is another feature called suggested friends. You will see this right after you see the first or second posts.
-
-The intent of these features is to know more like-minded people and follow them to see more of their posts.
-
-## Part 2: How to Turn off Suggested Posts on Instagram?
-
-So, if you are searching for answers to **remove suggested posts on Instagram,** here comes upsetting news, and that's there is no direct way to stop seeing unwanted suggested posts right at the bottom of the feed. Instagram has also made it clear that there is no way one can close suggested posts. However, this certainly doesn't mean that you can hide suggested posts at all.
-
-And to do that, all you will have to do is make your account private. Once you do that, you will only be seeing posts on your feed of the people that you follow.
-
-Here's what you need to do:
-
-**Step 1:** Open your Instagram account and if you are not logged in, simply enter your credentials to log in. You can do this by visiting your Instagram mobile app or via the browser. Once your account is open, instead of going to your profile, stay on the home page, which shows you the latest posts of people you are following.
-
-![ suggestions for you on Ins](https://images.wondershare.com/filmora/article-images/instagram-suggestions-for-you.jpg)
-
-**Step 2:** Go to the home page, where you can see posts of the people you follow. Now, scroll down towards the end and stop when you see the "you're all caught up" message.
-
-**Step 3:** Right below that, you will see Suggested Posts, and the whole section will be filled with posts of people you don't know.
-
-**Step 4:** Now, to stop seeing a recommended user's post, you can click on the three dots. The dots will be towards the right of the user's name.
-
-**Step 5:** Four options will be shown to you- report, not interested, copy URL, and finally, share. You need to click on the not interesting option.
-
-![click on not interested on suggested posts](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-options.jpg)
-
-**Step 6:** That post and user will be removed, and instead of that, you will see a message by Instagram asking for feedback. You can click on the option: I don't want to see posts from this account, and Instagram won't show you that user's posts.
-
-![choose your feedback option](https://images.wondershare.com/filmora/article-images/instagram-suggestion-posts-feedback.jpg)
-
-Now, you can apply the same steps for the rest of the posts as well. But do keep in mind that suggested posts will still appear. And you will have to apply this setting for each one so that you are shown fewer posts of unknown people.
-
-## Part 3: How to Delete Suggested Users from Instagram?
-
-If you don't want to see suggested users on your Instagram feed, there is a way to remove unknown users actually. You can do it by using your web browser or Instagram mobile app. Whichever is comfortable to use. However, please note that these steps have to be followed for each suggested user. Now, please use that and then follow these steps.
-
-### For Instagram app users
-
-**Step 1:** First, you need to open your Instagram account on your handset.
-
-**Step 2:** Start looking at your Instagram feed. After one or two posts, you will see the Suggestions for You feature. Take a look at the screenshot to understand better.
-
-**Step 3:** Now, on top of every suggestion for you, you will see the x mark. That's what you need to click on that. Ensure you are doing that for every suggestion that appears on your home feed. After clicking on the X, that account will not be suggested to you, and it will disappear.
-
-![click on x symbol to delete suggested users](https://images.wondershare.com/filmora/article-images/delete-instagram-suggestion-post.jpg)
-
-**Step 4:** To delete multiple suggested users, just click on the see all option, and the list of suggested users will appear; now click on the X for each user you want to delete. However, you need to delete everyone one by one individually.
-
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### For web browsers
 
 The problem with web browsers is that you won't be able to remove the suggested users like you can through your Instagram app on your Android or iOS devices. So, the only way out for you will be to open your Instagram mobile app and then do it from there by following the steps that we have mentioned for Instagram app users.
@@ -492,3 +566,45 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-tagging-made-easy-with-these-high-impact-instagram-hashtags/"><u>[New] 2024 Approved  Tagging Made Easy with These High-Impact Instagram Hashtags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-instagram-djs-playlist-tailoring-sounds-for-stories/"><u>[New] 2024 Approved  The Instagram DJ's Playlist  Tailoring Sounds for Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-unlock-insta-money-potential-with-our-top-7-list/"><u>[New] 2024 Approved  Unlock Insta Money Potential with Our Top 7 List</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-insights-ultimate-guide-to-understand-ig-data/"><u>[New] In 2024, Instagram Insights  Ultimate Guide to Understand IG Data</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-overcome-tiktok-issues-with-these-simple-fixes-android-and-iphone/"><u>[New] In 2024, Overcome TikTok Issues with These Simple Fixes (Android & iPhone)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-tailoring-igtv-titles-and-summaries-for-impact/"><u>[New] In 2024, Tailoring IGTV Titles & Summaries for Impact</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-textual-enhancement-techniques-for-instagram-live-and-igtv/"><u>[New] In 2024, Textual Enhancement Techniques for Instagram Live and IGTV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-a-list-playbook-swiftly-climb-the-social-ladder-on-instagram-with-these-essentials/"><u>[New] In 2024, The A-List Playbook  Swiftly Climb the Social Ladder on Instagram with These Essentials</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-pathway-to-popularity-masterful-igtv-video-posts/"><u>[New] In 2024, The Pathway to Popularity  Masterful IGTV Video Posts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-dynamic-duo-approach-using-two-photos-in-one-instagram-story-for-2024/"><u>[New] The Dynamic Duo Approach  Using Two Photos in One Instagram Story for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-insiders-handbook-for-instagram-video-woes-for-2024/"><u>[New] The Insider’s Handbook for Instagram Video Woes for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-secret-behind-crafting-mesmerizing-slow-motion-media-for-instagram-for-2024/"><u>[New] The Secret Behind Crafting Mesmerizing Slow Motion Media for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-15-trusty-and-gratis-instagram-follower-finder-tools-for-both-systems-for-2024/"><u>[New] Top 15 Trusty & Gratis Instagram Follower Finder Tools for Both Systems for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unleash-creativity-with-these-innovative-6-apps-for-instagram-reels-for-2024/"><u>[New] Unleash Creativity with These Innovative 6 Apps for Instagram Reels for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-precision-polling-on-instagram-crafting-survey-content/"><u>[Updated] 2024 Approved  Precision Polling on Instagram  Crafting Survey Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-staying-pure-hearted-amidst-the-ruse-of-ratings-and-likes/"><u>[Updated] 2024 Approved  Staying Pure-Hearted Amidst the Ruse of Ratings and Likes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unlock-ig-success-with-expert-insights-on-loop-videos/"><u>[Updated] 2024 Approved  Unlock IG Success with Expert Insights on Loop Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-boosting-your-content-visibility-with-youtubes-spotlight-channels/"><u>[Updated] In 2024, Boosting Your Content Visibility with YouTube's Spotlight Channels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unlock-clear-shots-instagram-storys-in-and-out-tactics/"><u>[Updated] In 2024, Unlock Clear Shots  Instagram Story's In and Out Tactics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-smooth-reels-enhancing-android-video-clarity-for-2024/"><u>[Updated] Smooth 'Reels'  Enhancing Android Video Clarity for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-speeding-up-instagram-media-mobile-methods-for-2024/"><u>[Updated] Speeding Up Instagram Media  Mobile Methods for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-tactical-timing-for-topic-tracking-via-instagram-story-polls-for-2024/"><u>[Updated] Tactical Timing for Topic Tracking via Instagram Story Polls for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-transforming-a-simple-story-into-an-epic-visual-narrative-for-2024/"><u>[Updated] Transforming a Simple Story Into an Epic Visual Narrative for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-finding-the-best-free-subtitle-conversion-services/"><u>2024 Approved  Finding the Best Free Subtitle Conversion Services</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-realme-11-proplus-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Realme 11 Pro+ is off? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-iphone-11-pro-max-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-honor-magic-5-lite-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Honor Magic 5 Lite Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-maximizing-video-game-earnings/"><u>In 2024, Maximizing Video Game Earnings</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-12-pro-max-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 12 Pro Max? Fixed | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-unleash-your-gopro-footage-a-quik-review-and-top-pc-video-editing-alternatives/"><u>New 2024 Approved Unleash Your GoPro Footage A Quik Review and Top PC Video Editing Alternatives</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-nokia-xr21-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Nokia XR21 has been deleted.</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/rhythmic-revelation-an-online-journey-to-single-out-the-beat-for-2024/"><u>Rhythmic Revelation An Online Journey to Single Out the Beat for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-the-most-complete-guide-to-make-fortnite-montage/"><u>Updated 2024 Approved The Most Complete Guide to Make Fortnite Montage</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-great-guide-for-beginners-on-2d-animation-making-for-2024/"><u>Updated Great Guide for Beginners on 2D Animation Making for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-modern-techniques-for-shrinking-digital-file-dimensions/"><u>Updated In 2024, Modern Techniques for Shrinking Digital File Dimensions</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-what-is-the-best-filmora-slideshow-templates-experts-choice/"><u>Updated In 2024, What Is the Best Filmora Slideshow Templates? Experts Choice</u></a></li>
+</ul></div>

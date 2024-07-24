@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Instagram Edge  A Quick Guide to Editing Vertical Footage in Final Cut\""
-date: 2024-05-21T14:55:01.810Z
-updated: 2024-05-22T14:55:01.810Z
+date: 2024-07-23T17:31:29.743Z
+updated: 2024-07-24T17:31:29.743Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] The Instagram Edge: A Quick Guide to Editing Vertical Footage in Final Cut\""
 excerpt: "\"This Article Describes [Updated] The Instagram Edge: A Quick Guide to Editing Vertical Footage in Final Cut\""
 keywords: "Vertical Editing Tips,Instagram Cinematography,FCP X for Videographers,Social Media Film Editing,Quick Final Cut Guide,Footage Filtration Hacks,Video Editing Tricks"
-thumbnail: https://www.lifewire.com/thmb/tEMnnUjKAHz6RxWmsp5GZiTQbVc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/using-amazon-alexa-app-for-echo-dot-3rd-generation_t20_YELgBm-03cb8e88e0644a5a949e0ef9e69cfde7.jpg
+thumbnail: https://thmb.techidaily.com/865ed323eb71130c7276babe580275f4674927ba17ed6f4bfafe6ec23c46bab1.jpg
 ---
 
 ## The Instagram Edge: A Quick Guide to Editing Vertical Footage in Final Cut
@@ -33,6 +33,9 @@ Luckily, you can edit vertical video in **Final Cut Pro** or make an Instagram v
 
 You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
 
 ## Part 1: Introduction to Vertical Videos for Instagram
@@ -108,6 +111,231 @@ Vertical video is a great option to showcase wide and tall subjects where you ca
 
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Jan 23, 2024• Proven solutions
+
+If you are a popular user of **Instagram** or **Snapchat**, you would ultimately have found how vital **vertical videos** are. Yes, recently, it is mainstream that is a norm and prevalent on YouTube.
+
+Especially after introducing Instagram Stories and IGTV, vertical footage rose as the top preference with numerous benefits like small center space on the player and unawkward display. But, there are times when the vertically shot video turns horizontal, leaving you hopeless.
+
+Luckily, you can edit vertical video in **Final Cut Pro** or make an Instagram video in Final Cut Pro. Today, we will cover some interesting tips to create vertical videos for Instagram as well for you.
+
+You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
+
+## Part 1: Introduction to Vertical Videos for Instagram
+
+Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
+
+| **Factors**                      | Specs                                                    |
+| -------------------------------- | -------------------------------------------------------- |
+| **Video format**                 | MP4                                                      |
+| **Maximum dimension**            | 1080 pixels                                              |
+| **Aspect ratio**                 | Maximum: 9:16 Minimum: 4:5                               |
+| **Video aspect ratio supported** | Square (1:1), Vertical (4:5), Landscape (1:91:1)         |
+| **Video size**                   | 15MB to 650MB for less than 10 mins 3.6GB for 60 minutes |
+| **Video length**                 | Minimum: 15 seconds Maximum: 60 minutes                  |
+| **Video codecs supported**       | VP8                                                      |
+| **Audio codecs supported**       | 128 kbps, Vorbis                                         |
+
+## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
+
+Thus, to edit vertical video for Instagram in Final Cut Pro X, all you need is to follow the steps given below. We have also covered how to export vertical videos for Instagram in FCPX without black bars.
+
+**Step 1: Start a new project**
+
+To start a new Final Cut Pro project, go to “File > New > Project”.
+
+Now, you need to optimize the media. We mostly recommend you reach the interface like below to enter the project name, location, etc.
+
+Whereby, tapping the “Use Custom Settings” option, you can access further options like resolution wherefrom the video dropdown, choose the **Custom** option, and set the resolution. Once optimized, tap **OK**.
+
+**Step 2: Import media files**
+
+Now, you can import the shorter videos shot on your smartphone by “File > Import > Media”.
+
+**Step 3: Transform the video**
+
+Once imported, take them to the timeline. If you don’t wish to crop the horizontal video, you can rotate it to click the “Transform” option under the video inspector icon.
+
+**Step 4: Rotate the video**
+
+You will now get the rotated markers. By using them, you can rotate the video 90 degrees.
+
+The video will now rotate, and if you want the video to be at the center, with black or white bars above or below the video, then you need to execute “Titles & Generators > select the color > drag it to the clips”.
+
+If you wish the video to fill the entire frame without any color bars, then you can drag the pointer and expand the video and scale it.
+
+**Step 5: Export the video**
+
+If you finish the vertical video editing, then it’s time to export or save the video, and here is how to export vertical videos for Instagram in FCPX.
+
+Go to “File > Share > Apple Devices 1080p”, where you can check the resolution and other details.
+
+Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 3: Tips on Editing Vertical Videos for Instagram
+
+Are you now satisfied that now you know how to edit vertical video for Instagram in Final Cut Pro on Mac? Here is another bonus section regarding tips on vertical videos for Instagram in addition to the video specs. Read through them as we have covered how to make vertical videos stunning for Instagram.
+
+**Tip 1: Be specific to vertical**
+
+Why get worked up by shooting the video in Landscape and cropping them? To make it a hassle-free task so that you can share the video on multiple platforms like Facebook and YouTube, you can turn your camera upright on your smartphone and shoot the vertical footage for the best results. Doing so will let you complete control over the screen to fill the whole frame for a better viewing experience. If on camera, you can rotate it to 90 degrees.
+
+**Tip 2: Post-produce edit from horizontal to vertical**
+
+Is the video already shot horizontally on your camera or smartphone? No worries, as you can edit them to the desired aspect ratio from 16:9 to 9:16 with the assistance of software like iMovie, Final Cut Pro X, and other third-party applications like [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/). This tactic's only challenge is that you need to be ready to crop the left and right sides of the shot or recorded video, and do not forget that the concept needs to be centralized!
+
+**Tip 3: Crop to reveal details**
+
+Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
+## Conclusion
+
+Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Jan 23, 2024• Proven solutions
+
+If you are a popular user of **Instagram** or **Snapchat**, you would ultimately have found how vital **vertical videos** are. Yes, recently, it is mainstream that is a norm and prevalent on YouTube.
+
+Especially after introducing Instagram Stories and IGTV, vertical footage rose as the top preference with numerous benefits like small center space on the player and unawkward display. But, there are times when the vertically shot video turns horizontal, leaving you hopeless.
+
+Luckily, you can edit vertical video in **Final Cut Pro** or make an Instagram video in Final Cut Pro. Today, we will cover some interesting tips to create vertical videos for Instagram as well for you.
+
+You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: Introduction to Vertical Videos for Instagram
+
+Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
+
+| **Factors**                      | Specs                                                    |
+| -------------------------------- | -------------------------------------------------------- |
+| **Video format**                 | MP4                                                      |
+| **Maximum dimension**            | 1080 pixels                                              |
+| **Aspect ratio**                 | Maximum: 9:16 Minimum: 4:5                               |
+| **Video aspect ratio supported** | Square (1:1), Vertical (4:5), Landscape (1:91:1)         |
+| **Video size**                   | 15MB to 650MB for less than 10 mins 3.6GB for 60 minutes |
+| **Video length**                 | Minimum: 15 seconds Maximum: 60 minutes                  |
+| **Video codecs supported**       | VP8                                                      |
+| **Audio codecs supported**       | 128 kbps, Vorbis                                         |
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
+
+Thus, to edit vertical video for Instagram in Final Cut Pro X, all you need is to follow the steps given below. We have also covered how to export vertical videos for Instagram in FCPX without black bars.
+
+**Step 1: Start a new project**
+
+To start a new Final Cut Pro project, go to “File > New > Project”.
+
+Now, you need to optimize the media. We mostly recommend you reach the interface like below to enter the project name, location, etc.
+
+Whereby, tapping the “Use Custom Settings” option, you can access further options like resolution wherefrom the video dropdown, choose the **Custom** option, and set the resolution. Once optimized, tap **OK**.
+
+**Step 2: Import media files**
+
+Now, you can import the shorter videos shot on your smartphone by “File > Import > Media”.
+
+**Step 3: Transform the video**
+
+Once imported, take them to the timeline. If you don’t wish to crop the horizontal video, you can rotate it to click the “Transform” option under the video inspector icon.
+
+**Step 4: Rotate the video**
+
+You will now get the rotated markers. By using them, you can rotate the video 90 degrees.
+
+The video will now rotate, and if you want the video to be at the center, with black or white bars above or below the video, then you need to execute “Titles & Generators > select the color > drag it to the clips”.
+
+If you wish the video to fill the entire frame without any color bars, then you can drag the pointer and expand the video and scale it.
+
+**Step 5: Export the video**
+
+If you finish the vertical video editing, then it’s time to export or save the video, and here is how to export vertical videos for Instagram in FCPX.
+
+Go to “File > Share > Apple Devices 1080p”, where you can check the resolution and other details.
+
+Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+## Part 3: Tips on Editing Vertical Videos for Instagram
+
+Are you now satisfied that now you know how to edit vertical video for Instagram in Final Cut Pro on Mac? Here is another bonus section regarding tips on vertical videos for Instagram in addition to the video specs. Read through them as we have covered how to make vertical videos stunning for Instagram.
+
+**Tip 1: Be specific to vertical**
+
+Why get worked up by shooting the video in Landscape and cropping them? To make it a hassle-free task so that you can share the video on multiple platforms like Facebook and YouTube, you can turn your camera upright on your smartphone and shoot the vertical footage for the best results. Doing so will let you complete control over the screen to fill the whole frame for a better viewing experience. If on camera, you can rotate it to 90 degrees.
+
+**Tip 2: Post-produce edit from horizontal to vertical**
+
+Is the video already shot horizontally on your camera or smartphone? No worries, as you can edit them to the desired aspect ratio from 16:9 to 9:16 with the assistance of software like iMovie, Final Cut Pro X, and other third-party applications like [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/). This tactic's only challenge is that you need to be ready to crop the left and right sides of the shot or recorded video, and do not forget that the concept needs to be centralized!
+
+**Tip 3: Crop to reveal details**
+
+Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -183,6 +411,9 @@ Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Tips on Editing Vertical Videos for Instagram
 
 Are you now satisfied that now you know how to edit vertical video for Instagram in Final Cut Pro on Mac? Here is another bonus section regarding tips on vertical videos for Instagram in addition to the video specs. Read through them as we have covered how to make vertical videos stunning for Instagram.
@@ -199,200 +430,16 @@ Is the video already shot horizontally on your camera or smartphone? No worries,
 
 Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Jan 23, 2024• Proven solutions
-
-If you are a popular user of **Instagram** or **Snapchat**, you would ultimately have found how vital **vertical videos** are. Yes, recently, it is mainstream that is a norm and prevalent on YouTube.
-
-Especially after introducing Instagram Stories and IGTV, vertical footage rose as the top preference with numerous benefits like small center space on the player and unawkward display. But, there are times when the vertically shot video turns horizontal, leaving you hopeless.
-
-Luckily, you can edit vertical video in **Final Cut Pro** or make an Instagram video in Final Cut Pro. Today, we will cover some interesting tips to create vertical videos for Instagram as well for you.
-
-You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
-
-## Part 1: Introduction to Vertical Videos for Instagram
-
-Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
-
-| **Factors**                      | Specs                                                    |
-| -------------------------------- | -------------------------------------------------------- |
-| **Video format**                 | MP4                                                      |
-| **Maximum dimension**            | 1080 pixels                                              |
-| **Aspect ratio**                 | Maximum: 9:16 Minimum: 4:5                               |
-| **Video aspect ratio supported** | Square (1:1), Vertical (4:5), Landscape (1:91:1)         |
-| **Video size**                   | 15MB to 650MB for less than 10 mins 3.6GB for 60 minutes |
-| **Video length**                 | Minimum: 15 seconds Maximum: 60 minutes                  |
-| **Video codecs supported**       | VP8                                                      |
-| **Audio codecs supported**       | 128 kbps, Vorbis                                         |
-
-## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
-
-Thus, to edit vertical video for Instagram in Final Cut Pro X, all you need is to follow the steps given below. We have also covered how to export vertical videos for Instagram in FCPX without black bars.
-
-**Step 1: Start a new project**
-
-To start a new Final Cut Pro project, go to “File > New > Project”.
-
-Now, you need to optimize the media. We mostly recommend you reach the interface like below to enter the project name, location, etc.
-
-Whereby, tapping the “Use Custom Settings” option, you can access further options like resolution wherefrom the video dropdown, choose the **Custom** option, and set the resolution. Once optimized, tap **OK**.
-
-**Step 2: Import media files**
-
-Now, you can import the shorter videos shot on your smartphone by “File > Import > Media”.
-
-**Step 3: Transform the video**
-
-Once imported, take them to the timeline. If you don’t wish to crop the horizontal video, you can rotate it to click the “Transform” option under the video inspector icon.
-
-**Step 4: Rotate the video**
-
-You will now get the rotated markers. By using them, you can rotate the video 90 degrees.
-
-The video will now rotate, and if you want the video to be at the center, with black or white bars above or below the video, then you need to execute “Titles & Generators > select the color > drag it to the clips”.
-
-If you wish the video to fill the entire frame without any color bars, then you can drag the pointer and expand the video and scale it.
-
-**Step 5: Export the video**
-
-If you finish the vertical video editing, then it’s time to export or save the video, and here is how to export vertical videos for Instagram in FCPX.
-
-Go to “File > Share > Apple Devices 1080p”, where you can check the resolution and other details.
-
-Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 3: Tips on Editing Vertical Videos for Instagram
-
-Are you now satisfied that now you know how to edit vertical video for Instagram in Final Cut Pro on Mac? Here is another bonus section regarding tips on vertical videos for Instagram in addition to the video specs. Read through them as we have covered how to make vertical videos stunning for Instagram.
-
-**Tip 1: Be specific to vertical**
-
-Why get worked up by shooting the video in Landscape and cropping them? To make it a hassle-free task so that you can share the video on multiple platforms like Facebook and YouTube, you can turn your camera upright on your smartphone and shoot the vertical footage for the best results. Doing so will let you complete control over the screen to fill the whole frame for a better viewing experience. If on camera, you can rotate it to 90 degrees.
-
-**Tip 2: Post-produce edit from horizontal to vertical**
-
-Is the video already shot horizontally on your camera or smartphone? No worries, as you can edit them to the desired aspect ratio from 16:9 to 9:16 with the assistance of software like iMovie, Final Cut Pro X, and other third-party applications like [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/). This tactic's only challenge is that you need to be ready to crop the left and right sides of the shot or recorded video, and do not forget that the concept needs to be centralized!
-
-**Tip 3: Crop to reveal details**
-
-Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
-
-## Conclusion
-
-Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Jan 23, 2024• Proven solutions
-
-If you are a popular user of **Instagram** or **Snapchat**, you would ultimately have found how vital **vertical videos** are. Yes, recently, it is mainstream that is a norm and prevalent on YouTube.
-
-Especially after introducing Instagram Stories and IGTV, vertical footage rose as the top preference with numerous benefits like small center space on the player and unawkward display. But, there are times when the vertically shot video turns horizontal, leaving you hopeless.
-
-Luckily, you can edit vertical video in **Final Cut Pro** or make an Instagram video in Final Cut Pro. Today, we will cover some interesting tips to create vertical videos for Instagram as well for you.
-
-You may also like: [How to Get 90-day Free Trial of FCPX](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![Instagram-video](https://images.wondershare.com/filmora/images/final-cut-pro/Instagram-video.jpg)
-
-## Part 1: Introduction to Vertical Videos for Instagram
-
-Before entering the nitty-gritty on how to edit vertical videos with FCPX, you should first know certain specifications regarding vertical videos for Instagram. Yes, when it comes to Instagram IGTV videos or stories, vertical or portrait orientated videos are preferable. Thus, knowing the below technical specs can help you.
-
-| **Factors**                      | Specs                                                    |
-| -------------------------------- | -------------------------------------------------------- |
-| **Video format**                 | MP4                                                      |
-| **Maximum dimension**            | 1080 pixels                                              |
-| **Aspect ratio**                 | Maximum: 9:16 Minimum: 4:5                               |
-| **Video aspect ratio supported** | Square (1:1), Vertical (4:5), Landscape (1:91:1)         |
-| **Video size**                   | 15MB to 650MB for less than 10 mins 3.6GB for 60 minutes |
-| **Video length**                 | Minimum: 15 seconds Maximum: 60 minutes                  |
-| **Video codecs supported**       | VP8                                                      |
-| **Audio codecs supported**       | 128 kbps, Vorbis                                         |
-
-## Part 2: How to Edit and Export Vertical Videos for Instagram in Final Cut Pro X?
-
-Thus, to edit vertical video for Instagram in Final Cut Pro X, all you need is to follow the steps given below. We have also covered how to export vertical videos for Instagram in FCPX without black bars.
-
-**Step 1: Start a new project**
-
-To start a new Final Cut Pro project, go to “File > New > Project”.
-
-Now, you need to optimize the media. We mostly recommend you reach the interface like below to enter the project name, location, etc.
-
-Whereby, tapping the “Use Custom Settings” option, you can access further options like resolution wherefrom the video dropdown, choose the **Custom** option, and set the resolution. Once optimized, tap **OK**.
-
-**Step 2: Import media files**
-
-Now, you can import the shorter videos shot on your smartphone by “File > Import > Media”.
-
-**Step 3: Transform the video**
-
-Once imported, take them to the timeline. If you don’t wish to crop the horizontal video, you can rotate it to click the “Transform” option under the video inspector icon.
-
-**Step 4: Rotate the video**
-
-You will now get the rotated markers. By using them, you can rotate the video 90 degrees.
-
-The video will now rotate, and if you want the video to be at the center, with black or white bars above or below the video, then you need to execute “Titles & Generators > select the color > drag it to the clips”.
-
-If you wish the video to fill the entire frame without any color bars, then you can drag the pointer and expand the video and scale it.
-
-**Step 5: Export the video**
-
-If you finish the vertical video editing, then it’s time to export or save the video, and here is how to export vertical videos for Instagram in FCPX.
-
-Go to “File > Share > Apple Devices 1080p”, where you can check the resolution and other details.
-
-Too many steps? Then try a **beginner-friendly editing tool**, Filmora!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 3: Tips on Editing Vertical Videos for Instagram
-
-Are you now satisfied that now you know how to edit vertical video for Instagram in Final Cut Pro on Mac? Here is another bonus section regarding tips on vertical videos for Instagram in addition to the video specs. Read through them as we have covered how to make vertical videos stunning for Instagram.
-
-**Tip 1: Be specific to vertical**
-
-Why get worked up by shooting the video in Landscape and cropping them? To make it a hassle-free task so that you can share the video on multiple platforms like Facebook and YouTube, you can turn your camera upright on your smartphone and shoot the vertical footage for the best results. Doing so will let you complete control over the screen to fill the whole frame for a better viewing experience. If on camera, you can rotate it to 90 degrees.
-
-**Tip 2: Post-produce edit from horizontal to vertical**
-
-Is the video already shot horizontally on your camera or smartphone? No worries, as you can edit them to the desired aspect ratio from 16:9 to 9:16 with the assistance of software like iMovie, Final Cut Pro X, and other third-party applications like [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/). This tactic's only challenge is that you need to be ready to crop the left and right sides of the shot or recorded video, and do not forget that the concept needs to be centralized!
-
-**Tip 3: Crop to reveal details**
-
-Vertical video is a great option to showcase wide and tall subjects where you can place close-ups and show off details to get up close and personal. It could be a product or fabric. You can showcase enticing minor elements that attract an audience in such landscape shots.
-
-## Conclusion
-
-Hence, I am sure you found new tactics to create vertical videos for Instagram. Therefore, put them into practice the next time you make your vertical video for a story or IGTV. Is your video shot or recorded horizontal by mistake? No more worry, as you can edit vertical video for Instagram in the Final Cut Pro. Finally, with a complete guide on how to edit vertical videos with FCPX, our blog for the day is over.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -424,3 +471,53 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/losing-with-panache-free-youtubes-1-six-in-2024/"><u>[New] Closing with Panache  Free YouTube's #1 Six, In 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-youtube-intro-steps-and-template-guide-for-2024/"><u>[New] Free YouTube Intro Steps and Template Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-keep-your-digital-treasures-storing-insta-media-on-iphone-for-2024/"><u>[New] Keep Your Digital Treasures  Storing Insta Media on iPhone for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-privacy-purposed-selecting-best-insta-watchers/"><u>[New] Privacy-Purposed  Selecting Best Insta Watchers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-quick-fixes-screen-capturing-on-instagrams-feed/"><u>[New] Quick Fixes  Screen Capturing on Instagram's Feed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-slow-it-down-high-quality-moments-in-instagram-reels/"><u>[New] Slow It Down  High-Quality Moments in Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-strategies-for-longer-content-on-the-social-network-giant/"><u>[New] Strategies for Longer Content on the Social Network Giant</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-insta-elite-blueprint-15-proven-tips-to-amass-thousands-of-followers-rapidly/"><u>[New] The Insta Elite Blueprint  15 Proven Tips to Amass Thousands of Followers Rapidly</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-transform-your-instagram-vocal-identity-today/"><u>[New] Transform Your Instagram Vocal Identity Today</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-followers-and-posts-10-instagram-essentials-to-watch/"><u>[Updated] Followers & Posts  10 Instagram Essentials to Watch</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discover-8-trustworthy-online-content-promoters/"><u>[Updated] In 2024, Discover 8 Trustworthy Online Content Promoters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-navigating-the-world-of-unfollowed-instagrams/"><u>[Updated] In 2024, Navigating the World of Unfollowed Instagrams</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-playlist-power-instagrams-musical-edge/"><u>[Updated] Playlist Power  Instagram's Musical Edge</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-stealth-mode-best-apps-for-instagram-viewing/"><u>[Updated] Stealth Mode  Best Apps for Instagram Viewing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-stealthy-methods-to-watch-unseen-stories/"><u>[Updated] Stealthy Methods to Watch Unseen Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-streamline-creative-filmmaking-with-instagrams-background-swap/"><u>[Updated] Streamline Creative Filmmaking with Instagram's Background Swap</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-top-15-instagram-videophoto-downloaders-online-and-add-on-and-app-solutions/"><u>[Updated] Top 15 Instagram Video/Photo Downloaders – Online & Add-On & App Solutions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-trendsetters-guide-selecting-best-tools-to-craft-instagram-videos/"><u>[Updated] Trendsetters’ Guide  Selecting Best Tools to Craft Instagram Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-turning-views-into-cash-secrets-to-successful-facebook-video-money-making-for-2024/"><u>[Updated] Turning Views Into Cash  Secrets to Successful Facebook Video Money-Making for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-xiaomi-redmi-12-5g-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-pro-video-tips-add-borders-and-raise-quality-on-ig/"><u>2024 Approved  Pro Video Tips  Add Borders and Raise Quality on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-quick-guide-to-influential-instagram-hashtags/"><u>2024 Approved  Quick Guide to Influential #Instagram Hashtags</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-quickfirerecorder-firefox-plugin/"><u>2024 Approved  QuickFireRecorder Firefox Plugin</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-secure-your-insta-reels-with-simple-download-strategies/"><u>2024 Approved  Secure Your Insta Reels with Simple Download Strategies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-ten-simple-steps-to-acquire-igtv-media/"><u>2024 Approved  Ten Simple Steps to Acquire IGTV Media</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-top-10-memes-blending-hilarity-and-emotional-depth-on-insta/"><u>2024 Approved  Top 10 Memes Blending Hilarity and Emotional Depth on Insta</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/audience-friendly-approach-to-pc-audio-recording-using-audacity-gratis/"><u>Audience-Friendly Approach to PC Audio Recording Using Audacity Gratis</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-your-channels-pathway-youtubian-starter-pack-earning-money-for-2024/"><u>Creating Your Channel's Pathway  Youtubian Starter Pack, Earning Money for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-poco-m6-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-unveil-full-length-videos-in-yt/"><u>How to Unveil Full-Length Videos in YT</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-perfect-your-ig-photos-with-the-ideal-frame-choices/"><u>In 2024, Perfect Your IG Photos with the Ideal Frame Choices</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-asus-rog-phone-7-ultimate-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Asus ROG Phone 7 Ultimate to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-quick-launch-diving-into-live-conversations-on-instagram/"><u>In 2024, Quick Launch  Diving Into Live Conversations on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-seamless-instagram-video-mp4-conversion-pro-strategies-unlocked/"><u>In 2024, Seamless Instagram Video-MP4 Conversion - Pro Strategies Unlocked</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-insiders-trick-for-automatic-and-smooth-youtube-video-replays/"><u>In 2024, The Insider's Trick for Automatic and Smooth YouTube Video Replays</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-transforming-film-frames-on-insta-with-easy-steps/"><u>In 2024, Transforming Film Frames on Insta with Easy Steps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-the-dangers-of-fabricated-followers-on-feed-for-2024/"><u>Navigating the Dangers of Fabricated Followers on Feed for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/self-verification-on-instagram-what-does-it-mean-for-us-in-2024/"><u>Self-Verification on Instagram - What Does It Mean for Us, In 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-xiaomi-redmi-note-12-4g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Xiaomi Redmi Note 12 4G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/strategic-instagram-video-marketing-secrets-to-captivating-audiences-for-2024/"><u>Strategic Instagram Video Marketing  Secrets to Captivating Audiences for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/streamline-your-videos-a-guide-to-igtv-posting-for-2024/"><u>Streamline Your Videos  A Guide to IGTV Posting for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-art-of-patience-mastering-the-craft-of-producing-captivating-slow-motion-videos-and-photos-for-instagram-for-2024/"><u>The Art of Patience  Mastering the Craft of Producing Captivating Slow Motion Videos and Photos for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-essential-tutorial-for-creating-a-biz-focused-instagram-for-2024/"><u>The Essential Tutorial for Creating a Biz-Focused Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-quick-guide-to-instagrams-magnification-magic-for-2024/"><u>The Quick Guide to Instagram's Magnification Magic for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-guide-to-instas-trendy-filters-for-2024/"><u>The Ultimate Guide to Insta's Trendy Filters for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-rule-book-on-instagram-video-length-for-2024/"><u>The Ultimate Rule Book on Instagram Video Length for 2024</u></a></li>
+</ul></div>

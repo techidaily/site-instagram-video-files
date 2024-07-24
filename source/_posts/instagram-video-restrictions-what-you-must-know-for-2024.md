@@ -1,7 +1,7 @@
 ---
 title: "\"Instagram Video Restrictions  What You Must Know for 2024\""
-date: 2024-05-21T14:38:14.461Z
-updated: 2024-05-22T14:38:14.461Z
+date: 2024-07-23T16:42:55.849Z
+updated: 2024-07-24T16:42:55.849Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Instagram Video Restrictions: What You Must Know for 2024\""
 excerpt: "\"This Article Describes Instagram Video Restrictions: What You Must Know for 2024\""
 keywords: "Insta Video Limits,Social Media Policies,Content Regulation,Account Bans,Platform Guidelines,Video Policy Explain,Restricted Instagram Videos"
-thumbnail: https://www.lifewire.com/thmb/EyLyxngomIHjNeq1Cxo1twyGMsI=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/SoftwareandApps_GettyImages-1318174723_OscarWong_CROPPED-0f8969cb51804bae823c37f02a6cd3e8.jpg
+thumbnail: https://thmb.techidaily.com/e8d04162a361e101c6d5fe7cceb85fa9aae79c5e50584f8b8db01d521f6c1c1d.jpg
 ---
 
 ## Instagram Video Restrictions: What You Must Know
@@ -43,6 +43,9 @@ We'll start by discussing what we mean by "Instagram video." Instagram video enc
 
 Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![instagram video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-1.png)
 
 #### Instagram Story Video
@@ -93,6 +96,9 @@ The maximum length of an Instagram Story video ad is two minutes. You can utiliz
 
 Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## How Do You Adjust The Duration Of Your Video For Instagram?
 
 You must be thinking about how to upload flawlessly every time with all of these time limits and video publication options. Here are some helpful hints:
@@ -112,6 +118,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
@@ -144,6 +153,18 @@ Each Instagram Story has a length of 15-second time limit. If you upload a video
 
 Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
 
 #### Instagram Reels
@@ -168,6 +189,9 @@ The videos you submit to your main Instagram page, rather than your Stories, are
 
 Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
 
 #### IG Feed Video Ads
@@ -203,6 +227,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
@@ -221,6 +248,10 @@ We'll start by discussing what we mean by "Instagram video." Instagram video enc
 
 03 [Tutorial for How to Record on GarageBand](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## How Long Can An Instagram Video Be?
 
 Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
@@ -259,6 +290,18 @@ The videos you submit to your main Instagram page, rather than your Stories, are
 
 Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
 
 #### IG Feed Video Ads
@@ -275,6 +318,9 @@ The maximum length of an Instagram Story video ad is two minutes. You can utiliz
 
 Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do You Adjust The Duration Of Your Video For Instagram?
 
 You must be thinking about how to upload flawlessly every time with all of these time limits and video publication options. Here are some helpful hints:
@@ -294,6 +340,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** That's all there is to know about the length of Instagram videos. Isn't it simple? Take the advice above, make your videos as long as possible, and post when your followers are online, and your post engagement and follower count will skyrocket.
@@ -312,6 +361,18 @@ We'll start by discussing what we mean by "Instagram video." Instagram video enc
 
 03 [Tutorial for How to Record on GarageBand](#part3)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Long Can An Instagram Video Be?
 
 Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
@@ -326,6 +387,9 @@ Each Instagram Story has a length of 15-second time limit. If you upload a video
 
 Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
 
 #### Instagram Reels
@@ -350,6 +414,9 @@ The videos you submit to your main Instagram page, rather than your Stories, are
 
 Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
 
 #### IG Feed Video Ads
@@ -412,3 +479,49 @@ For macOS 10.12 or later
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-final-farewell-to-your-instagram-world-process-and-steps-for-2024/"><u>[New] A Final Farewell to Your Instagram World  Process & Steps for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-a-beginners-guide-to-customizing-your-instagram-snapshonscape/"><u>[New] In 2024, A Beginner's Guide to Customizing Your Instagram Snapshonscape</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-crafting-captivating-ig-stories-with-youtube-content/"><u>[New] In 2024, Crafting Captivating IG Stories With YouTube Content</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-is-there-a-perfect-fps-for-everyone-comparing-30-and-60/"><u>[New] In 2024, Is There a 'Perfect' FPS for Everyone? Comparing 30 and 60</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premium-software-selection-upload-videos-for-twitter/"><u>[New] Premium Software Selection  Upload Videos for Twitter</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-quick-and-effective-methods-to-save-instagram-stories/"><u>[New] Quick & Effective Methods to Save Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-shoot-exceptional-igtv-video-content-with-mobile-and-professional-cameras/"><u>[New] Shoot Exceptional IGTV Video Content with Mobile & Professional Cameras</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-fast-track-to-fashionista-status-on-instagram-our-essential-guide-for-speed-up-star-chasers/"><u>[New] The Fast Track to Fashionista Status on Instagram  Our Essential Guide for Speed-Up Star Chasers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-essential-tips-for-high-quality-audacity-recording/"><u>[Updated] 2024 Approved  Essential Tips for High-Quality Audacity Recording</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-exclusive-twitter-gif-compiler-for-avid-scribes/"><u>[Updated] 2024 Approved  Exclusive Twitter GIF Compiler for Avid Scribes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-complete-breakdown-enhancing-your-experience-with-advanced-mobizen-techniques-for-2024/"><u>[Updated] Complete Breakdown  Enhancing Your Experience with Advanced Mobizen Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigating-the-landscape-of-facebook-ad-effectiveness/"><u>[Updated] In 2024, Navigating the Landscape of Facebook Ad Effectiveness</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-maximizing-your-income-potential-on-instagram/"><u>[Updated] Maximizing Your Income Potential on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-video-sizes-on-instagram-the-ultimate-2023-guide/"><u>[Updated] Navigating Video Sizes on Instagram - The Ultimate 2023 Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-quick-and-free-method-to-spot-fibs-on-your-insta-circle/"><u>[Updated] Quick & Free Method to Spot Fibs on Your Insta Circle</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-simplify-media-handling-with-top-18-free-converters-for-windowsmacos-users/"><u>[Updated] Simplify Media Handling With Top 18 Free Converters For Windows/macOS Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-step-by-step-guide-to-enhancing-old-photos-and-videos-with-ig-effects/"><u>[Updated] Step-by-Step Guide to Enhancing Old Photos and Videos with IG Effects</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-textual-enhancement-techniques-for-instagram-live-and-igtv/"><u>[Updated] Textual Enhancement Techniques for Instagram Live and IGTV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-quick-fix-guide-to-instagram-popularity-accelerate-your-visibility-with-15-tricks-of-the-trade/"><u>[Updated] The Quick-Fix Guide to Instagram Popularity  Accelerate Your Visibility with 15 Tricks of the Trade</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-method-for-recorded-instagram-stories/"><u>[Updated] The Ultimate Method for Recorded Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-understanding-instagrams-privacy-controls/"><u>[Updated] Understanding Instagram's Privacy Controls</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-best-tiktok-video-editing-tips/"><u>2024 Approved  Best Tiktok Video Editing Tips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-supercharging-instagram-videos-on-the-go-mobile/"><u>2024 Approved  Supercharging Instagram Videos on the Go (Mobile)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-ultimate-toolkit-disabling-background-noise-during-gmeets/"><u>2024 Approved  The Ultimate Toolkit  Disabling Background Noise During GMeets</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unlock-the-secrets-to-amazing-instagram-films/"><u>2024 Approved  Unlock the Secrets to Amazing Instagram Films</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unlocking-popularity-the-best-hashtags-to-use-on-instagram/"><u>2024 Approved  Unlocking Popularity  The Best #Hashtags to Use on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unraveling-time-reverse-video-on-instagram-secrets/"><u>2024 Approved  Unraveling Time  Reverse Video on Instagram Secrets</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-tecno-camon-20-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Tecno Camon 20 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-scouring-influencers-tailoring-your-niches-insta-community/"><u>In 2024, Scouring Influencers  Tailoring Your Niche's Insta Community</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-subtitle-tips-for-instagram-tv-storytelling/"><u>In 2024, Subtitle Tips for Instagram TV Storytelling</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-leaderboard-top-15-free-and-secure-apps-to-grow-your-insta-circle/"><u>In 2024, The Leaderboard  Top 15 Free & Secure Apps to Grow Your Insta Circle</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-ultimate-toolbox-for-unraveling-instagrams-hidden-data/"><u>In 2024, The Ultimate Toolbox for Unraveling Instagram's Hidden Data</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-toggle-off-instagram-tv-feature/"><u>In 2024, Toggle Off Instagram TV Feature</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-whats-not-advertised-ten-facts-about-instagram-reels/"><u>In 2024, What's Not Advertised  Ten Facts About Instagram Reels</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-finding-your-perfect-mp3-trimmer-on-macos-compare-the-best-audio-editors/"><u>New 2024 Approved Finding Your Perfect MP3 Trimmer on macOS Compare the Best Audio Editors</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/optimizing-engagement-on-igtv-through-thoughtful-dimension-tweaks-for-2024/"><u>Optimizing Engagement on IGTV Through Thoughtful Dimension Tweaks for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/picture-perfect-the-essential-photo-editing-tools-for-2024/"><u>Picture Perfect  The Essential Photo Editing Tools for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/pursuing-seamless-integration-of-videos-on-instagram-for-2024/"><u>Pursuing Seamless Integration of Videos on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/spotting-instagrams-newly-deactivated-accounts-for-2024/"><u>Spotting Instagram's Newly Deactivated Accounts for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-art-of-reel-production-embedding-soundtracks-for-2024/"><u>The Art of Reel Production  Embedding Soundtracks for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-guide-to-instagram-looping-videos-for-2024/"><u>The Ultimate Guide to Instagram Looping Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-step-by-step-on-instagram-filter-usage-2023-for-2024/"><u>The Ultimate Step-by-Step on Instagram Filter Usage 2023 for 2024</u></a></li>
+</ul></div>

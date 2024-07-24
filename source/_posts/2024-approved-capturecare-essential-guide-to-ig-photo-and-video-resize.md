@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  CaptureCare  Essential Guide to IG Photo & Video Resize\""
-date: 2024-05-21T14:46:14.231Z
-updated: 2024-05-22T14:46:14.231Z
+date: 2024-07-23T17:05:59.433Z
+updated: 2024-07-24T17:05:59.433Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: CaptureCare: Essential Guide to IG Photo & Video Resize\""
 excerpt: "\"This Article Describes 2024 Approved: CaptureCare: Essential Guide to IG Photo & Video Resize\""
 keywords: "PhotoResizingTips,VideoCompressionGuide,ImageSizeAdjustment,PhotographyEditingTools,VisualContentOptimization,MediaFileReductionStrategies,IGPhotoScaleTricks"
-thumbnail: https://www.lifewire.com/thmb/_atXbVpqt-bBP3NhxI9aFSkiOqU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1305200685-e977d0ca4e9a47e2b006e5b32a9922fd.jpg
+thumbnail: https://thmb.techidaily.com/d0c9b7047797b18daa1e1aa41be92c363eb13ba8f8bfa2b570a90a8bfa430bd1.jpg
 ---
 
 ## CaptureCare: Essential Guide to IG Photo & Video Resize
@@ -45,6 +45,9 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -169,12 +172,18 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
 #### Instagram's Main Feed
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -199,6 +208,9 @@ The photos you post as stories on Instagram are always vertically oriented and f
 
 The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -215,6 +227,9 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Types of Files Accepted by Instagram
 
 The first thing you need to pay attention to when uploading images and videos to Instagram is that the files you are uploading are in one of the photo or video formats that Instagram supports.
@@ -231,12 +246,24 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
 
 #### Instagram's Main Feed
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
@@ -261,6 +288,9 @@ The photos you post as stories on Instagram are always vertically oriented and f
 
 The profile pictures on Instagram are tiny, and the optimum size for them is 160X160 px, while their shape is always a square which means that you'll have to set their aspect ratio to 1:1.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -292,3 +322,42 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-the-3-essential-voice-logging-tactics-for-ipad/"><u>[New] 2024 Approved  The 3 Essential Voice Logging Tactics for iPad</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nfographic-mind-numbing-youtube-factsfigures-and-statistics-2017-for-2024/"><u>[New] Infographic - Mind Numbing YouTube Facts,Figures and Statistics 2017 for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-masterful-filmmaking-moves-with-kinemaster/"><u>[New] Masterful Filmmaking Moves with Kinemaster</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-social-media-the-finest-6-reel-enhancing-apps/"><u>[New] Mastering Social Media  The Finest 6 Reel-Enhancing Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-privacy-purposed-selecting-best-insta-watchers/"><u>[New] Privacy-Purposed  Selecting Best Insta Watchers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-quick-fixes-screen-capturing-on-instagrams-feed/"><u>[New] Quick Fixes  Screen Capturing on Instagram's Feed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-slow-it-down-high-quality-moments-in-instagram-reels/"><u>[New] Slow It Down  High-Quality Moments in Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-strategies-for-longer-content-on-the-social-network-giant/"><u>[New] Strategies for Longer Content on the Social Network Giant</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-simplifying-the-process-how-to-install-and-use-ez-grabber/"><u>[Updated] 2024 Approved  Simplifying the Process  How to Install and Use EZ Grabber</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-transform-your-presence-advanced-tricks-for-live-video-graphics/"><u>[Updated] 2024 Approved  Transform Your Presence  Advanced Tricks for Live Video Graphics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-playlist-power-instagrams-musical-edge/"><u>[Updated] Playlist Power  Instagram's Musical Edge</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-stealth-mode-best-apps-for-instagram-viewing/"><u>[Updated] Stealth Mode  Best Apps for Instagram Viewing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-stealthy-methods-to-watch-unseen-stories/"><u>[Updated] Stealthy Methods to Watch Unseen Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-streamline-creative-filmmaking-with-instagrams-background-swap/"><u>[Updated] Streamline Creative Filmmaking with Instagram's Background Swap</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-superior-audio-options-for-video-makers/"><u>[Updated] Superior Audio Options for Video Makers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-top-10-twitter-viewers-2023-edition/"><u>[Updated] The Top 10 Twitter Viewers - 2023 Edition</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-5-ways-to-record-minecraft-on-mac/"><u>2024 Approved  5 Ways to Record Minecraft on Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-aerial-photography-revolution-with-mavic-pro/"><u>2024 Approved  Aerial Photography Revolution with Mavic Pro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-affordable-aerial-acrobats-best-bargain-drones-for-(500/"><u>2024 Approved  Affordable Aerial Acrobats  Best Bargain Drones for <$500</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-pro-video-tips-add-borders-and-raise-quality-on-ig/"><u>2024 Approved  Pro Video Tips  Add Borders and Raise Quality on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-quick-guide-to-influential-instagram-hashtags/"><u>2024 Approved  Quick Guide to Influential #Instagram Hashtags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-secure-your-insta-reels-with-simple-download-strategies/"><u>2024 Approved  Secure Your Insta Reels with Simple Download Strategies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-ten-simple-steps-to-acquire-igtv-media/"><u>2024 Approved  Ten Simple Steps to Acquire IGTV Media</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-the-leading-ai-driven-podcast-name-creator-tools/"><u>Discover the Leading AI-Driven Podcast Name Creator Tools</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-poco-c50-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Poco C50</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/frequency-focus-mac-sound-setup/"><u>Frequency Focus  Mac Sound Setup</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-clearsnapzoom7-master-your-photographic-scaling/"><u>In 2024, ClearSnapZoom7  Master Your Photographic Scaling</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-navigating-the-path-to-an-official-instagram-business-page/"><u>In 2024, Navigating the Path to an Official Instagram Business Page</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-perfect-your-ig-photos-with-the-ideal-frame-choices/"><u>In 2024, Perfect Your IG Photos with the Ideal Frame Choices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-quick-launch-diving-into-live-conversations-on-instagram/"><u>In 2024, Quick Launch  Diving Into Live Conversations on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-seamless-instagram-video-mp4-conversion-pro-strategies-unlocked/"><u>In 2024, Seamless Instagram Video-MP4 Conversion - Pro Strategies Unlocked</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-the-dangers-of-fabricated-followers-on-feed-for-2024/"><u>Navigating the Dangers of Fabricated Followers on Feed for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/self-verification-on-instagram-what-does-it-mean-for-us-in-2024/"><u>Self-Verification on Instagram - What Does It Mean for Us, In 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/strategic-instagram-video-marketing-secrets-to-captivating-audiences-for-2024/"><u>Strategic Instagram Video Marketing  Secrets to Captivating Audiences for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-what-is-mov-format-and-how-to-edit-mov-video-creatively/"><u>Updated In 2024, What Is MOV Format and How To Edit MOV Video Creatively?</u></a></li>
+</ul></div>

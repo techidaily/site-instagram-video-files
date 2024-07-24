@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Create a Square Video for Instagram in iMovie for 2024"
-date: 2024-05-21T15:00:39.163Z
-updated: 2024-05-22T15:00:39.163Z
+date: 2024-07-23T17:47:50.479Z
+updated: 2024-07-24T17:47:50.479Z
 tags:
   - ai video
   - ai instagram
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] How to Create a Square Video for Instagram in iMovie for 2024"
 excerpt: "This Article Describes [New] How to Create a Square Video for Instagram in iMovie for 2024"
 keywords: "Instagram Square Video Tutorial,Creating Square iMovie Content,IMovie Square Video Guide,Making Square Instagram Videos,Square Video Filming Techniques,IMovie for Square Instagram Edits,Instagram Squares with iMovie"
-thumbnail: https://www.lifewire.com/thmb/Z3Xs6-UzsSzaSd95X6saYFKQuKE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-77744394-e5f79596e54a4ba6a914eed31be7efc4.jpg
+thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ceaf1fe51880dc088692edac0.jpg
 ---
 
 ## How to Create a Square Video for Instagram in iMovie?
@@ -157,6 +157,9 @@ The result of the reframing can be seen in the preview box after it begins. The 
 
 These steps have been written as an easy guide. Following them step by step is an assurance for having a perfect square video that thrills your viewers or followers. If you ever need to refer to the steps when stuck, don't hesitate to go over them again and again until you master this art. Now, you can edit your videos without much experience and share square videos on your Instagram page or any social media you wish to share them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -209,6 +212,9 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -259,6 +265,9 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 
 **Step #9\.** Select a location to save your square video and then click **Export**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
 
 Facebook is dominating the top ranks in video consumption platforms across the internet, thanks to its high video consumption rate. Though it includes both landscape and square films, as an influencer, you must determine if square or landscape movies perform better on Facebook. Both types of films have their own space on Facebook, but you may always choose square videos to gain an advantage. We are delighted to assist you if you are unclear on how to generate square videos on Facebook. We'll show you how to make square movies that you can share on Facebook to achieve greater internet visibility in this article.
@@ -379,6 +388,9 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
 
 iMovie does not allow you to make square videos! You won't be able to convert your video to square dimensions because there isn't a way to do it. We'll edit the video in iMovie and then modify the proportions in Keynote. Only Keynote will be used to crop the video into square dimensions. On Mac OS, Keynote is a presentation program that comes preloaded. First, use iMovie to edit your video as you typically would. Make all of the necessary modifications to the audio and video. Make use of iMovie's special editing features. After you've finished editing the video, export it from iMovie.
@@ -403,6 +415,18 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 
 **Step #9\.** Select a location to save your square video and then click **Export**.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
 
 Facebook is dominating the top ranks in video consumption platforms across the internet, thanks to its high video consumption rate. Though it includes both landscape and square films, as an influencer, you must determine if square or landscape movies perform better on Facebook. Both types of films have their own space on Facebook, but you may always choose square videos to gain an advantage. We are delighted to assist you if you are unclear on how to generate square videos on Facebook. We'll show you how to make square movies that you can share on Facebook to achieve greater internet visibility in this article.
@@ -445,6 +469,9 @@ The result of the reframing can be seen in the preview box after it begins. The 
 
 These steps have been written as an easy guide. Following them step by step is an assurance for having a perfect square video that thrills your viewers or followers. If you ever need to refer to the steps when stuck, don't hesitate to go over them again and again until you master this art. Now, you can edit your videos without much experience and share square videos on your Instagram page or any social media you wish to share them.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -497,6 +524,9 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -523,6 +553,9 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
 
 iMovie does not allow you to make square videos! You won't be able to convert your video to square dimensions because there isn't a way to do it. We'll edit the video in iMovie and then modify the proportions in Keynote. Only Keynote will be used to crop the video into square dimensions. On Mac OS, Keynote is a presentation program that comes preloaded. First, use iMovie to edit your video as you typically would. Make all of the necessary modifications to the audio and video. Make use of iMovie's special editing features. After you've finished editing the video, export it from iMovie.
@@ -620,3 +653,63 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-10-facts-about-instagram-reels-the-truth-you-may-ignore/"><u>[New] 2024 Approved  10 Facts About Instagram Reels-The Truth You May Ignore</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-easy-guide-to-instagram-post-duplication/"><u>[New] 2024 Approved  Easy Guide to Instagram Post Duplication</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-elevate-brand-presence-effective-instagram-video-marketing-techniques/"><u>[New] 2024 Approved  Elevate Brand Presence  Effective Instagram Video Marketing Techniques</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-step-by-step-to-mastering-instagram-chat-videos-for-2024/"><u>[New] A Step-by-Step to Mastering Instagram Chat Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-best-photo-boosts-for-perfecting-your-feed-for-2024/"><u>[New] Best Photo Boosts for Perfecting Your Feed for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-boost-your-reach-tips-and-tricks-for-uploading-to-instagram-desktop-for-2024/"><u>[New] Boost Your Reach  Tips & Tricks for Uploading to Instagram Desktop for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-building-your-brand-setting-up-a-business-on-instagram-for-2024/"><u>[New] Building Your Brand  Setting Up a Business on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-a-complete-tutorial-on-saving-your-instagram-story/"><u>[New] In 2024, A Complete Tutorial on Saving Your Instagram Story</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-a-comprehensible-guide-for-mastering-instagram-live-engagements/"><u>[New] In 2024, A Comprehensible Guide for Mastering Instagram Live Engagements</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-a-teachers-guide-to-enhancing-learning-through-youtube-videos/"><u>[New] In 2024, A Teacher's Guide to Enhancing Learning Through YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-beauty-and-inspiration-a-top-20-ig-showcase/"><u>[New] In 2024, Beauty and Inspiration  A Top 20 IG Showcase</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-beyond-marketing-hype-the-genuine-facts-of-reels/"><u>[New] In 2024, Beyond Marketing Hype  The Genuine Facts of Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-brand-identity-in-pictures-how-to-watermark-on-instagram/"><u>[New] In 2024, Brand Identity in Pictures  How to Watermark on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-building-stellar-instagram-photo-covers-for-your-highlights/"><u>[New] In 2024, Building Stellar Instagram Photo Covers for Your Highlights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-captivating-igtv-cover-photos-thumbnails/"><u>[New] In 2024, Crafting Captivating IGTV Cover Photos (Thumbnails)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-direct-save-plus-alternative-pathways-your-instagram-video-guide/"><u>[New] In 2024, Direct Save + Alternative Pathways  Your Instagram Video Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-walking-through-time-a-guide-to-inverted-videos-on-instagram/"><u>[New] Walking Through Time  A Guide to Inverted Videos on Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hats-the-best-youtube-thumbnail-size/"><u>[New] What's the Best YouTube Thumbnail Size?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-amplify-reach-todays-most-effective-instagram-tag-strategies/"><u>[Updated] 2024 Approved  Amplify Reach  Today's Most Effective Instagram Tag Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ascending-the-rankings-iphones-top-selfie-accessories/"><u>[Updated] 2024 Approved  Ascending the Rankings  IPhone's Top Selfie Accessories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-best-instagram-highlights-covers-apps/"><u>[Updated] 2024 Approved  Best Instagram Highlights Covers Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-elevate-engagement-the-list-of-todays-hot-instagram-hashtags/"><u>[Updated] 2024 Approved  Elevate Engagement  The List of Today's Hot Instagram Hashtags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-best-practices-for-measuring-igtv-video-effectiveness-for-2024/"><u>[Updated] Best Practices for Measuring IGTV Video Effectiveness for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-boosting-engagement-uploading-and-sharing-on-instagram-desktop-for-2024/"><u>[Updated] Boosting Engagement  Uploading and Sharing on Instagram Desktop for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-constructing-unique-instagram-story-banners-for-2024/"><u>[Updated] Constructing Unique Instagram Story Banners for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-those-who-left-my-instagram-circle-for-2024/"><u>[Updated] Discovering Those Who Left My Instagram Circle for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-10-awesome-ideas-for-igtv-videos-brands-cant-miss-out-on/"><u>[Updated] In 2024, 10 Awesome Ideas for IGTV Videos Brands Can't Miss Out On</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-15-best-photovideo-downloader-tools-for-instagram/"><u>[Updated] In 2024, 15 Best Photo/Video Downloader Tools for Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-crafting-visual-harmony-with-bokeh-techniques-in-storytelling/"><u>[Updated] In 2024, Crafting Visual Harmony with Bokeh Techniques in Storytelling</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-deciphering-digital-self-identity-the-insta-selfie-guide/"><u>[Updated] In 2024, Deciphering Digital Self-Identity  The Insta Selfie Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-jump-into-action-on-tiktok-live-easy-methods-revealed-for-2024/"><u>[Updated] Jump Into Action on TikTok Live  Easy Methods Revealed for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-magix-image-handling-insights-reviewed/"><u>[Updated] MAGIX Image Handling Insights Reviewed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2023s-best-practices-for-thriving-in-desktop-tiktok-scene-for-2024/"><u>2023'S Best Practices for Thriving in Desktop TikTok Scene for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-comprehensive-guide-to-the-top-10-cost-free-picture-archives/"><u>2024 Approved  Comprehensive Guide to the Top 10 Cost-Free Picture Archives</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-elevate-your-youtube-presence-the-art-of-seo-optimization/"><u>2024 Approved  Elevate Your YouTube Presence  The Art of SEO Optimization</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-guide-to-pocket-friendly-discord-video-downloads-on-tech-devices/"><u>2024 Approved  Guide to Pocket-Friendly Discord Video Downloads on Tech Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-what-to-expect-from-your-instagram-experience-now/"><u>2024 Approved  What to Expect From Your Instagram Experience Now</u></a></li>
+<li><a href="https://windows11.techidaily.com/building-artificially-inspired-pictures-in-paint-cocreator-win11/"><u>Building Artificially-Inspired Pictures in Paint Cocreator (Win11)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/conquering-podcast-title-creativity-a-comprehensive-tutorial-and-idea-list/"><u>Conquering Podcast Title Creativity  A Comprehensive Tutorial & Idea List</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/fluent-in-content-sharing-tiktok-twitter-transition-for-2024/"><u>Fluent in Content Sharing  TikTok-Twitter Transition for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-vivo-y27s-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Vivo Y27s Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-6s-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone 6s Data From iCloud? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-infinix-note-30-pro-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Infinix Note 30 Pro?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-discover-8-exceptional-tablets-that-outperform-filmoras-features/"><u>In 2024, Discover 8 Exceptional Tablets That Outperform Filmora's Features</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-diy-youtube-intros-and-ends-without-breaking-the-bank/"><u>In 2024, DIY YouTube Intros & Ends Without Breaking the Bank</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-vivo-t2-pro-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Vivo T2 Pro 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-visual-tale-telling-for-the-small-screen-vertical-ig-videos-with-fcpx/"><u>In 2024, Visual Tale-Telling for the Small Screen  Vertical IG Videos with FCPX</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-vocal-variations-for-stories-and-reels-an-instagram-expertise/"><u>In 2024, Vocal Variations for Stories and Reels – An Instagram Expertise</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-your-guide-to-genuine-selfies-on-instagrams-canvas/"><u>In 2024, Your Guide to Genuine Selfies on Instagram's Canvas</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/navigating-zoom-recordings-for-business-success-for-2024/"><u>Navigating Zoom Recordings for Business Success for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/switching-up-your-iphones-call-sound-effectively/"><u>Switching up Your iPhone's Call Sound Effectively</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unleashing-creativity-in-stories-adding-personalized-graphics-for-2024/"><u>Unleashing Creativity in Stories  Adding Personalized Graphics for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-the-full-capabilities-of-morphvox-voice-alteration/"><u>Unlocking the Full Capabilities of MorphVOX Voice Alteration</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unraveling-the-film-reel-how-to-rewind-on-instagram-for-2024/"><u>Unraveling the Film Reel  How to Rewind on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/visionaries-in-video-top-10-ig-editing-platforms-for-creatives-for-2024/"><u>Visionaries in Video  Top 10 IG Editing Platforms for Creatives for 2024</u></a></li>
+</ul></div>
