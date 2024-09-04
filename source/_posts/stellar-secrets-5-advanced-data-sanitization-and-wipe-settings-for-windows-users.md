@@ -1,7 +1,7 @@
 ---
 title: Stellar Secrets 5 - Advanced Data Sanitization and Wipe Settings for Windows Users
-date: 2024-08-10T22:30:54.934Z
-updated: 2024-08-11T22:30:54.934Z
+date: 2024-09-03T10:09:43.277Z
+updated: 2024-09-04T10:09:43.277Z
 categories:
   - repair-tools
 description: This Article Describes Stellar Secrets 5 - Advanced Data Sanitization and Wipe Settings for Windows Users
@@ -24,9 +24,6 @@ Stellar File Eraser
          * [3.4.1. Resolving Activation Errors](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
   * [3.5. Updating the Software](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
   * [3.6. Stellar Support](https://tools.techidaily.com/stellardata-recovery/buy-now/)
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 * ![arow](https://www.stellarinfo.com/help/public/frontEnd/onlinehelp/images/arow.png) 4\. Working with the Software  
   * [4.1. Erasing Files & Folders](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
   * [4.2. Erasing Traces](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
@@ -46,9 +43,6 @@ Stellar File Eraser
 * [5. Frequently Asked Questions (FAQs)](https://www.stellarinfo.com/help/stellar-file-eraser-5-windows-standard-en-frequently-asked-questions-faqs.html)
 * [6. About Stellar](https://tools.techidaily.com/stellardata-recovery/buy-now/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![toogle](https://www.stellarinfo.com/help/public/frontEnd/onlinehelp/images/toogle.png)
 
 [Stellar File Eraser](https://tools.techidaily.com/stellardata-recovery/buy-now/) /[4. Working with the Software](https://tools.techidaily.com/stellardata-recovery/buy-now/) /[4.4. Setting Schedule Erasure](https://tools.techidaily.com/stellardata-recovery/buy-now/) /**4.4.1\. Setting Schedule Erasure for Erasing Traces**
@@ -61,16 +55,10 @@ Stellar File Eraser
 
 1. Run ****Stellar File Eraser** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Stellar Help](https://www.stellarinfo.com/help/public/onlinehelp_img/stellar-file-eraser-5-windows-standard-en/setting-scheduler-for-erasing-traces/user-interface.png)
 
 1. Select**Schedule Erasure** from**Select Option** tabs displayed on the left pane of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Stellar Help](https://www.stellarinfo.com/help/public/onlinehelp_img/stellar-file-eraser-5-windows-standard-en/setting-scheduler-for-erasing-traces/Schedule-Eraser-traces.png)
 
 1. **Schedule Erasure** window displays and**Erase Traces** tab is by default selected.
@@ -83,9 +71,6 @@ Stellar File Eraser
 1. From**Start from** , select**Date** and**Time** of scheduler.
 2. Click**OK** .  On successful completion,   **"Task scheduled successfully"** dialog box appears.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Stellar Help](https://www.stellarinfo.com/help/public/onlinehelp_img/stellar-file-eraser-5-windows-standard-en/setting-scheduler-for-erasing-traces/Task-schedule.png)
 
 1. Click**OK** to finish the process.
@@ -164,3 +149,10 @@ _**Note** : A scheduler **Summary** with**Task Name** ,**Status** ,**Trigger** ,
 <li><a href="https://instagram-video-files.techidaily.com/instagram-filter-application-guide-tips-and-tricks-for-2024/"><u>Instagram Filter Application Guide - Tips & Tricks for 2024</u></a></li>
 <li><a href="https://instagram-video-files.techidaily.com/unveiling-the-secrets-to-stellar-igtv-footage-capture/"><u>Unveiling the Secrets to Stellar IGTV Footage Capture</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering the Art of Video Repetition  A Guide for Instagram Users for 2024\""
-date: 2024-07-23T17:46:39.783Z
-updated: 2024-07-24T17:46:39.783Z
+date: 2024-09-03T10:01:03.221Z
+updated: 2024-09-04T10:01:03.221Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/ff4b473fea2e89c79aee76abe0eab2251a21420b8
 
 # How To Make Looping Videos for Instagram?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -41,9 +38,6 @@ Here in this article, we are going to discuss multiple ways to make looping vide
 
 Note: Instagram only allows 1-minute videos but for longer form content you should start an IGTV account via the IG platform. When you loop a video for Instagram, please pay attention to the video length.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Part 1: Create Instagram Loop Video with Online Video Loopers for Free
 
 Looping a particular scene adds a lot of excitement to the video, and it has become a significant element of the Instagram experience. For those who don’t want to download and install any software program on your computer, we recommend you to use some online tools to loop video.
@@ -68,6 +62,9 @@ Kapwing is a free online tool which allows you to loop, clip, and trim the video
 
 Boomerang is a video app which allows you to record looping videos like animated gif. In the following part, I will show you 2 different ways to making looping video with Boomerang.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1770526" src="//a.impactradius-go.com/gen-ad-code/5597632/1770526/20702" width="300" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Method 1: Make A Looping Video Using The Boomerang App
 
 Boomerang is a   **video looper for Instagram.**  In this method, we are going to make looping videos using the Boomerang app. Here is a quick, systematic guide on how to do that.
@@ -79,466 +76,13 @@ Boomerang is a   **video looper for Instagram.**  In this method, we are going t
 ![Create Ins loop video - boomerang](https://images.wondershare.com/filmora/article-images/create-looping-boomerang-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
-### Method 2: Make a looping video using Instagram
-
-In this method, we can make a looping video using Instagram Stories. Here are steps to do that.
-
-* Launch the Instagram app on your smartphone and then swipe from left to right.
-* Then record a Boomerang video by clicking on the infinity button at the bottom of the screen.
-* Edit it according to your preference and then share it to your Stories.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
-## Part 3: How to Upload Looping Live Photos as Videos on iPhone to Instagram?
-
-If you are using iPhone, you may find that when you took Live Photos, there was a Loop effect under it. In this part, I will show you how to upload the looping live photos to Instagram.
-
- **Step 1: Add Bounce or Loop Effect to Live Photos**
-
-Go to Photos app on iPhone and open the live photo. Swipe up and you will four options: live, loop, and bounce, and long exposure. To make a live looping photo, click on the loop option, which can turn the live photo to a video loop directly; or you can choose Bounce effect, which will make the live photo rock back and forth.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
-![convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/add-loop-bounce-effect-to-live-photos.jpg)
-
- **Step 2: Save Looping Live Photo into A Video**
-
-If you sharing the live photo applied Loop or Bounce effect to social media directly, you will find the animation is lost. So, before sharing, we need to save the looping live photo to video first.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
-![Convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/save-looping-live-photo-to-video.jpg)
-
-Click the Share button under the left corner, and then click Save to Files, specify the destination folder and click Save. The loop live photo will be save in MOV format.
-
- **Step 3: Share the video on Instagram**
-
-To upload the video to Instagram, go the Instagram, and then click on the plus icon in the middle of the bottom bar. Now upload the saved looping video and click on the “Share” button. It will be uploaded on Instagram.
-
-## Part 4: How to Add Music & Sound to Loop Video for Instagram?
-
-One downside of all these methods listed above is that it can only loop videos a specific amount of times. If you want to create looping video with more features, I recommend you to try [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-Filmora allows you to create a looping video at the times you like, add music and sound effect to the looping video, and add titles as well.
-
-Here is a quick step-by-step guide on how to create a looping video and add sound effect to it with Filmora.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
- **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
-
-Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
-
- **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
-
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
-
- **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
-
- **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Conclusion
-
-In this article, we discussed looping video and different way to convert simple videos into   **Instagram loop video** . Now it comes down to your personal preference to choose whatever method you want we suggest you choose the last method. Wondershare Filmora is an amazing professional tool that allows you to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) without any hassle. You also use that simple tool to loop videos. It is a very powerful tool that is available for free. You can download Wondershare Filmora on both Windows and Mac.
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Looping video makes the scene a lot more fun, and now it is a huge part of Instagram. These videos can be used to boost your business on Instagram by gaining people's attention. Now a question would be arising on how to make looping videos.
-
-Here in this article, we are going to discuss multiple ways to make looping videos for Instagram, as well as how to add music and sound to looping videos.
-
-* [Part 1: Create Instagram Loop Video Online for Free](#part1)
-* [Part 2: Make Looping video with Boomerang for Instagram](#part1)
-* [Part 3: How to Upload Looping Live Photos As Video to Ins?](#part1)
-* [Part 4: How to Create Looping Ins Video with Filmora?](#part1)
-
-Note: Instagram only allows 1-minute videos but for longer form content you should start an IGTV account via the IG platform. When you loop a video for Instagram, please pay attention to the video length.
-
-## Part 1: Create Instagram Loop Video with Online Video Loopers for Free
-
-Looping a particular scene adds a lot of excitement to the video, and it has become a significant element of the Instagram experience. For those who don’t want to download and install any software program on your computer, we recommend you to use some online tools to loop video.
-
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### 2. Kapwing
-
-Kapwing is a free online tool which allows you to loop, clip, and trim the video to make them a lot more interesting. The only downside of this tool is that it only lets you loop the video a maximum of 10 times. Here is a simple step-by-step guide on how to loop videos using Kapwing.
-
- **Step 1:** Visit the Loop Video in Kapwing on your browser, and then upload your video by clicking on the "Upload" button, or you can also upload the video by pasting its URL link.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
-![Create Ins loop video online](https://images.wondershare.com/filmora/article-images/kapwing-looper-main-interface.jpg)
-
- **Step 2:** After you are done uploading, now select the number of times you want the video loop. You can also trim the video by clicking on the “Trim Video” button on the top left corner of the screen. Then click on create.
-
-![Create Ins loop video online - editing](https://images.wondershare.com/filmora/article-images/kapwing-video-loop-editing-interface.jpg)
-
- **Step 3:** Now that video is done editing, you can now download and save the video locally on your computer by clicking on the “Download” button. You can also share the video directly to your Instagram.
-
-![Create Ins loop video online - download](https://images.wondershare.com/filmora/article-images/download-or-share-looping-video-interface-kapwing.jpg)
-
-## Part 2: Make Looping video with Boomerang for Instagram
-
-Boomerang is a video app which allows you to record looping videos like animated gif. In the following part, I will show you 2 different ways to making looping video with Boomerang.
-
-### Method 1: Make A Looping Video Using The Boomerang App
-
-Boomerang is a   **video looper for Instagram.**  In this method, we are going to make looping videos using the Boomerang app. Here is a quick, systematic guide on how to do that.
-
-* Download the Boomerang app on [App Store](https://apps.apple.com/us/app/boomerang-from-instagram/id1041596399) or on [Google Play](https://play.google.com/store/apps/details?id=com.instagram.boomerang&hl=en&gl=US) and then open the Boomerang app on your smartphone device.
-* Record the video using the in-app camera of the Boomerang app since there is only one button which can create moving looping clip instantly.
-* Now you can share the video to either Instagram or Facebook directly, or you can save it to your camera roll, and then upload it on social media.
-
-![Create Ins loop video - boomerang](https://images.wondershare.com/filmora/article-images/create-looping-boomerang-video.jpg)
-
-### Method 2: Make a looping video using Instagram
-
-In this method, we can make a looping video using Instagram Stories. Here are steps to do that.
-
-* Launch the Instagram app on your smartphone and then swipe from left to right.
-* Then record a Boomerang video by clicking on the infinity button at the bottom of the screen.
-* Edit it according to your preference and then share it to your Stories.
-
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 3: How to Upload Looping Live Photos as Videos on iPhone to Instagram?
-
-If you are using iPhone, you may find that when you took Live Photos, there was a Loop effect under it. In this part, I will show you how to upload the looping live photos to Instagram.
-
- **Step 1: Add Bounce or Loop Effect to Live Photos**
-
-Go to Photos app on iPhone and open the live photo. Swipe up and you will four options: live, loop, and bounce, and long exposure. To make a live looping photo, click on the loop option, which can turn the live photo to a video loop directly; or you can choose Bounce effect, which will make the live photo rock back and forth.
-
-![convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/add-loop-bounce-effect-to-live-photos.jpg)
-
- **Step 2: Save Looping Live Photo into A Video**
-
-If you sharing the live photo applied Loop or Bounce effect to social media directly, you will find the animation is lost. So, before sharing, we need to save the looping live photo to video first.
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
-![Convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/save-looping-live-photo-to-video.jpg)
-
-Click the Share button under the left corner, and then click Save to Files, specify the destination folder and click Save. The loop live photo will be save in MOV format.
-
- **Step 3: Share the video on Instagram**
-
-To upload the video to Instagram, go the Instagram, and then click on the plus icon in the middle of the bottom bar. Now upload the saved looping video and click on the “Share” button. It will be uploaded on Instagram.
-
-## Part 4: How to Add Music & Sound to Loop Video for Instagram?
-
-One downside of all these methods listed above is that it can only loop videos a specific amount of times. If you want to create looping video with more features, I recommend you to try [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-Filmora allows you to create a looping video at the times you like, add music and sound effect to the looping video, and add titles as well.
-
-Here is a quick step-by-step guide on how to create a looping video and add sound effect to it with Filmora.
-
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
- **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
-
-Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
-
- **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
-
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
-
- **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
-
- **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
-
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
-## Conclusion
-
-In this article, we discussed looping video and different way to convert simple videos into   **Instagram loop video** . Now it comes down to your personal preference to choose whatever method you want we suggest you choose the last method. Wondershare Filmora is an amazing professional tool that allows you to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) without any hassle. You also use that simple tool to loop videos. It is a very powerful tool that is available for free. You can download Wondershare Filmora on both Windows and Mac.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Looping video makes the scene a lot more fun, and now it is a huge part of Instagram. These videos can be used to boost your business on Instagram by gaining people's attention. Now a question would be arising on how to make looping videos.
-
-Here in this article, we are going to discuss multiple ways to make looping videos for Instagram, as well as how to add music and sound to looping videos.
-
-* [Part 1: Create Instagram Loop Video Online for Free](#part1)
-* [Part 2: Make Looping video with Boomerang for Instagram](#part1)
-* [Part 3: How to Upload Looping Live Photos As Video to Ins?](#part1)
-* [Part 4: How to Create Looping Ins Video with Filmora?](#part1)
-
-Note: Instagram only allows 1-minute videos but for longer form content you should start an IGTV account via the IG platform. When you loop a video for Instagram, please pay attention to the video length.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
-## Part 1: Create Instagram Loop Video with Online Video Loopers for Free
-
-Looping a particular scene adds a lot of excitement to the video, and it has become a significant element of the Instagram experience. For those who don’t want to download and install any software program on your computer, we recommend you to use some online tools to loop video.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### 2. Kapwing
-
-Kapwing is a free online tool which allows you to loop, clip, and trim the video to make them a lot more interesting. The only downside of this tool is that it only lets you loop the video a maximum of 10 times. Here is a simple step-by-step guide on how to loop videos using Kapwing.
-
- **Step 1:** Visit the Loop Video in Kapwing on your browser, and then upload your video by clicking on the "Upload" button, or you can also upload the video by pasting its URL link.
-
-![Create Ins loop video online](https://images.wondershare.com/filmora/article-images/kapwing-looper-main-interface.jpg)
-
- **Step 2:** After you are done uploading, now select the number of times you want the video loop. You can also trim the video by clicking on the “Trim Video” button on the top left corner of the screen. Then click on create.
-
-![Create Ins loop video online - editing](https://images.wondershare.com/filmora/article-images/kapwing-video-loop-editing-interface.jpg)
-
- **Step 3:** Now that video is done editing, you can now download and save the video locally on your computer by clicking on the “Download” button. You can also share the video directly to your Instagram.
-
-![Create Ins loop video online - download](https://images.wondershare.com/filmora/article-images/download-or-share-looping-video-interface-kapwing.jpg)
-
-## Part 2: Make Looping video with Boomerang for Instagram
-
-Boomerang is a video app which allows you to record looping videos like animated gif. In the following part, I will show you 2 different ways to making looping video with Boomerang.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Method 1: Make A Looping Video Using The Boomerang App
-
-Boomerang is a   **video looper for Instagram.**  In this method, we are going to make looping videos using the Boomerang app. Here is a quick, systematic guide on how to do that.
-
-* Download the Boomerang app on [App Store](https://apps.apple.com/us/app/boomerang-from-instagram/id1041596399) or on [Google Play](https://play.google.com/store/apps/details?id=com.instagram.boomerang&hl=en&gl=US) and then open the Boomerang app on your smartphone device.
-* Record the video using the in-app camera of the Boomerang app since there is only one button which can create moving looping clip instantly.
-* Now you can share the video to either Instagram or Facebook directly, or you can save it to your camera roll, and then upload it on social media.
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Create Ins loop video - boomerang](https://images.wondershare.com/filmora/article-images/create-looping-boomerang-video.jpg)
-
-### Method 2: Make a looping video using Instagram
-
-In this method, we can make a looping video using Instagram Stories. Here are steps to do that.
-
-* Launch the Instagram app on your smartphone and then swipe from left to right.
-* Then record a Boomerang video by clicking on the infinity button at the bottom of the screen.
-* Edit it according to your preference and then share it to your Stories.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-## Part 3: How to Upload Looping Live Photos as Videos on iPhone to Instagram?
-
-If you are using iPhone, you may find that when you took Live Photos, there was a Loop effect under it. In this part, I will show you how to upload the looping live photos to Instagram.
-
- **Step 1: Add Bounce or Loop Effect to Live Photos**
-
-Go to Photos app on iPhone and open the live photo. Swipe up and you will four options: live, loop, and bounce, and long exposure. To make a live looping photo, click on the loop option, which can turn the live photo to a video loop directly; or you can choose Bounce effect, which will make the live photo rock back and forth.
-
-![convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/add-loop-bounce-effect-to-live-photos.jpg)
-
- **Step 2: Save Looping Live Photo into A Video**
-
-If you sharing the live photo applied Loop or Bounce effect to social media directly, you will find the animation is lost. So, before sharing, we need to save the looping live photo to video first.
-
-![Convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/save-looping-live-photo-to-video.jpg)
-
-Click the Share button under the left corner, and then click Save to Files, specify the destination folder and click Save. The loop live photo will be save in MOV format.
-
- **Step 3: Share the video on Instagram**
-
-To upload the video to Instagram, go the Instagram, and then click on the plus icon in the middle of the bottom bar. Now upload the saved looping video and click on the “Share” button. It will be uploaded on Instagram.
-
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 4: How to Add Music & Sound to Loop Video for Instagram?
-
-One downside of all these methods listed above is that it can only loop videos a specific amount of times. If you want to create looping video with more features, I recommend you to try [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-Filmora allows you to create a looping video at the times you like, add music and sound effect to the looping video, and add titles as well.
-
-Here is a quick step-by-step guide on how to create a looping video and add sound effect to it with Filmora.
-
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
- **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
-
-Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
-
- **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
-
- **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
-
- **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
-
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
-## Conclusion
-
-In this article, we discussed looping video and different way to convert simple videos into   **Instagram loop video** . Now it comes down to your personal preference to choose whatever method you want we suggest you choose the last method. Wondershare Filmora is an amazing professional tool that allows you to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) without any hassle. You also use that simple tool to loop videos. It is a very powerful tool that is available for free. You can download Wondershare Filmora on both Windows and Mac.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Looping video makes the scene a lot more fun, and now it is a huge part of Instagram. These videos can be used to boost your business on Instagram by gaining people's attention. Now a question would be arising on how to make looping videos.
-
-Here in this article, we are going to discuss multiple ways to make looping videos for Instagram, as well as how to add music and sound to looping videos.
-
-* [Part 1: Create Instagram Loop Video Online for Free](#part1)
-* [Part 2: Make Looping video with Boomerang for Instagram](#part1)
-* [Part 3: How to Upload Looping Live Photos As Video to Ins?](#part1)
-* [Part 4: How to Create Looping Ins Video with Filmora?](#part1)
-
-Note: Instagram only allows 1-minute videos but for longer form content you should start an IGTV account via the IG platform. When you loop a video for Instagram, please pay attention to the video length.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
-## Part 1: Create Instagram Loop Video with Online Video Loopers for Free
-
-Looping a particular scene adds a lot of excitement to the video, and it has become a significant element of the Instagram experience. For those who don’t want to download and install any software program on your computer, we recommend you to use some online tools to loop video.
-
-### 2. Kapwing
-
-Kapwing is a free online tool which allows you to loop, clip, and trim the video to make them a lot more interesting. The only downside of this tool is that it only lets you loop the video a maximum of 10 times. Here is a simple step-by-step guide on how to loop videos using Kapwing.
-
- **Step 1:** Visit the Loop Video in Kapwing on your browser, and then upload your video by clicking on the "Upload" button, or you can also upload the video by pasting its URL link.
-
-![Create Ins loop video online](https://images.wondershare.com/filmora/article-images/kapwing-looper-main-interface.jpg)
-
- **Step 2:** After you are done uploading, now select the number of times you want the video loop. You can also trim the video by clicking on the “Trim Video” button on the top left corner of the screen. Then click on create.
-
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Create Ins loop video online - editing](https://images.wondershare.com/filmora/article-images/kapwing-video-loop-editing-interface.jpg)
-
- **Step 3:** Now that video is done editing, you can now download and save the video locally on your computer by clicking on the “Download” button. You can also share the video directly to your Instagram.
-
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Create Ins loop video online - download](https://images.wondershare.com/filmora/article-images/download-or-share-looping-video-interface-kapwing.jpg)
-
-## Part 2: Make Looping video with Boomerang for Instagram
-
-Boomerang is a video app which allows you to record looping videos like animated gif. In the following part, I will show you 2 different ways to making looping video with Boomerang.
-
-### Method 1: Make A Looping Video Using The Boomerang App
-
-Boomerang is a   **video looper for Instagram.**  In this method, we are going to make looping videos using the Boomerang app. Here is a quick, systematic guide on how to do that.
-
-* Download the Boomerang app on [App Store](https://apps.apple.com/us/app/boomerang-from-instagram/id1041596399) or on [Google Play](https://play.google.com/store/apps/details?id=com.instagram.boomerang&hl=en&gl=US) and then open the Boomerang app on your smartphone device.
-* Record the video using the in-app camera of the Boomerang app since there is only one button which can create moving looping clip instantly.
-* Now you can share the video to either Instagram or Facebook directly, or you can save it to your camera roll, and then upload it on social media.
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![Create Ins loop video - boomerang](https://images.wondershare.com/filmora/article-images/create-looping-boomerang-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe id="iframe_1328679" src="//a.impactradius-go.com/gen-ad-code/5597632/1328679/15852" width="300" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### Method 2: Make a looping video using Instagram
 
@@ -556,18 +100,12 @@ If you are using iPhone, you may find that when you took Live Photos, there was 
 
 Go to Photos app on iPhone and open the live photo. Swipe up and you will four options: live, loop, and bounce, and long exposure. To make a live looping photo, click on the loop option, which can turn the live photo to a video loop directly; or you can choose Bounce effect, which will make the live photo rock back and forth.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/add-loop-bounce-effect-to-live-photos.jpg)
 
  **Step 2: Save Looping Live Photo into A Video**
 
 If you sharing the live photo applied Loop or Bounce effect to social media directly, you will find the animation is lost. So, before sharing, we need to save the looping live photo to video first.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/save-looping-live-photo-to-video.jpg)
 
 Click the Share button under the left corner, and then click Save to Files, specify the destination folder and click Save. The loop live photo will be save in MOV format.
@@ -577,7 +115,7 @@ Click the Share button under the left corner, and then click Save to Files, spec
 To upload the video to Instagram, go the Instagram, and then click on the plus icon in the middle of the bottom bar. Now upload the saved looping video and click on the “Share” button. It will be uploaded on Instagram.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1975562" src="//a.impactradius-go.com/gen-ad-code/5597632/1975562/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ## Part 4: How to Add Music & Sound to Loop Video for Instagram?
 
@@ -586,32 +124,505 @@ One downside of all these methods listed above is that it can only loop videos a
 Filmora allows you to create a looping video at the times you like, add music and sound effect to the looping video, and add titles as well.
 
 Here is a quick step-by-step guide on how to create a looping video and add sound effect to it with Filmora.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
+
+Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
+
+ **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
+
+![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
+
+ **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+In this article, we discussed looping video and different way to convert simple videos into   **Instagram loop video** . Now it comes down to your personal preference to choose whatever method you want we suggest you choose the last method. Wondershare Filmora is an amazing professional tool that allows you to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) without any hassle. You also use that simple tool to loop videos. It is a very powerful tool that is available for free. You can download Wondershare Filmora on both Windows and Mac.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_1977028" src="//a.impactradius-go.com/gen-ad-code/5597632/1977028/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Looping video makes the scene a lot more fun, and now it is a huge part of Instagram. These videos can be used to boost your business on Instagram by gaining people's attention. Now a question would be arising on how to make looping videos.
+
+Here in this article, we are going to discuss multiple ways to make looping videos for Instagram, as well as how to add music and sound to looping videos.
+
+* [Part 1: Create Instagram Loop Video Online for Free](#part1)
+* [Part 2: Make Looping video with Boomerang for Instagram](#part1)
+* [Part 3: How to Upload Looping Live Photos As Video to Ins?](#part1)
+* [Part 4: How to Create Looping Ins Video with Filmora?](#part1)
+
+Note: Instagram only allows 1-minute videos but for longer form content you should start an IGTV account via the IG platform. When you loop a video for Instagram, please pay attention to the video length.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: Create Instagram Loop Video with Online Video Loopers for Free
+
+Looping a particular scene adds a lot of excitement to the video, and it has become a significant element of the Instagram experience. For those who don’t want to download and install any software program on your computer, we recommend you to use some online tools to loop video.
+
+### 2. Kapwing
+
+Kapwing is a free online tool which allows you to loop, clip, and trim the video to make them a lot more interesting. The only downside of this tool is that it only lets you loop the video a maximum of 10 times. Here is a simple step-by-step guide on how to loop videos using Kapwing.
+
+ **Step 1:** Visit the Loop Video in Kapwing on your browser, and then upload your video by clicking on the "Upload" button, or you can also upload the video by pasting its URL link.
+
+![Create Ins loop video online](https://images.wondershare.com/filmora/article-images/kapwing-looper-main-interface.jpg)
+
+ **Step 2:** After you are done uploading, now select the number of times you want the video loop. You can also trim the video by clicking on the “Trim Video” button on the top left corner of the screen. Then click on create.
+
+![Create Ins loop video online - editing](https://images.wondershare.com/filmora/article-images/kapwing-video-loop-editing-interface.jpg)
+
+ **Step 3:** Now that video is done editing, you can now download and save the video locally on your computer by clicking on the “Download” button. You can also share the video directly to your Instagram.
+
+![Create Ins loop video online - download](https://images.wondershare.com/filmora/article-images/download-or-share-looping-video-interface-kapwing.jpg)
+
+## Part 2: Make Looping video with Boomerang for Instagram
+
+Boomerang is a video app which allows you to record looping videos like animated gif. In the following part, I will show you 2 different ways to making looping video with Boomerang.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 1: Make A Looping Video Using The Boomerang App
+
+Boomerang is a   **video looper for Instagram.**  In this method, we are going to make looping videos using the Boomerang app. Here is a quick, systematic guide on how to do that.
+
+* Download the Boomerang app on [App Store](https://apps.apple.com/us/app/boomerang-from-instagram/id1041596399) or on [Google Play](https://play.google.com/store/apps/details?id=com.instagram.boomerang&hl=en&gl=US) and then open the Boomerang app on your smartphone device.
+* Record the video using the in-app camera of the Boomerang app since there is only one button which can create moving looping clip instantly.
+* Now you can share the video to either Instagram or Facebook directly, or you can save it to your camera roll, and then upload it on social media.
+
+![Create Ins loop video - boomerang](https://images.wondershare.com/filmora/article-images/create-looping-boomerang-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+### Method 2: Make a looping video using Instagram
+
+In this method, we can make a looping video using Instagram Stories. Here are steps to do that.
+
+* Launch the Instagram app on your smartphone and then swipe from left to right.
+* Then record a Boomerang video by clicking on the infinity button at the bottom of the screen.
+* Edit it according to your preference and then share it to your Stories.
+
+## Part 3: How to Upload Looping Live Photos as Videos on iPhone to Instagram?
+
+If you are using iPhone, you may find that when you took Live Photos, there was a Loop effect under it. In this part, I will show you how to upload the looping live photos to Instagram.
+
+ **Step 1: Add Bounce or Loop Effect to Live Photos**
+
+Go to Photos app on iPhone and open the live photo. Swipe up and you will four options: live, loop, and bounce, and long exposure. To make a live looping photo, click on the loop option, which can turn the live photo to a video loop directly; or you can choose Bounce effect, which will make the live photo rock back and forth.
+
+![convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/add-loop-bounce-effect-to-live-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Step 2: Save Looping Live Photo into A Video**
+
+If you sharing the live photo applied Loop or Bounce effect to social media directly, you will find the animation is lost. So, before sharing, we need to save the looping live photo to video first.
+
+![Convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/save-looping-live-photo-to-video.jpg)
+
+Click the Share button under the left corner, and then click Save to Files, specify the destination folder and click Save. The loop live photo will be save in MOV format.
+
+ **Step 3: Share the video on Instagram**
+
+To upload the video to Instagram, go the Instagram, and then click on the plus icon in the middle of the bottom bar. Now upload the saved looping video and click on the “Share” button. It will be uploaded on Instagram.
+
+## Part 4: How to Add Music & Sound to Loop Video for Instagram?
+
+One downside of all these methods listed above is that it can only loop videos a specific amount of times. If you want to create looping video with more features, I recommend you to try [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Filmora allows you to create a looping video at the times you like, add music and sound effect to the looping video, and add titles as well.
+
+Here is a quick step-by-step guide on how to create a looping video and add sound effect to it with Filmora.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
+
+Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
+
+ **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
+
+![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
+
+ **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_1498635" src="//a.impactradius-go.com/gen-ad-code/5597632/1498635/17326" width="400" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<iframe id="iframe_1304647" src="//a.impactradius-go.com/gen-ad-code/5597632/1304647/15852" width="300" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+## Conclusion
+
+In this article, we discussed looping video and different way to convert simple videos into   **Instagram loop video** . Now it comes down to your personal preference to choose whatever method you want we suggest you choose the last method. Wondershare Filmora is an amazing professional tool that allows you to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) without any hassle. You also use that simple tool to loop videos. It is a very powerful tool that is available for free. You can download Wondershare Filmora on both Windows and Mac.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Looping video makes the scene a lot more fun, and now it is a huge part of Instagram. These videos can be used to boost your business on Instagram by gaining people's attention. Now a question would be arising on how to make looping videos.
+
+Here in this article, we are going to discuss multiple ways to make looping videos for Instagram, as well as how to add music and sound to looping videos.
+
+* [Part 1: Create Instagram Loop Video Online for Free](#part1)
+* [Part 2: Make Looping video with Boomerang for Instagram](#part1)
+* [Part 3: How to Upload Looping Live Photos As Video to Ins?](#part1)
+* [Part 4: How to Create Looping Ins Video with Filmora?](#part1)
+
+Note: Instagram only allows 1-minute videos but for longer form content you should start an IGTV account via the IG platform. When you loop a video for Instagram, please pay attention to the video length.
+
+## Part 1: Create Instagram Loop Video with Online Video Loopers for Free
+
+Looping a particular scene adds a lot of excitement to the video, and it has become a significant element of the Instagram experience. For those who don’t want to download and install any software program on your computer, we recommend you to use some online tools to loop video.
+
+### 2. Kapwing
+
+Kapwing is a free online tool which allows you to loop, clip, and trim the video to make them a lot more interesting. The only downside of this tool is that it only lets you loop the video a maximum of 10 times. Here is a simple step-by-step guide on how to loop videos using Kapwing.
+
+ **Step 1:** Visit the Loop Video in Kapwing on your browser, and then upload your video by clicking on the "Upload" button, or you can also upload the video by pasting its URL link.
+
+![Create Ins loop video online](https://images.wondershare.com/filmora/article-images/kapwing-looper-main-interface.jpg)
+
+ **Step 2:** After you are done uploading, now select the number of times you want the video loop. You can also trim the video by clicking on the “Trim Video” button on the top left corner of the screen. Then click on create.
+
+![Create Ins loop video online - editing](https://images.wondershare.com/filmora/article-images/kapwing-video-loop-editing-interface.jpg)
+
+ **Step 3:** Now that video is done editing, you can now download and save the video locally on your computer by clicking on the “Download” button. You can also share the video directly to your Instagram.
+
+![Create Ins loop video online - download](https://images.wondershare.com/filmora/article-images/download-or-share-looping-video-interface-kapwing.jpg)
+
+## Part 2: Make Looping video with Boomerang for Instagram
+
+Boomerang is a video app which allows you to record looping videos like animated gif. In the following part, I will show you 2 different ways to making looping video with Boomerang.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 1: Make A Looping Video Using The Boomerang App
+
+Boomerang is a   **video looper for Instagram.**  In this method, we are going to make looping videos using the Boomerang app. Here is a quick, systematic guide on how to do that.
+
+* Download the Boomerang app on [App Store](https://apps.apple.com/us/app/boomerang-from-instagram/id1041596399) or on [Google Play](https://play.google.com/store/apps/details?id=com.instagram.boomerang&hl=en&gl=US) and then open the Boomerang app on your smartphone device.
+* Record the video using the in-app camera of the Boomerang app since there is only one button which can create moving looping clip instantly.
+* Now you can share the video to either Instagram or Facebook directly, or you can save it to your camera roll, and then upload it on social media.
+
+![Create Ins loop video - boomerang](https://images.wondershare.com/filmora/article-images/create-looping-boomerang-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 2: Make a looping video using Instagram
+
+In this method, we can make a looping video using Instagram Stories. Here are steps to do that.
+
+* Launch the Instagram app on your smartphone and then swipe from left to right.
+* Then record a Boomerang video by clicking on the infinity button at the bottom of the screen.
+* Edit it according to your preference and then share it to your Stories.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How to Upload Looping Live Photos as Videos on iPhone to Instagram?
+
+If you are using iPhone, you may find that when you took Live Photos, there was a Loop effect under it. In this part, I will show you how to upload the looping live photos to Instagram.
+
+ **Step 1: Add Bounce or Loop Effect to Live Photos**
+
+Go to Photos app on iPhone and open the live photo. Swipe up and you will four options: live, loop, and bounce, and long exposure. To make a live looping photo, click on the loop option, which can turn the live photo to a video loop directly; or you can choose Bounce effect, which will make the live photo rock back and forth.
+
+![convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/add-loop-bounce-effect-to-live-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Step 2: Save Looping Live Photo into A Video**
+
+If you sharing the live photo applied Loop or Bounce effect to social media directly, you will find the animation is lost. So, before sharing, we need to save the looping live photo to video first.
+
+![Convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/save-looping-live-photo-to-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Click the Share button under the left corner, and then click Save to Files, specify the destination folder and click Save. The loop live photo will be save in MOV format.
+
+ **Step 3: Share the video on Instagram**
+
+To upload the video to Instagram, go the Instagram, and then click on the plus icon in the middle of the bottom bar. Now upload the saved looping video and click on the “Share” button. It will be uploaded on Instagram.
+
+## Part 4: How to Add Music & Sound to Loop Video for Instagram?
+
+One downside of all these methods listed above is that it can only loop videos a specific amount of times. If you want to create looping video with more features, I recommend you to try [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Filmora allows you to create a looping video at the times you like, add music and sound effect to the looping video, and add titles as well.
+
+Here is a quick step-by-step guide on how to create a looping video and add sound effect to it with Filmora.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
+
+Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
+
+ **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
+
+![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+
+ **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
+
+ **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+In this article, we discussed looping video and different way to convert simple videos into   **Instagram loop video** . Now it comes down to your personal preference to choose whatever method you want we suggest you choose the last method. Wondershare Filmora is an amazing professional tool that allows you to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) without any hassle. You also use that simple tool to loop videos. It is a very powerful tool that is available for free. You can download Wondershare Filmora on both Windows and Mac.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_2135471" src="//a.impactradius-go.com/gen-ad-code/5597632/2135471/18498" width="728" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+Looping video makes the scene a lot more fun, and now it is a huge part of Instagram. These videos can be used to boost your business on Instagram by gaining people's attention. Now a question would be arising on how to make looping videos.
+
+Here in this article, we are going to discuss multiple ways to make looping videos for Instagram, as well as how to add music and sound to looping videos.
+
+* [Part 1: Create Instagram Loop Video Online for Free](#part1)
+* [Part 2: Make Looping video with Boomerang for Instagram](#part1)
+* [Part 3: How to Upload Looping Live Photos As Video to Ins?](#part1)
+* [Part 4: How to Create Looping Ins Video with Filmora?](#part1)
+
+Note: Instagram only allows 1-minute videos but for longer form content you should start an IGTV account via the IG platform. When you loop a video for Instagram, please pay attention to the video length.
+
+## Part 1: Create Instagram Loop Video with Online Video Loopers for Free
+
+Looping a particular scene adds a lot of excitement to the video, and it has become a significant element of the Instagram experience. For those who don’t want to download and install any software program on your computer, we recommend you to use some online tools to loop video.
+
+### 2. Kapwing
+
+Kapwing is a free online tool which allows you to loop, clip, and trim the video to make them a lot more interesting. The only downside of this tool is that it only lets you loop the video a maximum of 10 times. Here is a simple step-by-step guide on how to loop videos using Kapwing.
+
+ **Step 1:** Visit the Loop Video in Kapwing on your browser, and then upload your video by clicking on the "Upload" button, or you can also upload the video by pasting its URL link.
+
+![Create Ins loop video online](https://images.wondershare.com/filmora/article-images/kapwing-looper-main-interface.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Step 2:** After you are done uploading, now select the number of times you want the video loop. You can also trim the video by clicking on the “Trim Video” button on the top left corner of the screen. Then click on create.
+
+![Create Ins loop video online - editing](https://images.wondershare.com/filmora/article-images/kapwing-video-loop-editing-interface.jpg)
+
+ **Step 3:** Now that video is done editing, you can now download and save the video locally on your computer by clicking on the “Download” button. You can also share the video directly to your Instagram.
+
+![Create Ins loop video online - download](https://images.wondershare.com/filmora/article-images/download-or-share-looping-video-interface-kapwing.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: Make Looping video with Boomerang for Instagram
+
+Boomerang is a video app which allows you to record looping videos like animated gif. In the following part, I will show you 2 different ways to making looping video with Boomerang.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Method 1: Make A Looping Video Using The Boomerang App
+
+Boomerang is a   **video looper for Instagram.**  In this method, we are going to make looping videos using the Boomerang app. Here is a quick, systematic guide on how to do that.
+
+* Download the Boomerang app on [App Store](https://apps.apple.com/us/app/boomerang-from-instagram/id1041596399) or on [Google Play](https://play.google.com/store/apps/details?id=com.instagram.boomerang&hl=en&gl=US) and then open the Boomerang app on your smartphone device.
+* Record the video using the in-app camera of the Boomerang app since there is only one button which can create moving looping clip instantly.
+* Now you can share the video to either Instagram or Facebook directly, or you can save it to your camera roll, and then upload it on social media.
+
+![Create Ins loop video - boomerang](https://images.wondershare.com/filmora/article-images/create-looping-boomerang-video.jpg)
+
+### Method 2: Make a looping video using Instagram
+
+In this method, we can make a looping video using Instagram Stories. Here are steps to do that.
+
+* Launch the Instagram app on your smartphone and then swipe from left to right.
+* Then record a Boomerang video by clicking on the infinity button at the bottom of the screen.
+* Edit it according to your preference and then share it to your Stories.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How to Upload Looping Live Photos as Videos on iPhone to Instagram?
+
+If you are using iPhone, you may find that when you took Live Photos, there was a Loop effect under it. In this part, I will show you how to upload the looping live photos to Instagram.
+
+ **Step 1: Add Bounce or Loop Effect to Live Photos**
+
+Go to Photos app on iPhone and open the live photo. Swipe up and you will four options: live, loop, and bounce, and long exposure. To make a live looping photo, click on the loop option, which can turn the live photo to a video loop directly; or you can choose Bounce effect, which will make the live photo rock back and forth.
+
+![convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/add-loop-bounce-effect-to-live-photos.jpg)
+
+ **Step 2: Save Looping Live Photo into A Video**
+
+If you sharing the live photo applied Loop or Bounce effect to social media directly, you will find the animation is lost. So, before sharing, we need to save the looping live photo to video first.
+
+![Convert live photo to looping video on iPhone](https://images.wondershare.com/filmora/article-images/save-looping-live-photo-to-video.jpg)
+
+Click the Share button under the left corner, and then click Save to Files, specify the destination folder and click Save. The loop live photo will be save in MOV format.
+
+ **Step 3: Share the video on Instagram**
+
+To upload the video to Instagram, go the Instagram, and then click on the plus icon in the middle of the bottom bar. Now upload the saved looping video and click on the “Share” button. It will be uploaded on Instagram.
+
+## Part 4: How to Add Music & Sound to Loop Video for Instagram?
+
+One downside of all these methods listed above is that it can only loop videos a specific amount of times. If you want to create looping video with more features, I recommend you to try [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Filmora allows you to create a looping video at the times you like, add music and sound effect to the looping video, and add titles as well.
+
+Here is a quick step-by-step guide on how to create a looping video and add sound effect to it with Filmora.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
+
+Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
+
+ **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
+
+![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
+
+ **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
 <a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
- **Step 1:** Make sure that you have Wondershare Filmora installed, if not, please click the free download button above to start. Once it is downloaded, launch the app.
-
-Since we’re sharing looping videos to Instagram, let’s set up the project aspect ratio to 9:16 first and then import the video by clicking on the plus icon in the middle of the interface to add footage or photos.
-
- **Step 2:** Now, drag and drop the footage to the timeline, and then copy the video from the timeline by pressing Ctrl + C and then paste the video in the timeline as much time as you want to loop by pressing Ctrl + V.
-
-![create Ins looping video with Filmora ](https://images.wondershare.com/filmora/article-images/create-looping-video-filmora.jpg)
-
- **Step 3:** To add music into the looping video, drag and drop the music file into the timeline and trim it according to the size of the video.
-
- **Step 4:** You can also add some elements, titles, or transitions to the looping video to make the looping much fun. At last, click Export and save it as MP4 or MOV format, share it with your Instagram or any desired social media platform.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 <!-- affiliate ads end -->
 ## Conclusion
 
@@ -650,3 +661,47 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-premium-cloud-based-recorder-tech/"><u>[New] 2024 Approved  Premium Cloud-Based Recorder Tech</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-step-into-the-future-mastering-instagram-filters-for-enhanced-imagery/"><u>[New] 2024 Approved  Step Into the Future  Mastering Instagram Filters for Enhanced Imagery</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-guide-to-finding-instagram-filters-for-no-cost/"><u>[New] 2024 Approved  The Ultimate Guide to Finding Instagram Filters for No Cost</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-step-by-step-to-mastering-instagram-chat-videos/"><u>[New] A Step-by-Step to Mastering Instagram Chat Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-decoding-instagrams-best-timing-practices/"><u>[New] Decoding Instagram's Best Timing Practices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-enhance-your-images-choosing-great-border-options-on-ig/"><u>[New] In 2024, Enhance Your Images  Choosing Great Border Options on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-leading-10-views-unmasked-story-watchers/"><u>[New] Leading 10 Views  Unmasked Story Watchers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-ranked-cloud-stores-analysis-and-pricing-insights/"><u>[New] Top-Ranked Cloud Stores  Analysis & Pricing Insights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unlock-the-full-potential-of-your-videos-on-instagram-platform/"><u>[New] Unlock the Full Potential of Your Videos on Instagram Platform</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-proven-tactics-increasing-your-instagram-video-traffic/"><u>[Updated] 2024 Approved  Proven Tactics  Increasing Your Instagram Video Traffic</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-elevating-your-social-media-presence-with-igtv-videos-for-2024/"><u>[Updated] Elevating Your Social Media Presence with IGTV Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-flip-and-float-instagrams-guide-to-crafting-versatile-visual-content/"><u>[Updated] In 2024, Flip and Float  Instagram's Guide to Crafting Versatile Visual Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-integrating-b-roll-effectively-without-distraction/"><u>[Updated] In 2024, Integrating B Roll Effectively Without Distraction</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-rapid-growth-on-instagram-the-like-video-duo-power/"><u>[Updated] In 2024, Rapid Growth on Instagram  The Like-Video Duo Power</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-insta-authenticity-selfie-verification-insights/"><u>[Updated] Insta Authenticity  Selfie Verification Insights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-prowess-the-ultimate-list-of-powerful-hashtags/"><u>[Updated] Instagram Prowess  The Ultimate List of Powerful Hashtags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-vlog-presentation-converting-h-footage-for-vertical-display-for-2024/"><u>[Updated] Mastering Vlog Presentation  Converting H-Footage for Vertical Display for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-melodic-matchups-finding-the-right-song-for-your-insta-story/"><u>[Updated] Melodic Matchups  Finding the Right Song for Your Insta Story</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-social-synergy-connecting-the-two-giants/"><u>[Updated] Social Synergy  Connecting the Two Giants</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-art-of-audio-alteration-for-stories-and-reels-on-ig-for-2024/"><u>[Updated] The Art of Audio Alteration  For Stories and Reels on IG for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-secure-your-screen-captures-online/"><u>2024 Approved  Secure Your Screen Captures Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-switch-off-guide-instagrams-igtv/"><u>2024 Approved  Switch-Off Guide  Instagram's IGTV</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-future-of-flight-hubsans-revolutionary-h501s-explored/"><u>2024 Approved  The Future of Flight - Hubsan's Revolutionary H501S Explored</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/crafting-captivating-instagram-puzzles-a-step-by-step-approach-for-2024/"><u>Crafting Captivating Instagram Puzzles  A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-social-media-savant-to-money-maker-on-instagram/"><u>From Social Media Savant to Money Maker on Instagram</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-apple-iphone-14-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>How to Change GPS Location on Apple iPhone 14 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-13-mini-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 13 mini to an Older Version? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-tecno-pova-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-explore-advanced-techniques-making-a-difference-with-your-captivating-slow-motion-videos-and-photos-for-instagram/"><u>In 2024, Explore Advanced Techniques  Making a Difference with Your Captivating Slow-Motion Videos & Photos for Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-instagram-analytics-audience-insight-crusade/"><u>In 2024, Mastering Instagram Analytics  Audience Insight Crusade</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-preserve-your-pics-and-videos-top-15-tools-reviewed/"><u>In 2024, Preserve Your Pics & Videos  Top 15 Tools Reviewed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-insta-editors-playbook-video-cropping-for-maximum-visibility/"><u>In 2024, The Insta Editors' Playbook  Video Cropping for Maximum Visibility</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-depth-exploration-of-durecorder-features-for-2024/"><u>In-Depth Exploration of DuRecorder Features for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/simplify-your-menu-planning-with-these-7-chatgpt-insights/"><u>Simplify Your Menu Planning With These 7 ChatGPT Insights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/synching-sounds-with-visual-stories-on-ig-for-2024/"><u>Synching Sounds with Visual Stories on IG for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-guide-to-secretive-instagram-viewing-for-2024/"><u>The Ultimate Guide to Secretive Instagram Viewing for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ultimate-free-video-resizer-tool-easily-switch-from-4k-to-full-hd-720p-and-more/"><u>Ultimate Free Video Resizer Tool - Easily Switch From 4K to Full HD, 720P & More</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unleash-potential-blend-the-best-of-tiktok-and-instagram-reel-artistry-for-2024/"><u>Unleash Potential  Blend the Best of TikTok and Instagram Reel Artistry for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-the-ultimate-guide-to-free-video-splitters-top-5-picks/"><u>Updated The Ultimate Guide to Free Video Splitters Top 5 Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-expect-cross-device-connectivity-soon/"><u>WhatsApp Users Expect Cross-Device Connectivity Soon</u></a></li>
+</ul></div>
