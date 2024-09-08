@@ -1,7 +1,7 @@
 ---
 title: "Mastering Instagram's Music Stickers Integration for 2024"
-date: 2024-09-03T10:09:58.243Z
-updated: 2024-09-04T10:09:58.243Z
+date: 2024-09-07T11:00:12.478Z
+updated: 2024-09-08T11:00:12.478Z
 tags:
   - ai video
   - ai instagram
@@ -15,12 +15,30 @@ keywords: "Instagram Sticker Music,Music Stickers Use,Master Insta Music,Social 
 thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d83c11a51da5e1af69c65adca.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Mastering Instagram's Music Stickers Integration
 
 # Instagram Music Sticker: How to Get the Music Sticker on Instagram
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -61,6 +79,166 @@ Now, if you don't see the music sticker this way, try these:
 
 ![Add Music Sticker](https://images.wondershare.com/filmora/article-images/add-music-sticker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to Add Music to Instagram Story with Music Sticker
+
+Did I tell you that you can customize the music sticker? Oh, my bad. As we know that Instagram has a creative and diverse audience, the music sticker allows customizations. Now, what exactly does that mean?
+
+* You can change the size and location of the music sticker on your story.
+* You can choose to add lyrics to the song or choose to display it as a music player.
+* The font of the lyric can also be changed
+* You can even change the color of the music player or the lyrics
+* Choose the length of the song (max 15seconds)
+
+Now that you have gained access to the music sticker let's talk about how it can be used to add your favorite music.
+
+1.Shoot a photo/video as an Instagram story or choose an older one from your gallery
+
+2.Click on Stickers on the top and choose 'Music' from the stickers
+
+3.Tap on Music, and you will be presented with a list of songs. Categorized as popular, genre, and moods so that you can quickly swipe through the desired list to choose a perfect piece. Or you can even search for a specific song in the search bar above
+
+4.Preview the song by playing it in the app
+
+5.Once you find that perfect song to go with your video, click Add. Voila!
+
+![Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora
+
+Want to create stunning videos for your Instagram? Then the basic editing tools on Instagram won't be enough. Wondershare Filmora is the answer you are looking for. This powerhouse yet easy editing tool has over 100 in-built effects that can render your videos spectacularly beautiful. What's more, you don't have to be an editing expert to master this app. You can even add catchy titles to give more expressiveness to your videos.
+
+Moreover, Filmora offers noise reduction and voiceover features too. Add motion graphics, keyframe animations, or aesthetic filters to enhance your Instagram videos. These are only a few of the impressive features that Filmora has. Hop on to discover more.
+
+First, let me enlighten you on how to use some of the features:
+
+1\. In the Effects tab, choose from over 120 Filters or Overlays to give a cinematic look to your video. By using Mosaic, you can blur out certain parts of the video. You can even add multiple Mosaic filters.
+
+![Filmora Effects Tab](https://images.wondershare.com/filmora/article-images/filmora-effects-tab.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+2.Add emojis from the vast library in the Elements tab or get free packages in Filmstock for more cute effects.
+
+![Filmora Add Emojis](https://images.wondershare.com/filmora/article-images/filmora-add-emojis.jpg)
+
+3.Choose a template from the Split Screen tab to create a stunning video collage.
+
+![Filmora Add Sticker](https://images.wondershare.com/filmora/article-images/filmora-add-sticker.jpg)
+
+4.Click on the Titlestab to choose an eye-catching caption style and then adjust the font, size, style.
+
+![Filmora Add Video Titles](https://images.wondershare.com/filmora/article-images/filmora-add-video-titles.jpg)
+
+### Over To You
+
+Now that I have shared all the details on the Instagram music sticker, it's up to you how you use it to your advantage. You may share your favorite songs or delight your audience with a story worth watching.
+
+There is no denying that a song makes videos much more enjoyable. Add a few special effects with Filmora, and there is a spectacular video ready to be shared with the world.
+
+Ready to take over Instagram with your creativity?
+
+Let us know if this was helpful.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Instagram, well-known for being a visually appealing social platform, is now going to sound better too. Yes, you heard me right. Now you can add an Instagram music sticker to insert a soundtrack to your story.
+
+Finally, you can make your stories to the beat of your favorite song. If you were not able to express your mood through a no-audio video, this is your chance to add-in a song that best relates to your emotions
+
+Shoot beautiful scenery and add the Instagram music sticker to complement it with the perfect song. A treat for both your eyes and ears!
+
+* [Part 1: How to Get the Music Sticker on Instagram](#part1)
+* [Part 2: How to Add Music to Instagram Story with Music Sticker](#part2)
+* [Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: How to Get the Music Sticker on Instagram
+
+Now, what good is the music sticker if you don't get to use it? Well, I am here to make sure that you do. However, let me warn you that if you still don't see the sticker, it might not be available in your region
+
+There is no rocket science to getting your hands on the music sticker. It's sometimes the glitches blocking our way.
+
+Here are various ways to get the music sticker. All are tried and tested.
+
+1.The first and foremost step is to capture a photo/video or choose a pre-existing one from your gallery.
+
+2.Tap the Stickers button and choose the Music sticker.
+
+![Find Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/find-instagram-music-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Now, if you don't see the music sticker this way, try these:
+
+* Borrow- Search a friend's story featuring music. Tap on the music sticker, and a pop-up will display. Click on Try Music in Your Story. Discard it then and return to your sticker library to check if it reappears
+* Update- You might be using the older version. Go to the app store and update
+
+![Update Instagram App](https://images.wondershare.com/filmora/article-images/update-instagram-app.jpg)
+
+* Re-Login –Go to Settings and log out and then log in again (P.S do this only if you remember your password)
+* Music App- Use Spotify or Soundcloud to upload songs to your story directly. Open the song you wish to share. Click on the three dots and select Share to Instagram story
+
+![Add Music Sticker](https://images.wondershare.com/filmora/article-images/add-music-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Add Music to Instagram Story with Music Sticker
 
 Did I tell you that you can customize the music sticker? Oh, my bad. As we know that Instagram has a creative and diverse audience, the music sticker allows customizations. Now, what exactly does that mean?
@@ -98,21 +276,15 @@ First, let me enlighten you on how to use some of the features:
 ![Filmora Effects Tab](https://images.wondershare.com/filmora/article-images/filmora-effects-tab.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 2.Add emojis from the vast library in the Elements tab or get free packages in Filmstock for more cute effects.
 
 ![Filmora Add Emojis](https://images.wondershare.com/filmora/article-images/filmora-add-emojis.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3.Choose a template from the Split Screen tab to create a stunning video collage.
 
 ![Filmora Add Sticker](https://images.wondershare.com/filmora/article-images/filmora-add-sticker.jpg)
@@ -122,7 +294,10 @@ First, let me enlighten you on how to use some of the features:
 ![Filmora Add Video Titles](https://images.wondershare.com/filmora/article-images/filmora-add-video-titles.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1374820" src="//a.impactradius-go.com/gen-ad-code/5597632/1374820/15852" width="250" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Over To You
 
@@ -137,7 +312,152 @@ Let us know if this was helpful.
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1982456" src="//a.impactradius-go.com/gen-ad-code/5597632/1982456/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Instagram, well-known for being a visually appealing social platform, is now going to sound better too. Yes, you heard me right. Now you can add an Instagram music sticker to insert a soundtrack to your story.
+
+Finally, you can make your stories to the beat of your favorite song. If you were not able to express your mood through a no-audio video, this is your chance to add-in a song that best relates to your emotions
+
+Shoot beautiful scenery and add the Instagram music sticker to complement it with the perfect song. A treat for both your eyes and ears!
+
+* [Part 1: How to Get the Music Sticker on Instagram](#part1)
+* [Part 2: How to Add Music to Instagram Story with Music Sticker](#part2)
+* [Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: How to Get the Music Sticker on Instagram
+
+Now, what good is the music sticker if you don't get to use it? Well, I am here to make sure that you do. However, let me warn you that if you still don't see the sticker, it might not be available in your region
+
+There is no rocket science to getting your hands on the music sticker. It's sometimes the glitches blocking our way.
+
+Here are various ways to get the music sticker. All are tried and tested.
+
+1.The first and foremost step is to capture a photo/video or choose a pre-existing one from your gallery.
+
+2.Tap the Stickers button and choose the Music sticker.
+
+![Find Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/find-instagram-music-sticker.jpg)
+
+Now, if you don't see the music sticker this way, try these:
+
+* Borrow- Search a friend's story featuring music. Tap on the music sticker, and a pop-up will display. Click on Try Music in Your Story. Discard it then and return to your sticker library to check if it reappears
+* Update- You might be using the older version. Go to the app store and update
+
+![Update Instagram App](https://images.wondershare.com/filmora/article-images/update-instagram-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+* Re-Login –Go to Settings and log out and then log in again (P.S do this only if you remember your password)
+* Music App- Use Spotify or Soundcloud to upload songs to your story directly. Open the song you wish to share. Click on the three dots and select Share to Instagram story
+
+![Add Music Sticker](https://images.wondershare.com/filmora/article-images/add-music-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to Add Music to Instagram Story with Music Sticker
+
+Did I tell you that you can customize the music sticker? Oh, my bad. As we know that Instagram has a creative and diverse audience, the music sticker allows customizations. Now, what exactly does that mean?
+
+* You can change the size and location of the music sticker on your story.
+* You can choose to add lyrics to the song or choose to display it as a music player.
+* The font of the lyric can also be changed
+* You can even change the color of the music player or the lyrics
+* Choose the length of the song (max 15seconds)
+
+Now that you have gained access to the music sticker let's talk about how it can be used to add your favorite music.
+
+1.Shoot a photo/video as an Instagram story or choose an older one from your gallery
+
+2.Click on Stickers on the top and choose 'Music' from the stickers
+
+3.Tap on Music, and you will be presented with a list of songs. Categorized as popular, genre, and moods so that you can quickly swipe through the desired list to choose a perfect piece. Or you can even search for a specific song in the search bar above
+
+4.Preview the song by playing it in the app
+
+5.Once you find that perfect song to go with your video, click Add. Voila!
+
+![Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
+
+## Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora
+
+Want to create stunning videos for your Instagram? Then the basic editing tools on Instagram won't be enough. Wondershare Filmora is the answer you are looking for. This powerhouse yet easy editing tool has over 100 in-built effects that can render your videos spectacularly beautiful. What's more, you don't have to be an editing expert to master this app. You can even add catchy titles to give more expressiveness to your videos.
+
+Moreover, Filmora offers noise reduction and voiceover features too. Add motion graphics, keyframe animations, or aesthetic filters to enhance your Instagram videos. These are only a few of the impressive features that Filmora has. Hop on to discover more.
+
+First, let me enlighten you on how to use some of the features:
+
+1\. In the Effects tab, choose from over 120 Filters or Overlays to give a cinematic look to your video. By using Mosaic, you can blur out certain parts of the video. You can even add multiple Mosaic filters.
+
+![Filmora Effects Tab](https://images.wondershare.com/filmora/article-images/filmora-effects-tab.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+2.Add emojis from the vast library in the Elements tab or get free packages in Filmstock for more cute effects.
+
+![Filmora Add Emojis](https://images.wondershare.com/filmora/article-images/filmora-add-emojis.jpg)
+
+3.Choose a template from the Split Screen tab to create a stunning video collage.
+
+![Filmora Add Sticker](https://images.wondershare.com/filmora/article-images/filmora-add-sticker.jpg)
+
+4.Click on the Titlestab to choose an eye-catching caption style and then adjust the font, size, style.
+
+![Filmora Add Video Titles](https://images.wondershare.com/filmora/article-images/filmora-add-video-titles.jpg)
+
+### Over To You
+
+Now that I have shared all the details on the Instagram music sticker, it's up to you how you use it to your advantage. You may share your favorite songs or delight your audience with a story worth watching.
+
+There is no denying that a song makes videos much more enjoyable. Add a few special effects with Filmora, and there is a spectacular video ready to be shared with the world.
+
+Ready to take over Instagram with your creativity?
+
+Let us know if this was helpful.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 
@@ -173,141 +493,11 @@ Here are various ways to get the music sticker. All are tried and tested.
 
 ![Find Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/find-instagram-music-sticker.jpg)
 
-Now, if you don't see the music sticker this way, try these:
-
-* Borrow- Search a friend's story featuring music. Tap on the music sticker, and a pop-up will display. Click on Try Music in Your Story. Discard it then and return to your sticker library to check if it reappears
-* Update- You might be using the older version. Go to the app store and update
-
-![Update Instagram App](https://images.wondershare.com/filmora/article-images/update-instagram-app.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-* Re-Login –Go to Settings and log out and then log in again (P.S do this only if you remember your password)
-* Music App- Use Spotify or Soundcloud to upload songs to your story directly. Open the song you wish to share. Click on the three dots and select Share to Instagram story
-
-![Add Music Sticker](https://images.wondershare.com/filmora/article-images/add-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
-## Part 2: How to Add Music to Instagram Story with Music Sticker
-
-Did I tell you that you can customize the music sticker? Oh, my bad. As we know that Instagram has a creative and diverse audience, the music sticker allows customizations. Now, what exactly does that mean?
-
-* You can change the size and location of the music sticker on your story.
-* You can choose to add lyrics to the song or choose to display it as a music player.
-* The font of the lyric can also be changed
-* You can even change the color of the music player or the lyrics
-* Choose the length of the song (max 15seconds)
-
-Now that you have gained access to the music sticker let's talk about how it can be used to add your favorite music.
-
-1.Shoot a photo/video as an Instagram story or choose an older one from your gallery
-
-2.Click on Stickers on the top and choose 'Music' from the stickers
-
-3.Tap on Music, and you will be presented with a list of songs. Categorized as popular, genre, and moods so that you can quickly swipe through the desired list to choose a perfect piece. Or you can even search for a specific song in the search bar above
-
-4.Preview the song by playing it in the app
-
-5.Once you find that perfect song to go with your video, click Add. Voila!
-
-![Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
-
-## Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora
-
-Want to create stunning videos for your Instagram? Then the basic editing tools on Instagram won't be enough. Wondershare Filmora is the answer you are looking for. This powerhouse yet easy editing tool has over 100 in-built effects that can render your videos spectacularly beautiful. What's more, you don't have to be an editing expert to master this app. You can even add catchy titles to give more expressiveness to your videos.
-
-Moreover, Filmora offers noise reduction and voiceover features too. Add motion graphics, keyframe animations, or aesthetic filters to enhance your Instagram videos. These are only a few of the impressive features that Filmora has. Hop on to discover more.
-
-First, let me enlighten you on how to use some of the features:
-
-1\. In the Effects tab, choose from over 120 Filters or Overlays to give a cinematic look to your video. By using Mosaic, you can blur out certain parts of the video. You can even add multiple Mosaic filters.
-
-![Filmora Effects Tab](https://images.wondershare.com/filmora/article-images/filmora-effects-tab.jpg)
-
-2.Add emojis from the vast library in the Elements tab or get free packages in Filmstock for more cute effects.
-
-![Filmora Add Emojis](https://images.wondershare.com/filmora/article-images/filmora-add-emojis.jpg)
-
-<!-- affiliate ads begin -->
-<iframe id="iframe_1975636" src="//a.impactradius-go.com/gen-ad-code/5597632/1975636/22993" width="160" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-3.Choose a template from the Split Screen tab to create a stunning video collage.
-
-![Filmora Add Sticker](https://images.wondershare.com/filmora/article-images/filmora-add-sticker.jpg)
-
-4.Click on the Titlestab to choose an eye-catching caption style and then adjust the font, size, style.
-
-![Filmora Add Video Titles](https://images.wondershare.com/filmora/article-images/filmora-add-video-titles.jpg)
-
-### Over To You
-
-Now that I have shared all the details on the Instagram music sticker, it's up to you how you use it to your advantage. You may share your favorite songs or delight your audience with a story worth watching.
-
-There is no denying that a song makes videos much more enjoyable. Add a few special effects with Filmora, and there is a spectacular video ready to be shared with the world.
-
-Ready to take over Instagram with your creativity?
-
-Let us know if this was helpful.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Instagram, well-known for being a visually appealing social platform, is now going to sound better too. Yes, you heard me right. Now you can add an Instagram music sticker to insert a soundtrack to your story.
-
-Finally, you can make your stories to the beat of your favorite song. If you were not able to express your mood through a no-audio video, this is your chance to add-in a song that best relates to your emotions
-
-Shoot beautiful scenery and add the Instagram music sticker to complement it with the perfect song. A treat for both your eyes and ears!
-
-* [Part 1: How to Get the Music Sticker on Instagram](#part1)
-* [Part 2: How to Add Music to Instagram Story with Music Sticker](#part2)
-* [Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora](#part3)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 1: How to Get the Music Sticker on Instagram
-
-Now, what good is the music sticker if you don't get to use it? Well, I am here to make sure that you do. However, let me warn you that if you still don't see the sticker, it might not be available in your region
-
-There is no rocket science to getting your hands on the music sticker. It's sometimes the glitches blocking our way.
-
-Here are various ways to get the music sticker. All are tried and tested.
-
-1.The first and foremost step is to capture a photo/video or choose a pre-existing one from your gallery.
-
-2.Tap the Stickers button and choose the Music sticker.
-
-![Find Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/find-instagram-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Now, if you don't see the music sticker this way, try these:
 
@@ -317,10 +507,10 @@ Now, if you don't see the music sticker this way, try these:
 ![Update Instagram App](https://images.wondershare.com/filmora/article-images/update-instagram-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 * Re-Login –Go to Settings and log out and then log in again (P.S do this only if you remember your password)
 * Music App- Use Spotify or Soundcloud to upload songs to your story directly. Open the song you wish to share. Click on the three dots and select Share to Instagram story
@@ -328,10 +518,10 @@ Now, if you don't see the music sticker this way, try these:
 ![Add Music Sticker](https://images.wondershare.com/filmora/article-images/add-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2: How to Add Music to Instagram Story with Music Sticker
 
@@ -358,7 +548,10 @@ Now that you have gained access to the music sticker let's talk about how it can
 ![Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1912746" src="//a.impactradius-go.com/gen-ad-code/5597632/1912746/20231" width="300" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora
 
@@ -372,16 +565,16 @@ First, let me enlighten you on how to use some of the features:
 
 ![Filmora Effects Tab](https://images.wondershare.com/filmora/article-images/filmora-effects-tab.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 2.Add emojis from the vast library in the Elements tab or get free packages in Filmstock for more cute effects.
 
 ![Filmora Add Emojis](https://images.wondershare.com/filmora/article-images/filmora-add-emojis.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3.Choose a template from the Split Screen tab to create a stunning video collage.
 
 ![Filmora Add Sticker](https://images.wondershare.com/filmora/article-images/filmora-add-sticker.jpg)
@@ -391,7 +584,10 @@ First, let me enlighten you on how to use some of the features:
 ![Filmora Add Video Titles](https://images.wondershare.com/filmora/article-images/filmora-add-video-titles.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1793213" src="//a.impactradius-go.com/gen-ad-code/5597632/1793213/19135" width="728" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Over To You
 
@@ -406,144 +602,11 @@ Let us know if this was helpful.
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Instagram, well-known for being a visually appealing social platform, is now going to sound better too. Yes, you heard me right. Now you can add an Instagram music sticker to insert a soundtrack to your story.
-
-Finally, you can make your stories to the beat of your favorite song. If you were not able to express your mood through a no-audio video, this is your chance to add-in a song that best relates to your emotions
-
-Shoot beautiful scenery and add the Instagram music sticker to complement it with the perfect song. A treat for both your eyes and ears!
-
-* [Part 1: How to Get the Music Sticker on Instagram](#part1)
-* [Part 2: How to Add Music to Instagram Story with Music Sticker](#part2)
-* [Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora](#part3)
-
-## Part 1: How to Get the Music Sticker on Instagram
-
-Now, what good is the music sticker if you don't get to use it? Well, I am here to make sure that you do. However, let me warn you that if you still don't see the sticker, it might not be available in your region
-
-There is no rocket science to getting your hands on the music sticker. It's sometimes the glitches blocking our way.
-
-Here are various ways to get the music sticker. All are tried and tested.
-
-1.The first and foremost step is to capture a photo/video or choose a pre-existing one from your gallery.
-
-2.Tap the Stickers button and choose the Music sticker.
-
-![Find Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/find-instagram-music-sticker.jpg)
-
-Now, if you don't see the music sticker this way, try these:
-
-* Borrow- Search a friend's story featuring music. Tap on the music sticker, and a pop-up will display. Click on Try Music in Your Story. Discard it then and return to your sticker library to check if it reappears
-* Update- You might be using the older version. Go to the app store and update
-
-![Update Instagram App](https://images.wondershare.com/filmora/article-images/update-instagram-app.jpg)
-
-* Re-Login –Go to Settings and log out and then log in again (P.S do this only if you remember your password)
-* Music App- Use Spotify or Soundcloud to upload songs to your story directly. Open the song you wish to share. Click on the three dots and select Share to Instagram story
-
-![Add Music Sticker](https://images.wondershare.com/filmora/article-images/add-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 2: How to Add Music to Instagram Story with Music Sticker
-
-Did I tell you that you can customize the music sticker? Oh, my bad. As we know that Instagram has a creative and diverse audience, the music sticker allows customizations. Now, what exactly does that mean?
-
-* You can change the size and location of the music sticker on your story.
-* You can choose to add lyrics to the song or choose to display it as a music player.
-* The font of the lyric can also be changed
-* You can even change the color of the music player or the lyrics
-* Choose the length of the song (max 15seconds)
-
-Now that you have gained access to the music sticker let's talk about how it can be used to add your favorite music.
-
-1.Shoot a photo/video as an Instagram story or choose an older one from your gallery
-
-2.Click on Stickers on the top and choose 'Music' from the stickers
-
-3.Tap on Music, and you will be presented with a list of songs. Categorized as popular, genre, and moods so that you can quickly swipe through the desired list to choose a perfect piece. Or you can even search for a specific song in the search bar above
-
-4.Preview the song by playing it in the app
-
-5.Once you find that perfect song to go with your video, click Add. Voila!
-
-![Instagram Music Sticker](https://images.wondershare.com/filmora/article-images/instagram-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 3: Bonus Tip-Edit Instagram Video with Wondershare Filmora
-
-Want to create stunning videos for your Instagram? Then the basic editing tools on Instagram won't be enough. Wondershare Filmora is the answer you are looking for. This powerhouse yet easy editing tool has over 100 in-built effects that can render your videos spectacularly beautiful. What's more, you don't have to be an editing expert to master this app. You can even add catchy titles to give more expressiveness to your videos.
-
-Moreover, Filmora offers noise reduction and voiceover features too. Add motion graphics, keyframe animations, or aesthetic filters to enhance your Instagram videos. These are only a few of the impressive features that Filmora has. Hop on to discover more.
-
-First, let me enlighten you on how to use some of the features:
-
-1\. In the Effects tab, choose from over 120 Filters or Overlays to give a cinematic look to your video. By using Mosaic, you can blur out certain parts of the video. You can even add multiple Mosaic filters.
-
-![Filmora Effects Tab](https://images.wondershare.com/filmora/article-images/filmora-effects-tab.jpg)
-
-<!-- affiliate ads begin -->
-<iframe id="iframe_1304647" src="//a.impactradius-go.com/gen-ad-code/5597632/1304647/15852" width="300" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-2.Add emojis from the vast library in the Elements tab or get free packages in Filmstock for more cute effects.
-
-![Filmora Add Emojis](https://images.wondershare.com/filmora/article-images/filmora-add-emojis.jpg)
-
-3.Choose a template from the Split Screen tab to create a stunning video collage.
-
-![Filmora Add Sticker](https://images.wondershare.com/filmora/article-images/filmora-add-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-4.Click on the Titlestab to choose an eye-catching caption style and then adjust the font, size, style.
-
-![Filmora Add Video Titles](https://images.wondershare.com/filmora/article-images/filmora-add-video-titles.jpg)
-
-### Over To You
-
-Now that I have shared all the details on the Instagram music sticker, it's up to you how you use it to your advantage. You may share your favorite songs or delight your audience with a story worth watching.
-
-There is no denying that a song makes videos much more enjoyable. Add a few special effects with Filmora, and there is a spectacular video ready to be shared with the world.
-
-Ready to take over Instagram with your creativity?
-
-Let us know if this was helpful.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

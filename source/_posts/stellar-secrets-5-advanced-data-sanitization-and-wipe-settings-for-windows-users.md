@@ -1,7 +1,7 @@
 ---
 title: Stellar Secrets 5 - Advanced Data Sanitization and Wipe Settings for Windows Users
-date: 2024-09-03T10:09:43.277Z
-updated: 2024-09-04T10:09:43.277Z
+date: 2024-09-07T10:59:58.614Z
+updated: 2024-09-08T10:59:58.614Z
 categories:
   - repair-tools
 description: This Article Describes Stellar Secrets 5 - Advanced Data Sanitization and Wipe Settings for Windows Users
@@ -9,6 +9,18 @@ excerpt: This Article Describes Stellar Secrets 5 - Advanced Data Sanitization a
 thumbnail: https://thmb.techidaily.com/948ca341d15cde5d0f54616ed06f4255209470f04b03c46cee19f973459e05a3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stellar Secrets 5 - Advanced Data Sanitization and Wipe Settings for Windows Users
 
 Stellar File Eraser
@@ -26,6 +38,12 @@ Stellar File Eraser
   * [3.6. Stellar Support](https://tools.techidaily.com/stellardata-recovery/buy-now/)
 * ![arow](https://www.stellarinfo.com/help/public/frontEnd/onlinehelp/images/arow.png) 4\. Working with the Software  
   * [4.1. Erasing Files & Folders](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   * [4.2. Erasing Traces](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
   * [4.3. Erasing Deleted Data](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
   * [arow 4.4. Setting Schedule Erasure](https://www.stellarinfo.com/help/public/frontEnd/onlinehelp/images/arow.png) 4.4\. Setting Schedule Erasure ](https://tools.techidaily.com/stellardata-recovery/buy-now/)  
@@ -45,6 +63,12 @@ Stellar File Eraser
 
 ![toogle](https://www.stellarinfo.com/help/public/frontEnd/onlinehelp/images/toogle.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Stellar File Eraser](https://tools.techidaily.com/stellardata-recovery/buy-now/) /[4. Working with the Software](https://tools.techidaily.com/stellardata-recovery/buy-now/) /[4.4. Setting Schedule Erasure](https://tools.techidaily.com/stellardata-recovery/buy-now/) /**4.4.1\. Setting Schedule Erasure for Erasing Traces**
 
 # **4.4.1\. Setting Schedule Erasure for Erasing Traces**
@@ -57,10 +81,22 @@ Stellar File Eraser
 
 ![Stellar Help](https://www.stellarinfo.com/help/public/onlinehelp_img/stellar-file-eraser-5-windows-standard-en/setting-scheduler-for-erasing-traces/user-interface.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Select**Schedule Erasure** from**Select Option** tabs displayed on the left pane of the screen.
 
 ![Stellar Help](https://www.stellarinfo.com/help/public/onlinehelp_img/stellar-file-eraser-5-windows-standard-en/setting-scheduler-for-erasing-traces/Schedule-Eraser-traces.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. **Schedule Erasure** window displays and**Erase Traces** tab is by default selected.
 2. Schedule the erasure task as per your convenience. Select the**Frequency** using the**Run** drop-down list:  
    * Select**Once** to run scheduler once.  
@@ -73,6 +109,12 @@ Stellar File Eraser
 
 ![Stellar Help](https://www.stellarinfo.com/help/public/onlinehelp_img/stellar-file-eraser-5-windows-standard-en/setting-scheduler-for-erasing-traces/Task-schedule.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Click**OK** to finish the process.
 
 _**Note** : A scheduler **Summary** with**Task Name** ,**Status** ,**Trigger** ,**Next Run Time** ,**Last Run Time** is created everytime when you task a schedule._
@@ -149,10 +191,3 @@ _**Note** : A scheduler **Summary** with**Task Name** ,**Status** ,**Trigger** ,
 <li><a href="https://instagram-video-files.techidaily.com/instagram-filter-application-guide-tips-and-tricks-for-2024/"><u>Instagram Filter Application Guide - Tips & Tricks for 2024</u></a></li>
 <li><a href="https://instagram-video-files.techidaily.com/unveiling-the-secrets-to-stellar-igtv-footage-capture/"><u>Unveiling the Secrets to Stellar IGTV Footage Capture</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

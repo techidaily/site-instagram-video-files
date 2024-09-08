@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Maximize Impact  Instagram's Ideal Video Resolution for 2024\""
-date: 2024-09-03T10:09:54.191Z
-updated: 2024-09-04T10:09:54.191Z
+date: 2024-09-07T11:00:08.754Z
+updated: 2024-09-08T11:00:08.754Z
 tags:
   - ai video
   - ai instagram
@@ -15,12 +15,30 @@ keywords: "\"High-Res ImgOpt,InstaVideo Quality,MaxImpact Stories,UHD ImgGram,Fl
 thumbnail: https://thmb.techidaily.com/ce1836626dd4307cd42ffb8054ede87619858d1bf1634f1f32732c80e0c8c7aa.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Maximize Impact: Instagram's Ideal Video Resolution
 
 # Instagram Video Dimensions & Story Size \[The Ultimate Guide for Perfect Posts\]
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -59,10 +77,10 @@ Before getting into the nitty-gritty of this article, it is prudent to understan
 Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Best Instagram Video Dimensions Specifications for a Post
 
@@ -71,10 +89,16 @@ Even though MP4 is the only supported Instagram video format, you can set the vi
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
@@ -101,6 +125,12 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
 To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
@@ -111,6 +141,12 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### #2 - Instagram Story Dimensions
 
 Instagram story option started in 2016\. According to [Buffer](https://buffer.com/library/instagram-stories), to maintain story completion rate above 70%, your story frames should range from one to seven. Moreover, because Instagram stories last for 24 hours, use aspect ratio you are certain will display high-resolution frames.
@@ -205,11 +241,553 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
 
+How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
+
+Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
+
+You are permitted to upload photos with a high aspect ratio as 16:9\. However, these extra sizes will display in the form of a black border.
+
+If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
+
+## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
+
+The best method to publish high-quality Instagram videos and photos is to edit them before publishing.
+
+To share well-edit photos and videos, it is good to use a video editor. We recommend the [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)(for Windows and Mac) and [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/) (for mobile phones) for the above purpose.
+
+They are easy-to-use video editors that you can directly upload and share on your Instagram after the editing is done.
+
+**Filmora** is the simplest video editor **for** **Windows and Mac**  to use on your computer and has the capability of creating up to 100 video clips. Whether you want to set your video aspect ratio to 1.91:1 or 19:6, Filmora has a project settings option to input the exact sizes and dimensions.
+
+It's free to use and click the below link to download now.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
+
+**You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Conclusion
+
+With over 100 million videos and photos shared on Instagram daily, do they meet the recommended Instagram video dimensions? Having all Instagram sizes and dimensions at your fingertips is next to impossibility.
+
+For your image and video, posts to have the right sizes, master the most used aspect ratios and sizes .i.e. 16:9, 1:1, 1080 X1080\. To avoid frustrations of zero views, black borders, and pixelated images, take time to edit your videos and images.
+
+What sizes and dimensions do you use to take Instagram photos and stream videos? Share your comments and thoughts.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+With a digital camera or smartphone, anybody can take good photos and record videos for Instagram posts. For videos and photos to retain their quality, Instagram video dimensions and photo sizes should be complied with.
+
+But if Instagram enlarges and compresses videos and photo dimensions to fit its recommended standards, why are sizes a concern? And yet they’ll upload anyway and Instagram users will see.
+
+Because you want many people to watch the video, comment or like your story, this article answers what sizes matter a lot. We illustrate all the best video dimensions for Instagram and image sizes you should use.
+
+**You will Learn :**
+
+* [Why Instagram Post Size Matters?](#part1)
+* [Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained](#part2)
+* [Best Instagram Video Dimensions Specifications for a Post](#part3)
+* [Well Prepare Your Instagram Videos and Photos with the Best Editing Software](#part4)
+
+You may also like: [Creative Video Marketing Ideas for Business](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Why Instagram Post Size Matters?
+
+Knowing Instagram’ supported file formats, sizes, resolutions and frame rates helps maintain the original quality of your videos and images. If you upload large images, Instagram will crop them while publishing small images will make them be enlarged.
+
+Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
+
+## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
+
+**Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
+
+**Image size**  is the height and width of a photo or video in pixels. A standard cover photo for Instagram should be 420px by 654px. A pixel is the smallest area on a display screen.
+
+**Resolution**  is the number of pixels in a video or photo. It is the product of pixels on the width and height of the image. The minimum video resolution on Instagram is 720 pixels.
+
+**Frame rate**  is the rate at which individual images (frames) display on a screen per second and the initial is FPS. For Instagram to support your videos, the minimum frame rate should be 30FPS.
+
+Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
+
+## Best Instagram Video Dimensions Specifications for a Post
+
+Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
+
+![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
+
+Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
+
+Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
+
+To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### #1 - Instagram Video Dimensions And Sizes
+
+To optimize these Instagram video orientations, here are the dimensional specifications you need to know:
+
+#### Instagram Square Videos
+
+![best video dimensions for instagram](https://images.wondershare.com/filmora/instagram-square-videos.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Since the launch of Instagram video sharing feature, square videos are the most successful orientation. To occupy a larger space to attract more attention, we recommend square videos. Use the following Instagram square video dimensions to produce high-quality videos.
+
+* Maximum Instagram file size is 4GB
+* The aspect ratio should be 1:1 with minimum dimension of 600px by 600px and a maximum of 1080px by 1080px.
+* Video codecs should be , VP8
+* Maximum frame rate is 30fps
+
+#### Instagram Horizontal Videos (Landscape)
+
+![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
+
+Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
+
+To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
+
+#### Instagram Vertical Video (Portrait)
+
+![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
+
+Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### #2 - Instagram Story Dimensions
+
+Instagram story option started in 2016\. According to [Buffer](https://buffer.com/library/instagram-stories), to maintain story completion rate above 70%, your story frames should range from one to seven. Moreover, because Instagram stories last for 24 hours, use aspect ratio you are certain will display high-resolution frames.
+
+Instagram story size is less stringed compared to the videos. Instagram allows its users to upload photos and videos for creating a story with an aspect ratio of between 1.91:1 and 9:16\. Below or above these ratios, the story will have borders and thus affect its quality.
+
+The best Instagram story size is be 1080px by 1920px.
+
+#### #3 - Instagram Carousel Ads Dimensions
+
+Just like the Instagram story, carousel ads are created from videos and images. They are mostly used by advertisers to showcase multiple products in a single ad. To create Instagram carousel ads, you also require a thumbnail image with 1:1 aspect ration and text whose dimensions less than 20% the size of image space.
+
+Due to the many Instagram carousel ads dimension requirements, it is a bit challenging to create perfect ads. Good carousel ads should have a combination of 2-10 images and videos.
+
+But since you’ve to create it anyway, use these Instagram carousel image sizes:
+
+* Carousel Image resolution- 1080px by 1080px
+* Maximum single image size- 3MB
+* Aspect ratio of 1:1
+
+Your Instagram carousel video sizes should have:
+
+* A maximum length of 60 seconds
+* An aspect ratio of 1:1
+* Have an MP4 format
+* A maximum size of 1080px by 1920px and a minimum size of 600px by 600px
+* Maximum size of 4GB
+
+#### #4 - Instagram IGTV Video Dimensions
+
+IGTV (Instagram TV) is a feature used for sharing videos. Even though Instagram recommends IGTV videos with vertical and horizontal video formats, it displays the vertical format.
+
+Since you require a cover photo for the videos, ensure it has an aspect ratio of 1:1.15 and size of 420px by 654px.
+
+For your IG videos to be accepted, use the following specified IGTV video sizes:
+
+* IGTV video length if uploading from mobile -15 minutes
+* Video length when uploading from web – 60 minutes
+* Aspect ratio - 9:16/ 16:9
+* Minimum video frame rate- 30fps
+* Minimum resolution – 720px
+* Maximum video size of fewer than 10 minutes – 650MB
+* Maximum video size of up to 60 minutes – 3.6GB
+* Video size - 1920px by 1080px / 1080px by 1920px
+
+#### #5 - Instagram Live Video dimensions
+
+Want to know the juicy part of Instagram? Try Instagram live video. Broadcasting your interview, illustrating how to prepare a tasty meal or streaming your wedding on Instagram can be really exciting.
+
+Instagram live video is broadcast in a vertical format. No much dimensional requirements are specified except the aspect ratio.
+
+The only Instagram Live video requirement is using portrait orientation with an Instagram aspect ratio of 9:16.
+
+With all these different Instagram video dimension specifications, how long can Instagram videos be? Here is a brief of how long are Instagram videos:
+
+* regular Instagram video post – 15 seconds
+* Instagram live video – 60 minutes
+* IGTV videos- 15 seconds to 10 minutes, verified accounts post 60-minute videos
+
+#### #6 - Requirements for Instagram Photo Sizes
+
+Individuals and businesses are increasingly relying on photographs to promote their profiles and products on Instagram. As millions of photos are uploaded on Instagram every day, Instagram photo sizes are now of concern to every user.
+
+Unlike the Instagram video complexities, photos have much easier to edit and upload. However, the freedom to share Instagram photos in landscape and portrait formats began in 2015\. Initially, people only used the square format (aspect ratio 1:1).
+
+Now that you have the options to share photos in different sizes, what is the best size for Instagram photos? Here is the answer:
+
+Wait!
+
+What is your Instagram profile picture size? It is your trademark! Therefore, it matters a lot. On the smartphone, set the Instagram profile photo at 110px by 110px. Since the computer has a higher resolution, make the profile image size to be 180px by 180px.
+
+#### Instagram Square Photo Size
+
+![instagram story dimensions](https://images.wondershare.com/filmora/instagram-square-photo-size.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+As said earlier, your square photos should have an aspect ratio of 1:1\. To retain original photo qualities of, these are the right Instagram picture sizes to use:
+
+* Minimum picture size: 320px by 320px
+* Maximum picture size: 1080px by 1080px
+
+This is how using extra small or larger photos than recommended affects quality. When you upload a picture with a size below 320 X 320, Instagram enlarges it making pixelated. On the other hand, photo compression occurs when it is larger than 1080 X 1080 resulting in a loss of repeated data on the picture.
+
+#### Instagram Portrait Photo Size
+
+![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
+
+For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
+
+Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
+
+#### Instagram Landscape Photo Size
+
+![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
+
+How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
+
+Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
+
+You are permitted to upload photos with a high aspect ratio as 16:9\. However, these extra sizes will display in the form of a black border.
+
+If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
+
+## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
+
+The best method to publish high-quality Instagram videos and photos is to edit them before publishing.
+
+To share well-edit photos and videos, it is good to use a video editor. We recommend the [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)(for Windows and Mac) and [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/) (for mobile phones) for the above purpose.
+
+They are easy-to-use video editors that you can directly upload and share on your Instagram after the editing is done.
+
+**Filmora** is the simplest video editor **for** **Windows and Mac**  to use on your computer and has the capability of creating up to 100 video clips. Whether you want to set your video aspect ratio to 1.91:1 or 19:6, Filmora has a project settings option to input the exact sizes and dimensions.
+
+It's free to use and click the below link to download now.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
+
+**You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Conclusion
+
+With over 100 million videos and photos shared on Instagram daily, do they meet the recommended Instagram video dimensions? Having all Instagram sizes and dimensions at your fingertips is next to impossibility.
+
+For your image and video, posts to have the right sizes, master the most used aspect ratios and sizes .i.e. 16:9, 1:1, 1080 X1080\. To avoid frustrations of zero views, black borders, and pixelated images, take time to edit your videos and images.
+
+What sizes and dimensions do you use to take Instagram photos and stream videos? Share your comments and thoughts.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+With a digital camera or smartphone, anybody can take good photos and record videos for Instagram posts. For videos and photos to retain their quality, Instagram video dimensions and photo sizes should be complied with.
+
+But if Instagram enlarges and compresses videos and photo dimensions to fit its recommended standards, why are sizes a concern? And yet they’ll upload anyway and Instagram users will see.
+
+Because you want many people to watch the video, comment or like your story, this article answers what sizes matter a lot. We illustrate all the best video dimensions for Instagram and image sizes you should use.
+
+**You will Learn :**
+
+* [Why Instagram Post Size Matters?](#part1)
+* [Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained](#part2)
+* [Best Instagram Video Dimensions Specifications for a Post](#part3)
+* [Well Prepare Your Instagram Videos and Photos with the Best Editing Software](#part4)
+
+You may also like: [Creative Video Marketing Ideas for Business](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Why Instagram Post Size Matters?
+
+Knowing Instagram’ supported file formats, sizes, resolutions and frame rates helps maintain the original quality of your videos and images. If you upload large images, Instagram will crop them while publishing small images will make them be enlarged.
+
+Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
+
+## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
+
+**Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
+
+**Image size**  is the height and width of a photo or video in pixels. A standard cover photo for Instagram should be 420px by 654px. A pixel is the smallest area on a display screen.
+
+**Resolution**  is the number of pixels in a video or photo. It is the product of pixels on the width and height of the image. The minimum video resolution on Instagram is 720 pixels.
+
+**Frame rate**  is the rate at which individual images (frames) display on a screen per second and the initial is FPS. For Instagram to support your videos, the minimum frame rate should be 30FPS.
+
+Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Best Instagram Video Dimensions Specifications for a Post
+
+Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
+
+![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
+
+Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
+
+Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
+
+To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
+
+### #1 - Instagram Video Dimensions And Sizes
+
+To optimize these Instagram video orientations, here are the dimensional specifications you need to know:
+
+#### Instagram Square Videos
+
+![best video dimensions for instagram](https://images.wondershare.com/filmora/instagram-square-videos.jpg)
+
+Since the launch of Instagram video sharing feature, square videos are the most successful orientation. To occupy a larger space to attract more attention, we recommend square videos. Use the following Instagram square video dimensions to produce high-quality videos.
+
+* Maximum Instagram file size is 4GB
+* The aspect ratio should be 1:1 with minimum dimension of 600px by 600px and a maximum of 1080px by 1080px.
+* Video codecs should be , VP8
+* Maximum frame rate is 30fps
+
+#### Instagram Horizontal Videos (Landscape)
+
+![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
+
+To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
+
+#### Instagram Vertical Video (Portrait)
+
+![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
+
+### #2 - Instagram Story Dimensions
+
+Instagram story option started in 2016\. According to [Buffer](https://buffer.com/library/instagram-stories), to maintain story completion rate above 70%, your story frames should range from one to seven. Moreover, because Instagram stories last for 24 hours, use aspect ratio you are certain will display high-resolution frames.
+
+Instagram story size is less stringed compared to the videos. Instagram allows its users to upload photos and videos for creating a story with an aspect ratio of between 1.91:1 and 9:16\. Below or above these ratios, the story will have borders and thus affect its quality.
+
+The best Instagram story size is be 1080px by 1920px.
+
+#### #3 - Instagram Carousel Ads Dimensions
+
+Just like the Instagram story, carousel ads are created from videos and images. They are mostly used by advertisers to showcase multiple products in a single ad. To create Instagram carousel ads, you also require a thumbnail image with 1:1 aspect ration and text whose dimensions less than 20% the size of image space.
+
+Due to the many Instagram carousel ads dimension requirements, it is a bit challenging to create perfect ads. Good carousel ads should have a combination of 2-10 images and videos.
+
+But since you’ve to create it anyway, use these Instagram carousel image sizes:
+
+* Carousel Image resolution- 1080px by 1080px
+* Maximum single image size- 3MB
+* Aspect ratio of 1:1
+
+Your Instagram carousel video sizes should have:
+
+* A maximum length of 60 seconds
+* An aspect ratio of 1:1
+* Have an MP4 format
+* A maximum size of 1080px by 1920px and a minimum size of 600px by 600px
+* Maximum size of 4GB
+
+#### #4 - Instagram IGTV Video Dimensions
+
+IGTV (Instagram TV) is a feature used for sharing videos. Even though Instagram recommends IGTV videos with vertical and horizontal video formats, it displays the vertical format.
+
+Since you require a cover photo for the videos, ensure it has an aspect ratio of 1:1.15 and size of 420px by 654px.
+
+For your IG videos to be accepted, use the following specified IGTV video sizes:
+
+* IGTV video length if uploading from mobile -15 minutes
+* Video length when uploading from web – 60 minutes
+* Aspect ratio - 9:16/ 16:9
+* Minimum video frame rate- 30fps
+* Minimum resolution – 720px
+* Maximum video size of fewer than 10 minutes – 650MB
+* Maximum video size of up to 60 minutes – 3.6GB
+* Video size - 1920px by 1080px / 1080px by 1920px
+
+#### #5 - Instagram Live Video dimensions
+
+Want to know the juicy part of Instagram? Try Instagram live video. Broadcasting your interview, illustrating how to prepare a tasty meal or streaming your wedding on Instagram can be really exciting.
+
+Instagram live video is broadcast in a vertical format. No much dimensional requirements are specified except the aspect ratio.
+
+The only Instagram Live video requirement is using portrait orientation with an Instagram aspect ratio of 9:16.
+
+With all these different Instagram video dimension specifications, how long can Instagram videos be? Here is a brief of how long are Instagram videos:
+
+* regular Instagram video post – 15 seconds
+* Instagram live video – 60 minutes
+* IGTV videos- 15 seconds to 10 minutes, verified accounts post 60-minute videos
+
+#### #6 - Requirements for Instagram Photo Sizes
+
+Individuals and businesses are increasingly relying on photographs to promote their profiles and products on Instagram. As millions of photos are uploaded on Instagram every day, Instagram photo sizes are now of concern to every user.
+
+Unlike the Instagram video complexities, photos have much easier to edit and upload. However, the freedom to share Instagram photos in landscape and portrait formats began in 2015\. Initially, people only used the square format (aspect ratio 1:1).
+
+Now that you have the options to share photos in different sizes, what is the best size for Instagram photos? Here is the answer:
+
+Wait!
+
+What is your Instagram profile picture size? It is your trademark! Therefore, it matters a lot. On the smartphone, set the Instagram profile photo at 110px by 110px. Since the computer has a higher resolution, make the profile image size to be 180px by 180px.
+
+#### Instagram Square Photo Size
+
+![instagram story dimensions](https://images.wondershare.com/filmora/instagram-square-photo-size.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+As said earlier, your square photos should have an aspect ratio of 1:1\. To retain original photo qualities of, these are the right Instagram picture sizes to use:
+
+* Minimum picture size: 320px by 320px
+* Maximum picture size: 1080px by 1080px
+
+This is how using extra small or larger photos than recommended affects quality. When you upload a picture with a size below 320 X 320, Instagram enlarges it making pixelated. On the other hand, photo compression occurs when it is larger than 1080 X 1080 resulting in a loss of repeated data on the picture.
+
+#### Instagram Portrait Photo Size
+
+![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
+
+Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
+
+#### Instagram Landscape Photo Size
+
+![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
@@ -220,10 +798,16 @@ You are permitted to upload photos with a high aspect ratio as 16:9\. However, t
 If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
 
@@ -240,18 +824,21 @@ It's free to use and click the below link to download now.
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1983446" src="//a.impactradius-go.com/gen-ad-code/5597632/1983446/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Conclusion
 
 With over 100 million videos and photos shared on Instagram daily, do they meet the recommended Instagram video dimensions? Having all Instagram sizes and dimensions at your fingertips is next to impossibility.
@@ -262,6 +849,18 @@ What sizes and dimensions do you use to take Instagram photos and stream videos?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -311,6 +910,12 @@ Even though MP4 is the only supported Instagram video format, you can set the vi
 
 ![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
 
 Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
@@ -326,7 +931,10 @@ To optimize these Instagram video orientations, here are the dimensional specifi
 ![best video dimensions for instagram](https://images.wondershare.com/filmora/instagram-square-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Since the launch of Instagram video sharing feature, square videos are the most successful orientation. To occupy a larger space to attract more attention, we recommend square videos. Use the following Instagram square video dimensions to produce high-quality videos.
 
@@ -339,12 +947,6 @@ Since the launch of Instagram video sharing feature, square videos are the most 
 
 ![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
 
 To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
@@ -354,522 +956,10 @@ To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 
 ![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
-### #2 - Instagram Story Dimensions
-
-Instagram story option started in 2016\. According to [Buffer](https://buffer.com/library/instagram-stories), to maintain story completion rate above 70%, your story frames should range from one to seven. Moreover, because Instagram stories last for 24 hours, use aspect ratio you are certain will display high-resolution frames.
-
-Instagram story size is less stringed compared to the videos. Instagram allows its users to upload photos and videos for creating a story with an aspect ratio of between 1.91:1 and 9:16\. Below or above these ratios, the story will have borders and thus affect its quality.
-
-The best Instagram story size is be 1080px by 1920px.
-
-#### #3 - Instagram Carousel Ads Dimensions
-
-Just like the Instagram story, carousel ads are created from videos and images. They are mostly used by advertisers to showcase multiple products in a single ad. To create Instagram carousel ads, you also require a thumbnail image with 1:1 aspect ration and text whose dimensions less than 20% the size of image space.
-
-Due to the many Instagram carousel ads dimension requirements, it is a bit challenging to create perfect ads. Good carousel ads should have a combination of 2-10 images and videos.
-
-But since you’ve to create it anyway, use these Instagram carousel image sizes:
-
-* Carousel Image resolution- 1080px by 1080px
-* Maximum single image size- 3MB
-* Aspect ratio of 1:1
-
-Your Instagram carousel video sizes should have:
-
-* A maximum length of 60 seconds
-* An aspect ratio of 1:1
-* Have an MP4 format
-* A maximum size of 1080px by 1920px and a minimum size of 600px by 600px
-* Maximum size of 4GB
-
-#### #4 - Instagram IGTV Video Dimensions
-
-IGTV (Instagram TV) is a feature used for sharing videos. Even though Instagram recommends IGTV videos with vertical and horizontal video formats, it displays the vertical format.
-
-Since you require a cover photo for the videos, ensure it has an aspect ratio of 1:1.15 and size of 420px by 654px.
-
-For your IG videos to be accepted, use the following specified IGTV video sizes:
-
-* IGTV video length if uploading from mobile -15 minutes
-* Video length when uploading from web – 60 minutes
-* Aspect ratio - 9:16/ 16:9
-* Minimum video frame rate- 30fps
-* Minimum resolution – 720px
-* Maximum video size of fewer than 10 minutes – 650MB
-* Maximum video size of up to 60 minutes – 3.6GB
-* Video size - 1920px by 1080px / 1080px by 1920px
-
-#### #5 - Instagram Live Video dimensions
-
-Want to know the juicy part of Instagram? Try Instagram live video. Broadcasting your interview, illustrating how to prepare a tasty meal or streaming your wedding on Instagram can be really exciting.
-
-Instagram live video is broadcast in a vertical format. No much dimensional requirements are specified except the aspect ratio.
-
-The only Instagram Live video requirement is using portrait orientation with an Instagram aspect ratio of 9:16.
-
-With all these different Instagram video dimension specifications, how long can Instagram videos be? Here is a brief of how long are Instagram videos:
-
-* regular Instagram video post – 15 seconds
-* Instagram live video – 60 minutes
-* IGTV videos- 15 seconds to 10 minutes, verified accounts post 60-minute videos
-
-#### #6 - Requirements for Instagram Photo Sizes
-
-Individuals and businesses are increasingly relying on photographs to promote their profiles and products on Instagram. As millions of photos are uploaded on Instagram every day, Instagram photo sizes are now of concern to every user.
-
-Unlike the Instagram video complexities, photos have much easier to edit and upload. However, the freedom to share Instagram photos in landscape and portrait formats began in 2015\. Initially, people only used the square format (aspect ratio 1:1).
-
-Now that you have the options to share photos in different sizes, what is the best size for Instagram photos? Here is the answer:
-
-Wait!
-
-What is your Instagram profile picture size? It is your trademark! Therefore, it matters a lot. On the smartphone, set the Instagram profile photo at 110px by 110px. Since the computer has a higher resolution, make the profile image size to be 180px by 180px.
-
-#### Instagram Square Photo Size
-
-![instagram story dimensions](https://images.wondershare.com/filmora/instagram-square-photo-size.jpg)
-
-As said earlier, your square photos should have an aspect ratio of 1:1\. To retain original photo qualities of, these are the right Instagram picture sizes to use:
-
-* Minimum picture size: 320px by 320px
-* Maximum picture size: 1080px by 1080px
-
-This is how using extra small or larger photos than recommended affects quality. When you upload a picture with a size below 320 X 320, Instagram enlarges it making pixelated. On the other hand, photo compression occurs when it is larger than 1080 X 1080 resulting in a loss of repeated data on the picture.
-
-#### Instagram Portrait Photo Size
-
-![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
-
-Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
-
-#### Instagram Landscape Photo Size
-
-![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
-
-How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
-
-Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
-
-You are permitted to upload photos with a high aspect ratio as 16:9\. However, these extra sizes will display in the form of a black border.
-
-If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
-
-The best method to publish high-quality Instagram videos and photos is to edit them before publishing.
-
-To share well-edit photos and videos, it is good to use a video editor. We recommend the [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)(for Windows and Mac) and [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/) (for mobile phones) for the above purpose.
-
-They are easy-to-use video editors that you can directly upload and share on your Instagram after the editing is done.
-
-**Filmora** is the simplest video editor **for** **Windows and Mac**  to use on your computer and has the capability of creating up to 100 video clips. Whether you want to set your video aspect ratio to 1.91:1 or 19:6, Filmora has a project settings option to input the exact sizes and dimensions.
-
-It's free to use and click the below link to download now.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
-
-**You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-## Conclusion
-
-With over 100 million videos and photos shared on Instagram daily, do they meet the recommended Instagram video dimensions? Having all Instagram sizes and dimensions at your fingertips is next to impossibility.
-
-For your image and video, posts to have the right sizes, master the most used aspect ratios and sizes .i.e. 16:9, 1:1, 1080 X1080\. To avoid frustrations of zero views, black borders, and pixelated images, take time to edit your videos and images.
-
-What sizes and dimensions do you use to take Instagram photos and stream videos? Share your comments and thoughts.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-With a digital camera or smartphone, anybody can take good photos and record videos for Instagram posts. For videos and photos to retain their quality, Instagram video dimensions and photo sizes should be complied with.
-
-But if Instagram enlarges and compresses videos and photo dimensions to fit its recommended standards, why are sizes a concern? And yet they’ll upload anyway and Instagram users will see.
-
-Because you want many people to watch the video, comment or like your story, this article answers what sizes matter a lot. We illustrate all the best video dimensions for Instagram and image sizes you should use.
-
-**You will Learn :**
-
-* [Why Instagram Post Size Matters?](#part1)
-* [Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained](#part2)
-* [Best Instagram Video Dimensions Specifications for a Post](#part3)
-* [Well Prepare Your Instagram Videos and Photos with the Best Editing Software](#part4)
-
-You may also like: [Creative Video Marketing Ideas for Business](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Why Instagram Post Size Matters?
-
-Knowing Instagram’ supported file formats, sizes, resolutions and frame rates helps maintain the original quality of your videos and images. If you upload large images, Instagram will crop them while publishing small images will make them be enlarged.
-
-Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
-
-## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
-
-**Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
-
-**Image size**  is the height and width of a photo or video in pixels. A standard cover photo for Instagram should be 420px by 654px. A pixel is the smallest area on a display screen.
-
-**Resolution**  is the number of pixels in a video or photo. It is the product of pixels on the width and height of the image. The minimum video resolution on Instagram is 720 pixels.
-
-**Frame rate**  is the rate at which individual images (frames) display on a screen per second and the initial is FPS. For Instagram to support your videos, the minimum frame rate should be 30FPS.
-
-Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
-
-## Best Instagram Video Dimensions Specifications for a Post
-
-Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
-
-![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
-
-Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
-
-To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### #1 - Instagram Video Dimensions And Sizes
-
-To optimize these Instagram video orientations, here are the dimensional specifications you need to know:
-
-#### Instagram Square Videos
-
-![best video dimensions for instagram](https://images.wondershare.com/filmora/instagram-square-videos.jpg)
-
-Since the launch of Instagram video sharing feature, square videos are the most successful orientation. To occupy a larger space to attract more attention, we recommend square videos. Use the following Instagram square video dimensions to produce high-quality videos.
-
-* Maximum Instagram file size is 4GB
-* The aspect ratio should be 1:1 with minimum dimension of 600px by 600px and a maximum of 1080px by 1080px.
-* Video codecs should be , VP8
-* Maximum frame rate is 30fps
-
-#### Instagram Horizontal Videos (Landscape)
-
-![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
-
-To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
-
-#### Instagram Vertical Video (Portrait)
-
-![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
-
-Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### #2 - Instagram Story Dimensions
-
-Instagram story option started in 2016\. According to [Buffer](https://buffer.com/library/instagram-stories), to maintain story completion rate above 70%, your story frames should range from one to seven. Moreover, because Instagram stories last for 24 hours, use aspect ratio you are certain will display high-resolution frames.
-
-Instagram story size is less stringed compared to the videos. Instagram allows its users to upload photos and videos for creating a story with an aspect ratio of between 1.91:1 and 9:16\. Below or above these ratios, the story will have borders and thus affect its quality.
-
-The best Instagram story size is be 1080px by 1920px.
-
-#### #3 - Instagram Carousel Ads Dimensions
-
-Just like the Instagram story, carousel ads are created from videos and images. They are mostly used by advertisers to showcase multiple products in a single ad. To create Instagram carousel ads, you also require a thumbnail image with 1:1 aspect ration and text whose dimensions less than 20% the size of image space.
-
-Due to the many Instagram carousel ads dimension requirements, it is a bit challenging to create perfect ads. Good carousel ads should have a combination of 2-10 images and videos.
-
-But since you’ve to create it anyway, use these Instagram carousel image sizes:
-
-* Carousel Image resolution- 1080px by 1080px
-* Maximum single image size- 3MB
-* Aspect ratio of 1:1
-
-Your Instagram carousel video sizes should have:
-
-* A maximum length of 60 seconds
-* An aspect ratio of 1:1
-* Have an MP4 format
-* A maximum size of 1080px by 1920px and a minimum size of 600px by 600px
-* Maximum size of 4GB
-
-#### #4 - Instagram IGTV Video Dimensions
-
-IGTV (Instagram TV) is a feature used for sharing videos. Even though Instagram recommends IGTV videos with vertical and horizontal video formats, it displays the vertical format.
-
-Since you require a cover photo for the videos, ensure it has an aspect ratio of 1:1.15 and size of 420px by 654px.
-
-For your IG videos to be accepted, use the following specified IGTV video sizes:
-
-* IGTV video length if uploading from mobile -15 minutes
-* Video length when uploading from web – 60 minutes
-* Aspect ratio - 9:16/ 16:9
-* Minimum video frame rate- 30fps
-* Minimum resolution – 720px
-* Maximum video size of fewer than 10 minutes – 650MB
-* Maximum video size of up to 60 minutes – 3.6GB
-* Video size - 1920px by 1080px / 1080px by 1920px
-
-#### #5 - Instagram Live Video dimensions
-
-Want to know the juicy part of Instagram? Try Instagram live video. Broadcasting your interview, illustrating how to prepare a tasty meal or streaming your wedding on Instagram can be really exciting.
-
-Instagram live video is broadcast in a vertical format. No much dimensional requirements are specified except the aspect ratio.
-
-The only Instagram Live video requirement is using portrait orientation with an Instagram aspect ratio of 9:16.
-
-With all these different Instagram video dimension specifications, how long can Instagram videos be? Here is a brief of how long are Instagram videos:
-
-* regular Instagram video post – 15 seconds
-* Instagram live video – 60 minutes
-* IGTV videos- 15 seconds to 10 minutes, verified accounts post 60-minute videos
-
-#### #6 - Requirements for Instagram Photo Sizes
-
-Individuals and businesses are increasingly relying on photographs to promote their profiles and products on Instagram. As millions of photos are uploaded on Instagram every day, Instagram photo sizes are now of concern to every user.
-
-Unlike the Instagram video complexities, photos have much easier to edit and upload. However, the freedom to share Instagram photos in landscape and portrait formats began in 2015\. Initially, people only used the square format (aspect ratio 1:1).
-
-Now that you have the options to share photos in different sizes, what is the best size for Instagram photos? Here is the answer:
-
-Wait!
-
-What is your Instagram profile picture size? It is your trademark! Therefore, it matters a lot. On the smartphone, set the Instagram profile photo at 110px by 110px. Since the computer has a higher resolution, make the profile image size to be 180px by 180px.
-
-#### Instagram Square Photo Size
-
-![instagram story dimensions](https://images.wondershare.com/filmora/instagram-square-photo-size.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-As said earlier, your square photos should have an aspect ratio of 1:1\. To retain original photo qualities of, these are the right Instagram picture sizes to use:
-
-* Minimum picture size: 320px by 320px
-* Maximum picture size: 1080px by 1080px
-
-This is how using extra small or larger photos than recommended affects quality. When you upload a picture with a size below 320 X 320, Instagram enlarges it making pixelated. On the other hand, photo compression occurs when it is larger than 1080 X 1080 resulting in a loss of repeated data on the picture.
-
-#### Instagram Portrait Photo Size
-
-![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
-
-For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
-
-Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
-
-#### Instagram Landscape Photo Size
-
-![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
-
-How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
-
-Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
-
-You are permitted to upload photos with a high aspect ratio as 16:9\. However, these extra sizes will display in the form of a black border.
-
-If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
-
-The best method to publish high-quality Instagram videos and photos is to edit them before publishing.
-
-To share well-edit photos and videos, it is good to use a video editor. We recommend the [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)(for Windows and Mac) and [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/) (for mobile phones) for the above purpose.
-
-They are easy-to-use video editors that you can directly upload and share on your Instagram after the editing is done.
-
-**Filmora** is the simplest video editor **for** **Windows and Mac**  to use on your computer and has the capability of creating up to 100 video clips. Whether you want to set your video aspect ratio to 1.91:1 or 19:6, Filmora has a project settings option to input the exact sizes and dimensions.
-
-It's free to use and click the below link to download now.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
-
-**You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Conclusion
-
-With over 100 million videos and photos shared on Instagram daily, do they meet the recommended Instagram video dimensions? Having all Instagram sizes and dimensions at your fingertips is next to impossibility.
-
-For your image and video, posts to have the right sizes, master the most used aspect ratios and sizes .i.e. 16:9, 1:1, 1080 X1080\. To avoid frustrations of zero views, black borders, and pixelated images, take time to edit your videos and images.
-
-What sizes and dimensions do you use to take Instagram photos and stream videos? Share your comments and thoughts.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe id="iframe_1983539" src="//a.impactradius-go.com/gen-ad-code/5597632/1983539/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-With a digital camera or smartphone, anybody can take good photos and record videos for Instagram posts. For videos and photos to retain their quality, Instagram video dimensions and photo sizes should be complied with.
-
-But if Instagram enlarges and compresses videos and photo dimensions to fit its recommended standards, why are sizes a concern? And yet they’ll upload anyway and Instagram users will see.
-
-Because you want many people to watch the video, comment or like your story, this article answers what sizes matter a lot. We illustrate all the best video dimensions for Instagram and image sizes you should use.
-
-**You will Learn :**
-
-* [Why Instagram Post Size Matters?](#part1)
-* [Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained](#part2)
-* [Best Instagram Video Dimensions Specifications for a Post](#part3)
-* [Well Prepare Your Instagram Videos and Photos with the Best Editing Software](#part4)
-
-You may also like: [Creative Video Marketing Ideas for Business](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe id="iframe_1265663" src="//a.impactradius-go.com/gen-ad-code/5597632/1265663/4482" width="300" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-## Why Instagram Post Size Matters?
-
-Knowing Instagram’ supported file formats, sizes, resolutions and frame rates helps maintain the original quality of your videos and images. If you upload large images, Instagram will crop them while publishing small images will make them be enlarged.
-
-Before getting into the nitty-gritty of this article, it is prudent to understand the meaning of the key words concerning Instagram. These include video frame rate, aspect ratio, resolution and Image Size.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Aspect Ratio, Image Size, Resolution and Video Frame Rate Explained
-
-**Aspect ratio**  refers to the ratio of the width of an image to height. To indicate the aspect ratio of an image we use ratios in the form of 1:1, 2:3 or 5:4 depending on the variants. Instagram aspect ratio of a vertical video is 9:16 while the horizontal ratio is 16:9.
-
-**Image size**  is the height and width of a photo or video in pixels. A standard cover photo for Instagram should be 420px by 654px. A pixel is the smallest area on a display screen.
-
-**Resolution**  is the number of pixels in a video or photo. It is the product of pixels on the width and height of the image. The minimum video resolution on Instagram is 720 pixels.
-
-**Frame rate**  is the rate at which individual images (frames) display on a screen per second and the initial is FPS. For Instagram to support your videos, the minimum frame rate should be 30FPS.
-
-Since you can now interpret video dimensions and photo sizes like a pro, do you know the recommended video dimensions for Instagram for each format?
-
-<!-- affiliate ads begin -->
-<iframe id="iframe_1993652" src="//a.impactradius-go.com/gen-ad-code/5597632/1993652/22993" width="720" height="90" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-## Best Instagram Video Dimensions Specifications for a Post
-
-Even though MP4 is the only supported Instagram video format, you can set the videos different orientations and forms. The main orientations are square, landscape (horizontal) and Portrait (vertical).
-
-![instagram video dimensions](https://images.wondershare.com/filmora/instagram-video-format.jpg)
-
-Since Instagram is not limited to videos, you might be puzzling about the required dimensions for Instagram photos, stories, IGTV, live videos and other supported features like ads. Keep calm, and find all the Instagram dimensions and sizes right in here.
-
-Other than just uploading ordinary videos and sharing photos, you can also **tell a story on Instagram**  using videos and photos in a slideshow format. For business purposes, you can format Instagram stories to **create Instagram Carousel ads**  to use as an advert.
-
-To realize the real importance of Instagram, start using the **video ads feature** , uploading **IGTV videos**  and **streaming live videos** . As you explore all these features, remember to use the specified Max Instagram video dimensions in this article.
-
-### #1 - Instagram Video Dimensions And Sizes
-
-To optimize these Instagram video orientations, here are the dimensional specifications you need to know:
-
-#### Instagram Square Videos
-
-![best video dimensions for instagram](https://images.wondershare.com/filmora/instagram-square-videos.jpg)
-
-Since the launch of Instagram video sharing feature, square videos are the most successful orientation. To occupy a larger space to attract more attention, we recommend square videos. Use the following Instagram square video dimensions to produce high-quality videos.
-
-* Maximum Instagram file size is 4GB
-* The aspect ratio should be 1:1 with minimum dimension of 600px by 600px and a maximum of 1080px by 1080px.
-* Video codecs should be , VP8
-* Maximum frame rate is 30fps
-
-#### Instagram Horizontal Videos (Landscape)
-
-![instagram video format](https://images.wondershare.com/filmora/instagram-horizontal-videos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Even though recording Instagram videos in a landscape form is a lot much easier, the majority of Instagram enthusiasts despise. It is the least used orientation mostly because it occupies a small space and the quality appears distorted.
-
-To recorded landscape videos, set the dimensions in the aspect ratio of 16:9 or 1.91:1\. In a situation where shooting videos in the landscape is necessary, we recommend the 16:9 Instagram size ratio. The maximum dimensions should be set at 1080px by 607px, which is the set cinematic standard.
-
-#### Instagram Vertical Video (Portrait)
-
-![instagram vertical video dimensions](https://images.wondershare.com/filmora/instagram-vertical-videos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Vertical videos differ from square videos by very small margins. For your portrait videos to attract many viewers, ensure it is of the highest quality and has an aspect ratio of 4:5\. This ratio has to coincide with a 1080px by 1350px dimension.
 
@@ -959,9 +1049,6 @@ This is how using extra small or larger photos than recommended affects quality.
 
 ![instagram story size](https://images.wondershare.com/filmora/instagram-portrait-photo-size.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 For images or photos whose height is naturally greater than width, the ideal Instagram photo format to use is portrait. To avoid cropping your photos, use the 4:5 aspect ratio. The photo dimension should not exceed 1080px by 1350px.
 
 Even though Instagram displays vertical photos at a maximum resolution of 480px by 600px or 960 X 1200, let your photo size 1080 X 1350\. Otherwise, the effects of enlargement and compression will occur.
@@ -970,6 +1057,12 @@ Even though Instagram displays vertical photos at a maximum resolution of 480px 
 
 ![instagram post size](https://images.wondershare.com/filmora/instagram-landscape-photo-size.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 How many photos or pictures have you seen on Instagram with a border above and below it? They are countless.
 
 Using the wrong aspect ratio is the main cause of this effect. It is a bit challenging to set the recommended aspect ratio of 1.91:1.
@@ -978,6 +1071,18 @@ You are permitted to upload photos with a high aspect ratio as 16:9\. However, t
 
 If you want to upload horizontal photos and maintain their original quality, the right Instagram image size is 1080px by 608px.
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Well Prepare Your Instagram Videos and Photos with the Best Editing Software
 
 The best method to publish high-quality Instagram videos and photos is to edit them before publishing.
@@ -992,16 +1097,16 @@ It's free to use and click the below link to download now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Since you will probably use a mobile phone for Instagram than a computer, download the free mobile video editor – **[Filmora](https://tools.techidaily.com/wondershare/filmora/download/).** There is every effect, transition, filters, texts, and themes to make your Instagram live videos and photos cinematic.
 
 **You may also like:** [How to Post/Share a Video From YouTube on Instagram >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 With over 100 million videos and photos shared on Instagram daily, do they meet the recommended Instagram video dimensions? Having all Instagram sizes and dimensions at your fingertips is next to impossibility.
