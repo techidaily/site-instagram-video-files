@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Instagram Archive Mastery  How and Why for 2024\""
-date: 2024-09-13T20:19:21.155Z
-updated: 2024-09-17T17:06:43.166Z
+date: 2024-09-15T19:28:50.414Z
+updated: 2024-09-23T01:22:04.319Z
 tags:
   - ai video
   - ai instagram
@@ -222,13 +222,6 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 
 ![open instagram highlight downloader](https://images.wondershare.com/filmora/article-images/open-online-instagram-highlight-downloader1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Paste the username into the dialogue box on StorySaver.
 
 ![download instagram hightlights - copy highlight username](https://images.wondershare.com/filmora/article-images/copy-highlight-username2.jpg)
@@ -399,13 +392,6 @@ How to save Instagram Highlights? Dive in and follow these three easy steps:
 
 ![download instagram highlights - save highlight as video](https://images.wondershare.com/filmora/article-images/save-highlight-as-video3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4\. Click '**Save As**', and the video/photo will be downloaded to your phone/PC. As easy as that.
 
 ![how to download instagram highlights - click to download instagram highlights](https://images.wondershare.com/filmora/article-images/click-download-instagram-highlight4.jpg)
@@ -419,13 +405,6 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 1\. Open Instagram and open a profile. Tap the **Archive** icon on the profile page.
 
 ![using stories archive - tap archive button](https://images.wondershare.com/filmora/article-images/tap-archive-button5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2\. The Archive library will pop open. Finding a specific story can be like looking for a needle in the haystack. But luckily, the stories are arranged date-wise.
 
@@ -455,16 +434,16 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 
 ![tap story highlights button](https://images.wondershare.com/filmora/article-images/tap-story-highlights-button9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Choose a story/stories to create a highlight and click 'Next.'
 
 ![create new instagram highlight](https://images.wondershare.com/filmora/article-images/create-new-instagram-highlight-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Enter Highlight name and 'Edit Cover' by choosing a story.
 
@@ -473,6 +452,13 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 * Tap 'Done', and add your own Instagram highlight.
 
 ![finish creating instagram highlight](https://images.wondershare.com/filmora/article-images/finish-create-instagram-highlight12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tip 2: Best Instagram Video Editor — [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -600,6 +586,13 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 
 ![using stories archive to download Instagram Highlights - find story highlight](https://images.wondershare.com/filmora/article-images/find-story-highlight6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. Click the story you wish to save and tap the three dots in the bottom left corner.
 
 ![Download Instagram Highlights using stories archive - tap to download highlights](https://images.wondershare.com/filmora/article-images/tap-more-highlight-download7.jpg)
@@ -607,13 +600,6 @@ Stories Archive is a rich library full of the oldest to latest stories. It is co
 4\. Then click on '**Save photo/video**' to download it on your phone instantly.
 
 ![download instagram highlights as](https://images.wondershare.com/filmora/article-images/download-instagram-highlight-as8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Tip 1: How to Create an Instagram Highlight
 
@@ -642,6 +628,13 @@ If you haven't created an Instagram Highlight yet, hop on and make one. There ar
 * Tap 'Done', and add your own Instagram highlight.
 
 ![finish creating instagram highlight](https://images.wondershare.com/filmora/article-images/finish-create-instagram-highlight12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tip 2: Best Instagram Video Editor — [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -693,6 +686,13 @@ Go on, craft, or download Instagram highlights and enjoy. Good luck, Instagramme
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -725,14 +725,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-brightening-filmmaking-ranking-the-17-best-lights/"><u>[New] In 2024, Brightening Filmmaking Ranking the 17 Best Lights</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-simple-routines-for-saving-instagram-stories-efficiently/"><u>[New] Simple Routines for Saving Instagram Stories Efficiently</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-business-boosters-the-ultimate-highlight-enhancement-guide/"><u>[Updated] In 2024, Business Boosters The Ultimate Highlight Enhancement Guide</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-executing-the-last-goodbye-to-your-instagram-account/"><u>2024 Approved Executing the Last Goodbye to Your Instagram Account</u></a></li>
-<li><a href="https://extra-information.techidaily.com/essential-insights-for-aspiring-editors-into-final-cut-pro/"><u>Essential Insights for Aspiring Editors Into Final Cut Pro</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-exploring-originality-how-to-uncover-roots-of-instagram-visuals/"><u>In 2024, Exploring Originality How to Uncover Roots of Instagram Visuals</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagram-qanda-beyond-basic-usage/"><u>In 2024, Instagram Q&A Beyond Basic Usage</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-switch-maintenance-to-extend-its-usefulness/"><u>Mastering Switch Maintenance to Extend Its Usefulness</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-crafting-a-commanding-presence-in-audio-media-with-filmoras-filters-for-2024/"><u>Updated Crafting a Commanding Presence in Audio Media with Filmoras Filters for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagram-video-timing-what-you-need-to-know/"><u>[New] 2024 Approved Instagram Video Timing What You Need To Know</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-harmony-music-edition/"><u>[New] In 2024, Instagram Harmony Music Edition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-revealing-10-hidden-viewers-of-stories/"><u>[New] Revealing 10 Hidden Viewers of Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-crafting-captivating-reels-syncing-audio-to-images-for-2024/"><u>[Updated] Crafting Captivating Reels Syncing Audio to Images for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-exclusive-downloads-top-8-stealthy-tools/"><u>[Updated] Exclusive Downloads Top 8 Stealthy Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-qanda-beyond-basic-usage-for-2024/"><u>[Updated] Instagram Q&A Beyond Basic Usage for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-broadcast-choices-expert-tips-and-no10-insights/"><u>2024 Approved Mastering Broadcast Choices Expert Tips and No.10 Insights</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-methods-for-a-dominant-presence-on-spotify/"><u>Cutting-Edge Methods for a Dominant Presence on Spotify</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/delving-into-toms-gadget-guide-detailed-hardware-analysis/"><u>Delving Into Tom's Gadget Guide: Detailed Hardware Analysis</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-tecno-spark-10-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Tecno Spark 10 Pro Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-top-10-animated-text-tools-you-need-to-try-for-2024/"><u>New Top 10 Animated Text Tools You Need to Try for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-selection-of-leading-twitter-tool-suites-and-programs/"><u>The Ultimate Selection of Leading Twitter Tool Suites & Programs</u></a></li>
 </ul></div>
 
