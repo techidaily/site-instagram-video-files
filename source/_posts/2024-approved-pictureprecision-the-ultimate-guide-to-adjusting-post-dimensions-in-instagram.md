@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  PicturePrecision  The Ultimate Guide to Adjusting Post Dimensions in Instagram\""
-date: 2024-09-20T06:06:05.388Z
-updated: 2024-09-23T04:42:10.346Z
+date: 2024-09-22T18:32:23.851Z
+updated: 2024-09-29T01:47:19.634Z
 tags:
   - ai video
   - ai instagram
@@ -45,6 +45,13 @@ Duration of Videos on Instagram
 
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Image Sizes for Instagram Posts
 
 A couple of years ago, Instagram has finally allowed its users to upload images that aren't square shaped. In 2021, you can also upload horizontally and vertically oriented photos in addition to the standard square shape. However, in order to create a perfect Instagram post, and prevent the platform from cropping your photos you need to use the Instagram image sizes featured below.
@@ -115,6 +122,13 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
 * **Square**
@@ -170,10 +184,10 @@ Duration of Videos on Instagram
 You can either upload a video to Instagram's main feed or you can upload it as a story. If you decide to upload a video to the main feed, the time limit is set at just 60 seconds, while the length of a video in an Instagram story cannot exceed 15 seconds.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Image Sizes for Instagram Posts
@@ -183,13 +197,6 @@ A couple of years ago, Instagram has finally allowed its users to upload images 
 #### Instagram's Main Feed
 
 ![](https://images.wondershare.com/filmora/article-images/instagram-sizes-infographic-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The main feed on Instagram is the place where all the posts from people you are following on this platform are displayed. So let's take a look at the perfect Instagram photo sizes for the main feed.
 
@@ -216,10 +223,10 @@ The profile pictures on Instagram are tiny, and the optimum size for them is 160
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -237,10 +244,10 @@ Taking photos with iPhones and Android Smartphones and posting them to Instagram
 Troubles begin when you want to upload photos and videos that weren't captured with a Smartphone to Instagram. In most cases, the photos and videos produced by DSLR cameras and other semi-professional and professional equipment are much larger than the sizes supported by Instagram. That is the reason why we created this guide that will help you post visual content that is perfectly adjusted to Instagram in 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Types of Files Accepted by Instagram
@@ -316,5 +323,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-assessing-instagrams-limits-on-posted-videos/"><u>[New] Assessing Instagram's Limits on Posted Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-comparing-reels-and-stories-whats-the-best-choice-in-2024/"><u>[New] Comparing Reels & Stories What's the Best Choice, In 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-a-complete-tutorial-on-saving-your-instagram-story/"><u>[New] In 2024, A Complete Tutorial on Saving Your Instagram Story</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-discovering-the-hottest-templates-for-social-media-vfx/"><u>[New] In 2024, Discovering the Hottest Templates for Social Media VFX</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-video-snippet-limits-a-comprehensive-overview/"><u>[New] In 2024, Instagram Video Snippet Limits A Comprehensive Overview</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-twitching-online-highlighting-todays-trending-video-takes/"><u>[New] Twitching Online Highlighting Today's Trending Video Takes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-enhancing-video-discoverability-with-smart-thumbnails-for-2024/"><u>[Updated] Enhancing Video Discoverability with Smart Thumbnails for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-ideal-app-for-aspiring-filmmakers-a-reel-crafting-list/"><u>[Updated] In 2024, Ideal App for Aspiring Filmmakers A Reel-Crafting List</u></a></li>
+<li><a href="https://games-able.techidaily.com/bridging-non-responsive-controllers-with-winxbox-integration/"><u>Bridging Non-Responsive Controllers with WinXbox Integration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/expert-guide-to-overcoming-instagrams-video-obstacles/"><u>Expert Guide to Overcoming Instagram's Video Obstacles</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-reliable-are-googles-bard-and-microsofts-chatgpt-for-making-savvy-investment-choices/"><u>How Reliable Are Google's Bard and Microsoft's ChatGPT for Making Savvy Investment Choices?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-the-crash-issue-in-psychonauts-2-for-pc-gamers/"><u>Resolving the Crash Issue in Psychonauts 2 for PC Gamers</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-truth-behind-health-claims-how-to-fact-check-with-chatgpt-and-advanced-ai-technology/"><u>The Truth Behind Health Claims: How to Fact-Check with ChatGPT & Advanced AI Technology</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-imessage-problems-in-7-simple-steps-for-ios-devices-and-macs/"><u>Troubleshoot iMessage Problems in 7 Simple Steps for iOS Devices & Macs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/twisting-tales-in-visual-storytelling-mastering-the-art-of-rotating-photos-for-maximum-engagement-on-social-media-platforms-for-2024/"><u>Twisting Tales in Visual Storytelling Mastering the Art of Rotating Photos for Maximum Engagement on Social Media Platforms for 2024</u></a></li>
+</ul></div>
 
