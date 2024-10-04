@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Add Captions to Instagram Videos"
-date: 2024-09-13T21:57:04.446Z
-updated: 2024-09-18T03:26:15.406Z
+date: 2024-09-30T19:24:00.775Z
+updated: 2024-10-04T16:06:08.788Z
 tags:
   - ai video
   - ai instagram
@@ -49,27 +49,20 @@ Step1 Open your Instagram app and tap on the "Plus" icon given on top. A pop-up 
 
 ![tap on the plus icon](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 After choosing a video, tap on the "Arrow" icon given on top. Apply a filter and then tap on the "Next" option. Now locate the option "Advanced Settings" and turn on the toggle of "Show captions" given under the Accessibility section.
 
 ![enable show captions option](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Once done, go back and hit the "Share" button. Thus, your Instagram video will be posted with auto-generated captions.
 
 ![hit the share button](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Add Captions to Instagram Videos Manually
 
@@ -78,6 +71,13 @@ Do you want to add captions to your videos manually? If you want to create capti
 Step1 Begin by opening your Instagram app on your device. Afterward, tap on the "Plus" icon given on top and select "Post" among other options.
 
 ![press the plus icon](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Now, you will be able to see the gallery of your device. Here, select the video you want to post, along with captions. Tap on the "Next" option on the top right and then apply a suitable filter to your video. Afterward, you can add captions manually on the video by pressing the "Aa" button. Once done with adding the captions, tap on the "Done" option to confirm the captions.
 
@@ -93,6 +93,13 @@ Do you want to add video editing captions for Instagram? [Wondershare Filmora](h
 
 With the help of advanced algorithms, Filmora can generate accurate captions through its Speech-to-Text feature. You can also choose your preferred font style and add animations from this feature. Furthermore, Filmora can also be used as a great video editing tool. You can trim, crop, resize, merge, and split videos on this tool with a single click. It also offers tons of attractive effects that can be used to increase the visual appearance of your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Steps to Add Captions to Instagram with Filmora
 
 Do you want to add customized and permanent captions to your Instagram videos? Read the simple instructions provided below to add Instagram captions:
@@ -103,31 +110,24 @@ Download and install Filmora on your PC and open its interface. From the left se
 
 ![add your instagram video](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2 Navigate to the Speech-to-text Feature
 
 After uploading the desired video on the tool, drag it to the timeline. From the timeline toolbar, click on the "Speech-to-Text" icon. It will open a small menu from which you have to specify your language. Afterward, choose either a clip or a complete video file to apply this feature. Once done, click on the "OK" button.
 
 ![initiate the speech-to-text process](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Edit the Instagram Captions
 
 Now, wait until the transcription process gets completed. Now subtitles will be automatically added to your video. Double-click on the added subtitles that will open the editing menu. Here, you can adjust the captions according to the time. By navigating to the "Preset" section, you can select various styles for captioning.
 
 ![access the preset options](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4 Export the Instagram Video
 
@@ -136,10 +136,10 @@ Afterward, you can go to the "Custom" tab to adjust text font, style, alignment,
 ![confirm your changes](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -172,11 +172,32 @@ Now, wait until the transcription process gets completed. Now subtitles will be 
 
 ![access the preset options](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Export the Instagram Video
 
 Afterward, you can go to the "Custom" tab to adjust text font, style, alignment, opacity, and other elements according to your desire. Once done, hit the "OK" button. Now you can click on the "Export" button to save the Instagram video with captions. This tool is capable of exporting your video into various file formats. Moreover, you can also export the video file directly to Instagram with a single click.
 
 ![confirm your changes](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-to-instagram-videos-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -201,5 +222,23 @@ Many people like to use Instagram to share photos and videos in an attractive st
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-best-photo-boosts-for-perfecting-your-feed-for-2024/"><u>[New] Best Photo Boosts for Perfecting Your Feed for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-qanda-beyond-basic-usage/"><u>[New] Instagram Q&A Beyond Basic Usage</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-master-hashtag-dynamics-on-igtv-for-follower-surge-for-2024/"><u>[New] Master Hashtag Dynamics on IGTV for Follower Surge for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-unraveling-twitchs-mysteries-the-recording-connoisseurs-guide/"><u>[New] Unraveling Twitch's Mysteries The Recording Connoisseur's Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-curating-personalized-instagram-stories-overlays/"><u>[Updated] 2024 Approved Curating Personalized Instagram Stories Overlays</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-uncover-the-joyful-journey-best-comedy-and-sadness-on-insta/"><u>[Updated] 2024 Approved Uncover the Joyful Journey Best Comedy & Sadness on Insta</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-banishing-bogus-buddies-from-instagram-social-structure-for-2024/"><u>[Updated] Banishing Bogus Buddies From Instagram Social Structure for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-frame-rate-conversion-20mb-video-specs/"><u>[Updated] Frame Rate Conversion 20MB Video Specs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-top-10-best-apps-for-editing-igtv-vertical-videos-for-2024/"><u>[Updated] Top 10 Best Apps for Editing IGTV Vertical Videos for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-oppo-find-x7-ultra-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Oppo Find X7 Ultra Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-download-and-mp3-creation-for-streaming-video-files-for-2024/"><u>Direct Download & MP3 Creation for Streaming Video Files for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-samsung-galaxy-s23-fe-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Samsung Galaxy S23 FE online without jailbreak</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-masterful-instagram-reel-editors-the-ultimate-top-10-list/"><u>In 2024, Masterful Instagram Reel Editors The Ultimate Top 10 List</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-transform-your-drive-must-have-accessories-for-sj4000-owners/"><u>In 2024, Transform Your Drive Must-Have Accessories for SJ4000 Owners</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-nubia-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Nubia Phones</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-shortcomings-of-chatgpt-summary-tools-alternatives-to-consider/"><u>Understanding the Shortcomings of ChatGPT Summary Tools: Alternatives to Consider</u></a></li>
+</ul></div>
 
