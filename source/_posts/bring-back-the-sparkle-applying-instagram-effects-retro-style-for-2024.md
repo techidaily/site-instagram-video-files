@@ -1,7 +1,7 @@
 ---
 title: "\"Bring Back the Sparkle  Applying Instagram Effects Retro Style for 2024\""
-date: 2024-10-02T16:13:39.828Z
-updated: 2024-10-04T16:32:49.202Z
+date: 2024-10-04T01:10:42.535Z
+updated: 2024-10-10T01:25:08.825Z
 tags:
   - ai video
   - ai instagram
@@ -80,13 +80,6 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Why your video editing isn't good enough? How about some creative inspo?
 
 * 100 Million+ Users
@@ -121,6 +114,13 @@ On the bottom left of the screen, you will see a square box. **Click on the squa
 On the bottom, you will find a search icon which is also called the filter carousel. Through the f**ilter carousel**, you can find various kinds of filters and also type in the filter name if you have any in your mind. **Apply the filter** on the video.
 
 ![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Download or upload**
 
@@ -166,13 +166,6 @@ After you are done adding effects, you can **click on done** to post, and you ca
 
 ![download Instgram Reels   video with filters](https://images.wondershare.com/filmora/article-images/download-instagram-reels-filters-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **FAQs** About Instagram Filters
 
 1. **Can you add Instagram story filters to existing photos?**
@@ -182,19 +175,6 @@ Yes, it is easy to add an Instagram filter to existing photos from your gallery.
 1. **How to add Instagram story filters on camera roll?**
 
 Just swipe left to the stories window and swipe up to select an image from the camera roll. Then click on the smiling emoji on the tab and apply the filter of your choice. You can then share it on Insta or save it to your camera roll.
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -245,19 +225,6 @@ After you open the stories option, the camera will open first. You can click a p
 
 ![  Instgram camera gallery](https://images.wondershare.com/filmora/article-images/select-image-from-instagram-gallery.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: press the smiley icon**
 
 After you have selected the image from the gallery, you can apply a filter to it before posting. On top of the screen, you will see a smiley or sparkle emoji. **Click on the smiley emoji** to access the existing or saved filter options to apply to the selected photo.
@@ -276,9 +243,23 @@ After selecting the filter of your choice and **applying i**t, **click done on t
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -315,9 +296,23 @@ On the bottom, you will find a search icon which is also called the filter carou
 
 ![  Instgram filters carousel](https://images.wondershare.com/filmora/article-images/insatgram-filter-carousel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Download or upload**
 
 After you apply the filter, you can **click on done** on the top right to post. Also, there is an option to **download the video** if you like. You can save videos with filters in your gallery to use on other social media platforms.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Add Filters o Instagram Photos When Uploading?
 
@@ -336,19 +331,6 @@ After you **click next**, you will see a lot of filter options. You can **swipe 
 **Step 3: Edit the image and post**
 
 When customizing the filter intensity, you can s**elect next** and **click on edit** to further enhance the image. You can increase brightness, sharpen the image, etc. When the image is edited as per your choice, you can tag people or simply post.
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Add Filter to Instagram Reel Photo and Video?
 
@@ -424,6 +406,13 @@ We all take random photos all the time through our cameras. But, you can be doub
 To add Instagram filters, you have to open Instagram and log in to your existing ID. When you are on your news feed, you have to **swipe left** to open the stories option. When you swipe left, your camera will open automatically. Another way to open the stories option is to **tap on the '+' sign** on your profile picture.
 
 ![enter Instgram camera](https://images.wondershare.com/filmora/article-images/tap-plus-icon-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Select an image from the gallery**
 
@@ -564,27 +553,7 @@ Instagram is one of the versatile platforms where people showcase their love for
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -673,10 +642,10 @@ On the bottom, you will find a search icon which is also called the filter carou
 After you apply the filter, you can **click on done** on the top right to post. Also, there is an option to **download the video** if you like. You can save videos with filters in your gallery to use on other social media platforms.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add Filters o Instagram Photos When Uploading?
@@ -692,6 +661,13 @@ When you open the app, you will see a **'+' sign** enclosed in the square on the
 After you **click next**, you will see a lot of filter options. You can **swipe left to try out filters** and select the one you like. You can double-tap on the chosen filter to **adjust the intensity**.
 
 ![  edit Instgram filters ](https://images.wondershare.com/filmora/article-images/edit-instagram-filters.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Edit the image and post**
 
@@ -762,20 +738,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-capture-attention-incorporating-borders-to-insta-videos/"><u>[New] Capture Attention Incorporating Borders to Insta-Videos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-from-followers-to-fans-a-strategic-approach-to-instagram-brand-alliances/"><u>[Updated] From Followers to Fans A Strategic Approach to Instagram Brand Alliances</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-breaking-the-ice-with-instagrams-interactive-audience-queries/"><u>[Updated] In 2024, Breaking the Ice with Instagram's Interactive Audience Queries</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-6-virtual-reality-vr-gloves-to-check-out/"><u>[Updated] In 2024, Top 6 Virtual Reality (VR) Gloves to Check Out</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-mac-tools-to-tighten-instagram-video-content-for-2024/"><u>[Updated] Mac Tools to Tighten Instagram Video Content for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-navigating-the-world-of-youtube-content-creation-with-flair-for-2024/"><u>[Updated] Navigating the World of YouTube Content Creation with Flair for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unleashing-instagram-potential-smart-strategies-for-using-hashtags/"><u>[Updated] Unleashing Instagram Potential Smart Strategies for Using Hashtags</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unraveling-instagrams-complex-world-of-data-a-beginner-to-pro-guide-for-2024/"><u>[Updated] Unraveling Instagram's Complex World of Data A Beginner to Pro Guide for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-insta-rapid-rise-mastering-engagement-with-likes-and-vids/"><u>2024 Approved Insta Rapid Rise Mastering Engagement with Likes & Vids</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-ultimate-9-hidden-media-extractors/"><u>2024 Approved Ultimate 9 Hidden Media Extractors</u></a></li>
-<li><a href="https://win-blog.techidaily.com/boost-your-gaming-experience-solving-frame-drop-offs-and-lag-in-dying-light-2-for-pc-players/"><u>Boost Your Gaming Experience: Solving Frame Drop-Offs and Lag in Dying Light 2 for PC Players</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-y17s-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo Y17s? | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/smart-choices-best-video-call-programs-on-devices/"><u>Smart Choices Best Video Call Programs on Devices</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-honor-magic-6-lite-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Honor Magic 6 Lite Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Xiaomi 13T? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-leveraging-url-posts-for-maximum-impact-on-insta-storypost/"><u>[New] 2024 Approved Leveraging URL Posts for Maximum Impact on Insta Story/Post</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-from-inquiry-to-insight-best-practices-for-story-based-polls/"><u>[New] From Inquiry to Insight Best Practices for Story-Based Polls</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-optimize-video-quality-turning-on-av1-in-youtube-settings/"><u>[New] In 2024, Optimize Video Quality Turning ON AV1 in YouTube Settings</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transform-your-hdr-images-into-professional-grade-time-lapses-with-gopro-studio/"><u>[New] Transform Your HDR Images Into Professional-Grade Time Lapses with GoPro Studio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-master-the-art-of-file-conversion-selecting-best-free-tools-for-instagram-videos-windowsosx/"><u>[Updated] 2024 Approved Master the Art of File Conversion Selecting Best Free Tools for Instagram Videos [Windows/OSX]</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-reimagining-gender-portrayal-in-social-media-images/"><u>[Updated] 2024 Approved Reimagining Gender Portrayal in Social Media Images</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-best-free-video-communication-apps-for-iphone-and-android-users/"><u>[Updated] Best Free Video Communication Apps for iPhone & Android Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-adapt-posting-techniques-after-instagrams-revisions-for-2024/"><u>[Updated] How to Adapt Posting Techniques After Instagram’s Revisions for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-tips-for-sharing-content-on-instagram/"><u>2024 Approved Tips for Sharing Content on Instagram</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-tips-what-you-need-to-know-before-acquiring-a-refurbished-ipad/"><u>Essential Tips: What You Need to Know Before Acquiring a Refurbished iPad</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-potential-8-unique-applications-of-chatgpt-vision/"><u>Exploring the Potential: 8 Unique Applications of ChatGPT Vision</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-oppo-a18-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Oppo A18 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-vivo-y100i-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Vivo Y100i Phones? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-bridging-the-web-with-instagram-a-url-tutorial/"><u>In 2024, Bridging the Web with Instagram A URL Tutorial</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-leading-tools-to-uncover-trending-tags-on-fb-twt-and-ig-sites/"><u>In 2024, Leading Tools to Uncover Trending Tags on FB, Twt & IG Sites</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/reliable-strategies-for-retrieving-permanently-deleted-ios-images-with-ease/"><u>Reliable Strategies for Retrieving Permanently Deleted iOS Images with Ease</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/screensizesync-adjusting-images-for-max-impact-in-instagram-for-2024/"><u>ScreenSizeSync Adjusting Images for Max Impact in Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/seamless-integration-of-real-time-video-on-websites/"><u>Seamless Integration of Real-Time Video on Websites</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/trasformare-i-file-mkv-in-mp3-gratuitamente-su-internet-utilizzando-il-software-di-conversione-di-movavi-una-guida-facile-da-seguire/"><u>Trasformare I File MKV in MP3 Gratuitamente Su Internet Utilizzando Il Software Di Conversione Di Movavi: Una Guida Facile Da Seguire</u></a></li>
 </ul></div>
 

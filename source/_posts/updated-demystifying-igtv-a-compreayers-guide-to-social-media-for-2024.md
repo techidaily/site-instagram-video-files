@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Demystifying IGTV  A Compreayer's Guide to Social Media for 2024\""
-date: 2024-10-01T19:09:23.669Z
-updated: 2024-10-04T16:22:11.341Z
+date: 2024-10-03T18:12:06.836Z
+updated: 2024-10-10T04:18:58.300Z
 tags:
   - ai video
   - ai instagram
@@ -167,31 +167,11 @@ Follow @Shanoon Cox
 
 ![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Create your IGTV channel
 
 * **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
 * **Step 2**: Again click ‘Next’ and the ‘Create Channel’ button afterwards.
 * **Step 3**: Now, your Instagram channel has been created and your profile picture will show up instead of the ‘Settings’ icon.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Upload a video to your IGTV channels
 
@@ -210,6 +190,13 @@ Follow @Shanoon Cox
 ### 1\. Vertical Video is necessary
 
  For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Keep It Short
 
@@ -250,10 +237,10 @@ Follow @Shanoon Cox
  You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: What is IGTV
@@ -273,19 +260,6 @@ Follow @Shanoon Cox
 * Creators have their own YouTube channels. But, anyone can become a creator on IGTV.
 * Presently it doesn’t have any Ads, but Instagram might introduce it to make channel creators earn from their videos.
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to use IGTV step by step
 
  Are you wondering how to use IGTV? It is as simple as turning on TV. The app optimizes videos depending on your device screen. As soon as you launch the app or tap the IGTV button on Instagram it starts playing right away.
@@ -293,6 +267,19 @@ Follow @Shanoon Cox
  There is no need of searching content to start watching from people you follow or topics that interest you. You can explore more by swiping the screen up and find ‘For You’, ‘Following’, ‘Continue Watching’, and ‘Popular’.
 
  Now that you have a fair idea about what is IGTV, and how to use it. Let’s understand how to use IGTV in a step by step manner. Here we are showing how to use IGTV through the Instagram app.
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### View and search IGTV channels
 
@@ -303,13 +290,6 @@ Follow @Shanoon Cox
 
 ![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Create your IGTV channel
 
 * **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
@@ -317,10 +297,10 @@ Follow @Shanoon Cox
 * **Step 3**: Now, your Instagram channel has been created and your profile picture will show up instead of the ‘Settings’ icon.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Upload a video to your IGTV channels
@@ -357,6 +337,13 @@ Follow @Shanoon Cox
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -378,13 +365,6 @@ Follow @Shanoon Cox
 * [**Part3: Tips for promoting IGTV**](#part3)
 
  You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: What is IGTV
 
@@ -420,6 +400,13 @@ Follow @Shanoon Cox
 
 ![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Create your IGTV channel
 
 * **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
@@ -440,15 +427,22 @@ Follow @Shanoon Cox
 
  You can promote IGTV with ease, after knowing what IGTV is, and how to use it. Here are some prominent tips to help you in this regard. Keep exploring!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Vertical Video is necessary
 
  For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Keep It Short
@@ -494,24 +488,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-leveraging-hashtags-and-mentions/"><u>[New] 2024 Approved Leveraging Hashtags and Mentions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-best-instagram-highlights-covers-apps-for-iphone-and-android-for-2024/"><u>[New] Best Instagram Highlights Covers Apps for iPhone and Android for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-crafting-viral-content-with-a-strategic-influencer-approach/"><u>[New] Crafting Viral Content with a Strategic Influencer Approach</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-curating-striking-instagram-profile-photos-for-2024/"><u>[New] Curating Striking Instagram Profile Photos for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-10-best-listed-playlists-on-spotify/"><u>[New] In 2024, 10 Best-Listed Playlists on Spotify</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-instacaptions-for-a-global-stage-top-100-inspirational-posts/"><u>[New] InstaCaptions for a Global Stage Top 100 Inspirational Posts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-breaking-down-instagrams-video-conversation-protocol/"><u>[Updated] Breaking Down Instagram's Video Conversation Protocol</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fix-chrome-error-with-fb-videos/"><u>[Updated] In 2024, Fix Chrome Error with FB Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-live-link-lifters-annual-archive-access/"><u>[Updated] In 2024, Live Link Lifters - Annual Archive Access</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-optimal-instagram-posting-times-a-comprehensive-overview/"><u>[Updated] Optimal Instagram Posting Times A Comprehensive Overview</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-your-yearly-compilation-of-free-text-files-for-2024/"><u>[Updated] Your Yearly Compilation of FREE Text Files for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-boost-traffic-elevate-rankings-essential-youtube-seo/"><u>2024 Approved Boost Traffic, Elevate Rankings - Essential YouTube SEO</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/descargar-el-convertidor-de-audio-gratuito-para-cambiar-archivos-flac-a-formato-ogg/"><u>Descargar El Convertidor De Audio Gratuito Para Cambiar Archivos FLAC a Formato Ogg</u></a></li>
-<li><a href="https://blog-min.techidaily.com/experience-adobes-innovative-generative-ai-with-the-latest-express-app-beta-release/"><u>Experience Adobe's Innovative Generative AI with the Latest Express App Beta Release</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-edit-and-organize-mp4-video-tags-with-ease/"><u>New 2024 Approved Edit and Organize MP4 Video Tags with Ease</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/screenshot-success-mastering-instagrams-preferred-video-format-with-fcpx-for-2024/"><u>Screenshot Success Mastering Instagram's Preferred Video Format with FCPX for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/unveiling-instagrams-background-replace-technique/"><u>Unveiling Instagram’s Background Replace Technique</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-your-canon-pixma-ts3322-driver-free-download-available/"><u>Update Your Canon PIXMA TS3322 Driver – Free Download Available</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-from-scratch-building-a-lighthearted-image-meme-for-2024/"><u>[New] From Scratch Building a Lighthearted Image Meme for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-shooting-spectacular-igtv-videos-with-your-phone-or-dslr/"><u>[New] In 2024, Shooting Spectacular IGTV Videos with Your Phone or DSLR</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-revolutionize-your-instagram-content-with-these-4-loopy-techniques/"><u>[Updated] 2024 Approved Revolutionize Your Instagram Content with These 4 Loopy Techniques</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-photo-and-video-size-adjustment-guide/"><u>[Updated] Instagram Photo and Video Size Adjustment Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-understanding-igtv-shutdown/"><u>[Updated] Understanding IGTV Shutdown</u></a></li>
+<li><a href="https://games-able.techidaily.com/gba-revival-linux-terminal-based-operations/"><u>GBA Revival: Linux Terminal-Based Operations</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-from-content-creator-to-brand-ambassador-unlocking-instagram-sponsorship/"><u>In 2024, From Content Creator to Brand Ambassador Unlocking Instagram Sponsorship</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-social-media-momentum-linking-igtv-and-fb/"><u>In 2024, Social Media Momentum Linking IGTV and FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/interweaving-worlds-vocabularies-today-for-teachers/"><u>Interweaving World's Vocabularies, Today for Teachers</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-the-stalled-boot-up-of-red-dead-redemption-2-on-pcconsoles/"><u>Resolving the Stalled Boot-Up of Red Dead Redemption 2 on PC/Consoles</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-restoring-broken-keys-on-modern-microsoft-operating-systems/"><u>Step-by-Step Guide: Restoring Broken Keys on Modern Microsoft Operating Systems</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-xiaomi-redmi-note-12t-pro-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Xiaomi Redmi Note 12T Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-cozy-winter-scenes-for-youtube-backdrops/"><u>Top 5 Cozy Winter Scenes for YouTube Backdrops</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-zeoid-startups-revealed-in-panzoids/"><u>Top Zeoid Startups Revealed in Panzoids</u></a></li>
 </ul></div>
 
