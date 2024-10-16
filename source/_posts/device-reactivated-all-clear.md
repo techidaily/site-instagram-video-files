@@ -1,7 +1,7 @@
 ---
 title: Device Reactivated - All Clear
-date: 2024-10-06T01:11:40.426Z
-updated: 2024-10-09T22:04:51.492Z
+date: 2024-10-11T16:28:07.422Z
+updated: 2024-10-16T10:58:12.571Z
 tags:
   - win11
   - win10
@@ -26,6 +26,13 @@ If you encounter**This device is disabled. (Code 22)**in Device Manager, here ar
 3. [**Uninstall your device driver**](https://cowinaudio.pxf.io/pyx40e)
 4. **[Reset the BIOS settings](https://bluettius.sjv.io/dkpnv2)**
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Enable your device driver
 
 Code 22 occurs usually because your device is manually disabled. Then manually enabling it should solve the problem. Here’s how to do so：
@@ -34,10 +41,10 @@ Code 22 occurs usually because your device is manually disabled. Then manually e
 2. Type **devmgmt.msc** and press**Enter**  to access Device Manager.  
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e3f572c04.png)
@@ -58,22 +65,15 @@ Driver errors like Code 22 can often be fixed by updating device drivers. You ca
 3. Click the **Update** button next to a flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).Or click **Update All** to automatically download and install the correct version of **_all_** the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecfc678b7.jpg)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 3: Uninstall your device driver
 
@@ -83,21 +83,7 @@ Uninstalling your device driver is another solution you can try to fix **This de
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ea2541557.jpg)
 2. Restart your computer, and Windows will automatically reinstall the driver for your device.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Reset the BIOS settings
 
@@ -115,8 +101,22 @@ If the above steps don’t work for you, to fix driver error code 22, you can tr
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c4a50b434.jpg)  
  Example – CMOS battery on a laptop
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. Remember which direction the battery is installed. Usually the engraved side, the positive side, is face up. Then, remove the CMOS battery from the main board (most can simply be popped out).![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c58fd6ffe.jpg)
 6. Wait for about one or two minutes for the CMOS to reset itself to its defaults.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7. Place the battery back in the housing, seal your computer’s case, and start your computer. Your BIOS should have reset itself, re-enabling your graphics device in the process.![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c68d02c94.jpg)
 
@@ -141,24 +141,18 @@ Please do reply if you got your problem fixed.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-dive-into-instagram-filters-2023s-latest-trends/"><u>[New] Dive Into Instagram Filters 2023'S Latest Trends</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-a-comprehensive-approach-to-mastering-the-art-of-instagram-reels/"><u>[Updated] 2024 Approved A Comprehensive Approach to Mastering the Art of Instagram Reels</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-expert-tips-efficiently-download-igtv-on-windows-and-macos/"><u>[Updated] 2024 Approved Expert Tips Efficiently Download IGTV on Windows & MacOS</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-timing-your-instagram-posts-for-optimal-results/"><u>[Updated] 2024 Approved Timing Your Instagram Posts for Optimal Results</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-apowersoft-capture-app-reviewed/"><u>[Updated] In 2024, Apowersoft Capture App Reviewed</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-silent-watchers-best-instagram-apps-for-2024/"><u>[Updated] The Silent Watchers' Best Instagram Apps for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-turn-your-instagram-footage-backwards-easily-for-2024/"><u>[Updated] Turn Your Instagram Footage Backwards Easily for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/creative-freedom-redefined-a-review-of-screenflow-on-macbook-pro/"><u>Creative Freedom Redefined A Review of ScreenFlow on MacBook Pro</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/dissecting-apowersoft-an-in-depth-screen-recorder-study/"><u>Dissecting Apowersoft An In-Depth Screen Recorder Study</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-poco-c65-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Poco C65</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Infinix Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-mastering-lenovo-screenshots-in-minutes/"><u>In 2024, Mastering Lenovo Screenshots in Minutes</u></a></li>
-<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Samsung Galaxy M34? | Dr.fone</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/mastering-image-editing-boosting-contrast-levels-in-flip-image-expert-software/"><u>Mastering Image Editing: Boosting Contrast Levels in Flip Image Expert Software</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/rhythm-and-reels-for-music-masters-on-ig/"><u>Rhythm & Reels for Music Masters on IG</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/social-media-spotlight-todays-top-8-video-phenomena/"><u>Social Media Spotlight Today’s Top 8 Video Phenomena</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/tips-to-make-your-instagram-video-goes-viral-for-2024/"><u>Tips to Make Your Instagram Video Goes Viral for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/unlock-social-media-success-hashtag-utilization-on-instagram-for-2024/"><u>Unlock Social Media Success Hashtag Utilization on Instagram for 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/water-strike-recovery-guide-swift-fixes-and-professional-advice-for-saving-an-iphone-from-liquid-damage/"><u>Water Strike Recovery Guide: Swift Fixes and Professional Advice for Saving an iPhone From Liquid Damage</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-circling-success-how-to-captivate-your-instagram-audience/"><u>[New] 2024 Approved Circling Success How to Captivate Your Instagram Audience</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unlock-the-potential-of-your-camera-creating-stunning-slow-motion-videos-for-instagram-for-2024/"><u>[New] Unlock the Potential of Your Camera Creating Stunning Slow-Motion Videos for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-cutting-edge-editing-10-pioneering-tools-for-instagram-vids-for-2024/"><u>[Updated] Cutting-Edge Editing 10 Pioneering Tools for Instagram Vids for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-the-world-of-instagram-puzzles-for-peak-performance-for-2024/"><u>[Updated] Navigating the World of Instagram Puzzles for Peak Performance for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-galaxy-f54-5g-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Galaxy F54 5G</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-overlay-strategies-for-videographers-for-2024/"><u>Best Overlay Strategies for Videographers for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-vivo-y77t-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Vivo Y77t Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/increase-tarkov-fps-quickly-a-professionals-6-step-fix-for-a-smoother-escape-from-tarkov-experience/"><u>Increase Tarkov FPS Quickly: A Professional's 6-Step Fix for a Smoother Escape From Tarkov Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-8-spots-for-accessing-free-high-quality-3d-text-files/"><u>Leading 8 Spots for Accessing FREE High-Quality 3D Text Files</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-100-disk-warning-in-windows-task-manager/"><u>Resolving 100% Disk Warning in Windows Task Manager</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/uncovering-the-leading-10-under-the-radar-story-viewers/"><u>Uncovering the Leading 10 Under-the-Radar Story Viewers</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-final-cut-pro-vs-express-which-one-reigns-supreme/"><u>Updated 2024 Approved Final Cut Pro vs Express Which One Reigns Supreme?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Honor X9a? | Dr.fone</u></a></li>
 </ul></div>
 
