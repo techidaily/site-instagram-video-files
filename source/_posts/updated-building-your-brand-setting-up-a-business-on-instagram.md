@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Building Your Brand  Setting Up a Business on Instagram\""
-date: 2024-10-20T18:30:01.132Z
-updated: 2024-10-21T18:20:32.611Z
+date: 2024-10-24T21:22:23.015Z
+updated: 2024-10-27T16:34:41.046Z
 tags:
   - ai video
   - ai instagram
@@ -90,85 +90,78 @@ thumbnail: https://thmb.techidaily.com/a3b5ab34eaf3f37a9a75db4fff942183c1ae755ba
  So now you know how to create Instagram business account functionality, and how to use it, as well as whether it's a good idea for you. Will you make the switch?
 
 <!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## And the winner is?
+
+ Right now, more than 15 million businesses are already using an Instagram business account, so in order to keep up with the competition, it makes sense to make the switch. It seems there will be no going back to the chronologically organized platform it used to be, and with all the massive benefits to switching, it makes absolute sense to adapt to the changing landscape.
+
+ Social marketing has the real potential to have a positive effect on your bottom line, with [75 per cent of businesses](https://www.statista.com/statistics/695183/social-media-marketing-profitability/)stating a significant or some positive return on investment, and thanks to these new business profiles, Instagram is set to be a real contributor to your profits. Our clear winner is the Instagram business profile, so make the switch today and let us know how it works for you!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Most of us already know how to create Instagram account for our personal use, but when it comes to an Instagram business account, does the set up go the same way? How should we organise our Instagram business profile, and how can we keep it separate from our personal accounts? Here, we'll investigate how to create an Instagram business account so that your business can benefit from this massively popular social network too.
+
+* [How to set up Instagram Business Account](#part1)
+* [Should you switch to business account?](#part2)
+
+## How to set up Instagram Business Account
+
+ Making the move to an Instagram business account is straightforward, so here's a step by step introduction to setting up your Instagram business profile in moments.
+
+#### 1\.  Switch to Instagram business profile
+
+ Log into your personal Instagram account to start this process. If you don't have an account, you'll need to create an Instagram account to get started.
+
+ Once into your Instagram account, simply open your account settings which you'll find in the cog at the top right of your screen when looking at your profile. Near the bottom of the menu you'll find the option to 'Switch to Business Profile'. Choose this to find out how to create Instagram business account.
+
+#### 2\.  Set up your profile
+
+ Once you've pressed the option to switch to a business profile, you'll see a request to connect your Instagram account to your Facebook page, with a blue link to 'view features'. This is how to create Instagram account for your business.
+
+ In this menu you'll be able to connect to your Facebook page, which is the best place to start. You'll be asked which Facebook page you want to connect to; note that you can only set up an Instagram business account for pages which you administer yourself. You may only connect one Instagram business profile with each Facebook page.
+
+ From here, you can pull down contact information such as your customer service telephone number, your street address and your email contacts. You need to add at least one contact feature in order to create your Instagram business account.
+
+#### 3\.  Check your new Instagram business profile
+
+ Once you've finished setting up your account, you can switch back to your personal account and navigate to your new Instagram business account to see how it looks from an outsider's point of view. Try tapping the 'contact' button to see what sort of interaction options are available to your visitors.
+
+ Make sure you are only providing the relevant information at this stage. For example, if you are a fully online business, your customers won't need to get directions to your address, so you can go ahead and remove your location from the contact options. If you don't really use the phone number for business, you can choose to switch it to text message only within your Instagram business profile settings.
+
+#### 4\.  Check out Instagram for business features
+
+ Now you know how to create Instagram business account, you also need to manage it well too. There are a few features which set business accounts apart from standard user accounts, and some of these can be very useful to you in getting the most from your new Instagram business profile.
+
+* **Insights:** You'll find the insights button at the top of your business profile next to the settings icon. Here you can see impressions, reach and clicks to your website, which are updated on a weekly basis. This feature also tracks your engagement metrics on a post by post basis, so that you can tailor what you're posting to get more from your channel.
+* **Promote:** Posts in Instagram can be boosted in a similar way to those on Facebook. This is not the same as running an ad, which you could also consider doing, but is a way to ensure more people see the content that you've posted.
+* **Profile:** Your Instagram business profile looks and feels different to the generic user account, which is a good thing. It allows users to find out about your business, to get directions or contact information for you and to click shoppable links directly.
+
+ Take some time to get to know your new Instagram business account, so that you can set in place a powerful strategy to maximize your impact on this busy social channel.
+
+ So, now you know how to create Instagram business account and how to manage it too, but one question remains; should you?
+
+<!-- affiliate ads begin -->
 <a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
   <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
 <img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-## And the winner is?
-
- Right now, more than 15 million businesses are already using an Instagram business account, so in order to keep up with the competition, it makes sense to make the switch. It seems there will be no going back to the chronologically organized platform it used to be, and with all the massive benefits to switching, it makes absolute sense to adapt to the changing landscape.
-
- Social marketing has the real potential to have a positive effect on your bottom line, with [75 per cent of businesses](https://www.statista.com/statistics/695183/social-media-marketing-profitability/)stating a significant or some positive return on investment, and thanks to these new business profiles, Instagram is set to be a real contributor to your profits. Our clear winner is the Instagram business profile, so make the switch today and let us know how it works for you!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Most of us already know how to create Instagram account for our personal use, but when it comes to an Instagram business account, does the set up go the same way? How should we organise our Instagram business profile, and how can we keep it separate from our personal accounts? Here, we'll investigate how to create an Instagram business account so that your business can benefit from this massively popular social network too.
-
-* [How to set up Instagram Business Account](#part1)
-* [Should you switch to business account?](#part2)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## How to set up Instagram Business Account
-
- Making the move to an Instagram business account is straightforward, so here's a step by step introduction to setting up your Instagram business profile in moments.
-
-#### 1\.  Switch to Instagram business profile
-
- Log into your personal Instagram account to start this process. If you don't have an account, you'll need to create an Instagram account to get started.
-
- Once into your Instagram account, simply open your account settings which you'll find in the cog at the top right of your screen when looking at your profile. Near the bottom of the menu you'll find the option to 'Switch to Business Profile'. Choose this to find out how to create Instagram business account.
-
-#### 2\.  Set up your profile
-
- Once you've pressed the option to switch to a business profile, you'll see a request to connect your Instagram account to your Facebook page, with a blue link to 'view features'. This is how to create Instagram account for your business.
-
- In this menu you'll be able to connect to your Facebook page, which is the best place to start. You'll be asked which Facebook page you want to connect to; note that you can only set up an Instagram business account for pages which you administer yourself. You may only connect one Instagram business profile with each Facebook page.
-
- From here, you can pull down contact information such as your customer service telephone number, your street address and your email contacts. You need to add at least one contact feature in order to create your Instagram business account.
-
-#### 3\.  Check your new Instagram business profile
-
- Once you've finished setting up your account, you can switch back to your personal account and navigate to your new Instagram business account to see how it looks from an outsider's point of view. Try tapping the 'contact' button to see what sort of interaction options are available to your visitors.
-
- Make sure you are only providing the relevant information at this stage. For example, if you are a fully online business, your customers won't need to get directions to your address, so you can go ahead and remove your location from the contact options. If you don't really use the phone number for business, you can choose to switch it to text message only within your Instagram business profile settings.
-
-#### 4\.  Check out Instagram for business features
-
- Now you know how to create Instagram business account, you also need to manage it well too. There are a few features which set business accounts apart from standard user accounts, and some of these can be very useful to you in getting the most from your new Instagram business profile.
-
-* **Insights:** You'll find the insights button at the top of your business profile next to the settings icon. Here you can see impressions, reach and clicks to your website, which are updated on a weekly basis. This feature also tracks your engagement metrics on a post by post basis, so that you can tailor what you're posting to get more from your channel.
-* **Promote:** Posts in Instagram can be boosted in a similar way to those on Facebook. This is not the same as running an ad, which you could also consider doing, but is a way to ensure more people see the content that you've posted.
-* **Profile:** Your Instagram business profile looks and feels different to the generic user account, which is a good thing. It allows users to find out about your business, to get directions or contact information for you and to click shoppable links directly.
-
- Take some time to get to know your new Instagram business account, so that you can set in place a powerful strategy to maximize your impact on this busy social channel.
-
- So, now you know how to create Instagram business account and how to manage it too, but one question remains; should you?
-
 ## Should you switch to business account?
 
  With more than 800 million users and 500 million active each day, Instagram is by far the biggest and busiest social sharing network on the planet. But are there real advantages to switching to an Instagram business profile, or could you just promote your business through a standard account instead? Let's find out:
@@ -192,13 +185,6 @@ Follow @Shanoon Cox
 
  So now you know how to create Instagram business account functionality, and how to use it, as well as whether it's a good idea for you. Will you make the switch?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## And the winner is?
 
  Right now, more than 15 million businesses are already using an Instagram business account, so in order to keep up with the competition, it makes sense to make the switch. It seems there will be no going back to the chronologically organized platform it used to be, and with all the massive benefits to switching, it makes absolute sense to adapt to the changing landscape.
@@ -221,6 +207,13 @@ Follow @Shanoon Cox
 
 * [How to set up Instagram Business Account](#part1)
 * [Should you switch to business account?](#part2)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to set up Instagram Business Account
 
@@ -289,6 +282,13 @@ Follow @Shanoon Cox
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -305,10 +305,10 @@ Follow @Shanoon Cox
 * [Should you switch to business account?](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to set up Instagram Business Account
@@ -405,21 +405,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-use-the-instagram-question-sticker-the-way-you-may-miss/"><u>[New] In 2024, How to Use the Instagram Question Sticker [The Way You May Miss]</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-pivot-past-moments-an-android-video-reversal-tutorial/"><u>[New] Pivot Past Moments An Android Video Reversal Tutorial</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-debating-on-the-significance-of-truthfulness-in-selfies/"><u>[Updated] 2024 Approved Debating on the Significance of Truthfulness in Selfies</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-invisible-realities-of-stories-a-closer-look-for-viewers/"><u>[Updated] 2024 Approved Invisible Realities of Stories A Closer Look for Viewers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-achieving-verified-on-instagram-accelerating-follower-count-through-effective-techniques/"><u>[Updated] Achieving Verified on Instagram Accelerating Follower Count Through Effective Techniques</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-insider-tips-the-best-instagram-strategies-for-profit-for-2024/"><u>[Updated] Insider Tips The Best Instagram Strategies for Profit for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-selfie-to-world-stage-mastering-the-art-of-instagram-captions/"><u>[Updated] Selfie to World Stage Mastering the Art of Instagram Captions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersive-tech-critical-review-of-vr-gadgets/"><u>2024 Approved Immersive Tech Critical Review of VR Gadgets</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Vivo Y100t | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/generate-impressive-corporate-emails-instantly-for-free-discover-how-chatgpt-and-ai-innovation-can-streamline-your-inbox/"><u>Generate Impressive Corporate Emails Instantly for Free - Discover How ChatGPT & AI Innovation Can Streamline Your Inbox</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-secure-your-profile-by-changing-password-in-what-was-once-called-twitter/"><u>How to Secure Your Profile by Changing Password in What Was Once Called Twitter</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-amd-radeon-rx-590-drivers-for-windows-systems-free-download-and-tutorial/"><u>Latest AMD Radeon RX 590 Drivers for Windows Systems - Free Download and Tutorial</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/stealthy-gpt-conversation-archiving-strategies/"><u>Stealthy GPT Conversation Archiving Strategies</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/syncing-screens-a-comprehensive-guide-to-using-airplay-with-a-macbook-and-television/"><u>Syncing Screens: A Comprehensive Guide to Using AirPlay with a MacBook & Television</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-and-repairing-missing-shelldll-issues-on-your-pc/"><u>Troubleshooting and Repairing Missing Shell.dll Issues on Your PC</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/your-pathway-to-perfect-igtv-footage-from-phone-to-dslr-for-2024/"><u>Your Pathway to Perfect IGTV Footage From Phone to DSLR for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-boosting-your-contents-impact-on-instagram/"><u>[New] In 2024, Boosting Your Content's Impact on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-from-beginner-to-expert-navigating-instagrams-virtual-conversations/"><u>[New] In 2024, From Beginner to Expert Navigating Instagram’s Virtual Conversations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-turning-tides-in-visuals-mastering-the-art-of-angles-and-rotations-on-insta/"><u>[New] In 2024, Turning Tides in Visuals Mastering the Art of Angles and Rotations on Insta</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unveiling-the-secrets-to-stellar-igtv-footage-capture/"><u>[New] In 2024, Unveiling the Secrets to Stellar IGTV Footage Capture</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-slow-motion-photography-techniques-for-instagram-posts-for-2024/"><u>[New] Mastering Slow Motion Photography Techniques for Instagram Posts for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-insta-story-mastery-adjusting-focus-like-a-pro/"><u>[Updated] 2024 Approved Insta Story Mastery Adjusting Focus Like a Pro</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-ignite-attention-driving-success-in-instagram-posts-for-2024/"><u>[Updated] Ignite Attention Driving Success in Instagram Posts for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-navigate-the-digital-realm-uploading-to-instagram-tv/"><u>2024 Approved Navigate the Digital Realm Uploading to Instagram TV</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ring-youtube-video-downloader-apps-on-android-for-2024/"><u>Comparing YouTube Video Downloader Apps on Android for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/immersive-editing-unveiling-the-top-15-cine-luts-for-action-cam-for-2024/"><u>Immersive Editing Unveiling the Top 15 Cine LUTs for Action Cam for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-beginners-glossary-for-instagram-chat-rooms/"><u>In 2024, Beginner's Glossary for Instagram Chat Rooms</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unleashing-potential-youtubes-techniques-for-stellar-videos/"><u>In 2024, Unleashing Potential YouTube's Techniques for Stellar Videos</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/overcoming-ietframedll-errors-with-these-expert-tips-and-tricks/"><u>Overcoming ietframe.dll Errors with These Expert Tips and Tricks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/pioneers-of-possibilities-the-leading-6-in-artistic-realms/"><u>Pioneers of Possibilities The Leading 6 in Artistic Realms</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/recycle-bin-deleted-items-and-partial-file-restoration/"><u>Recycle Bin, Deleted Items, and Partial File Restoration.</u></a></li>
+<li><a href="https://win-dash.techidaily.com/solve-the-problem-why-is-my-samsung-blu-ray-player-not-responding/"><u>Solve the Problem: Why Is My Samsung Blu-Ray Player Not Responding?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unlock-additional-instagram-filters-a-step-by-step-guide-for-2024/"><u>Unlock Additional Instagram Filters A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/vom-abrufen-von-spotify-playlists-bis-zur-ubertragung-auf-apple-music-eine-schrittweise-anleitung/"><u>Vom Abrufen Von Spotify-Playlists Bis Zur Übertragung Auf Apple Music - Eine Schrittweise Anleitung</u></a></li>
 </ul></div>
 
