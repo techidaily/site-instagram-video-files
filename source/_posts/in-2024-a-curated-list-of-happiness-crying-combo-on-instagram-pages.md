@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, A Curated List of Happiness-Crying Combo on Instagram Pages\""
-date: 2024-09-12T11:02:31.073Z
-updated: 2024-09-13T05:19:34.193Z
+date: 2024-10-30T17:00:03.233Z
+updated: 2024-11-02T16:45:35.607Z
 tags:
   - ai video
   - ai instagram
@@ -30,29 +30,9 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
 * [**Part 1: 10 best Instagram meme accounts**](#part1)
 * [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Dank Memes Instagram Compilation
 
 ## Part1: 10 best Instagram meme accounts
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1. [memes](https://www.instagram.com/memes/)
 
@@ -62,13 +42,6 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
 
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
 
  Followers - 5.3 Million
@@ -76,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
  7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
 
 ![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. [memezar](https://www.instagram.com/memezar/)
 
@@ -85,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
 
 ![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4. [vines](https://www.instagram.com/vines/)
 
  Followers 5.7 million
@@ -99,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
  While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
 
 ![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5. [drunk](https://www.instagram.com/drunk/)
 
@@ -123,20 +89,6 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
 
 ![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7. [memerizey](https://www.instagram.com/memerizey/)
 
  Followers – 175 thousand
@@ -146,10 +98,10 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
@@ -182,256 +134,11 @@ thumbnail: https://thmb.techidaily.com/8da4f128772304ca7169e7ed666f281e2ef57e50c
 
  Here are two of the big reasons why they’ve become a popular form of communication.
 
-### 1\. Memes are Very Easy to Understand
-
- Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 2\. We Like Sharing Memes
-
- Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Conclusion
-
- There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
-
- These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Given how stressful life is these days, memes are a great way for us to feel confident and happy. When searching for great memes, don’t forget Instagram. It’s one of the places to [find entertaining memes](https://tools.techidaily.com/wondershare/filmora/download/). Here’s a look at the 10 best meme accounts on Instagram that you should follow so that you can get your daily dose of laughter.
-
-* [**Part 1: 10 best Instagram meme accounts**](#part1)
-* [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
-
-## Dank Memes Instagram Compilation
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part1: 10 best Instagram meme accounts
-
-### 1. [memes](https://www.instagram.com/memes/)
-
- Followers - 3 Million
-
- Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
-
-![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
-
- Followers - 5.3 Million
-
- 7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
-
-![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 3. [memezar](https://www.instagram.com/memezar/)
-
- Followers – 5.4 Million
-
- Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
-
-![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 4. [vines](https://www.instagram.com/vines/)
-
- Followers 5.7 million
-
- While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
-
-![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
-
-### 5. [drunk](https://www.instagram.com/drunk/)
-
- Followers - 5.6 million
-
- This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
-
-![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
-
- Followers - 13.9 million
-
- FuckJerry runs a website based on memes and the culture around them, and has also developed a very popular card game called “What Do You Meme?” based on the same premise as Cards Against Humanity. His meme site is one of the most popular that you will find on the web.
-
-![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
-
-### 7. [memerizey](https://www.instagram.com/memerizey/)
-
- Followers – 175 thousand
-
- Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
-
-![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
-
- Followers - 528 thousand
-
- Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
-
-![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 9. [funnymemes](https://www.instagram.com/funnymemes/)
-
- Followers – 7.9 million
-
- Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
-
-![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 10. [swearcasm](https://www.instagram.com/swearcasm/)
-
- Followers – 359 thousand
-
- According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
-
-![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 2: Why Are Memes So Popular On Instagram, Anyway
-
- There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
-
- Here are two of the big reasons why they’ve become a popular form of communication.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Memes are Very Easy to Understand
@@ -450,13 +157,6 @@ Follow @Ollie Mattison
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -472,19 +172,6 @@ Follow @Ollie Mattison
 * [**Part 1: 10 best Instagram meme accounts**](#part1)
 * [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Dank Memes Instagram Compilation
 
 ## Part1: 10 best Instagram meme accounts
@@ -497,19 +184,6 @@ Follow @Ollie Mattison
 
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
 
  Followers - 5.3 Million
@@ -518,13 +192,6 @@ Follow @Ollie Mattison
 
 ![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. [memezar](https://www.instagram.com/memezar/)
 
  Followers – 5.4 Million
@@ -532,13 +199,6 @@ Follow @Ollie Mattison
  Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
 
 ![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. [vines](https://www.instagram.com/vines/)
 
@@ -549,23 +209,10 @@ Follow @Ollie Mattison
 ![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5. [drunk](https://www.instagram.com/drunk/)
@@ -576,13 +223,6 @@ Follow @Ollie Mattison
 
 ![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
 
  Followers - 13.9 million
@@ -592,17 +232,10 @@ Follow @Ollie Mattison
 ![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7. [memerizey](https://www.instagram.com/memerizey/)
@@ -613,6 +246,13 @@ Follow @Ollie Mattison
 
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
 
  Followers - 528 thousand
@@ -620,13 +260,6 @@ Follow @Ollie Mattison
  Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
 
 ![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. [funnymemes](https://www.instagram.com/funnymemes/)
 
@@ -636,6 +269,13 @@ Follow @Ollie Mattison
 
 ![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10. [swearcasm](https://www.instagram.com/swearcasm/)
 
  Followers – 359 thousand
@@ -643,20 +283,6 @@ Follow @Ollie Mattison
  According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
 
 ![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Why Are Memes So Popular On Instagram, Anyway
 
@@ -680,13 +306,6 @@ Follow @Ollie Mattison
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -706,13 +325,6 @@ Follow @Ollie Mattison
 
 ## Part1: 10 best Instagram meme accounts
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. [memes](https://www.instagram.com/memes/)
 
  Followers - 3 Million
@@ -721,20 +333,6 @@ Follow @Ollie Mattison
 
 ![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
 
  Followers - 5.3 Million
@@ -742,19 +340,6 @@ Follow @Ollie Mattison
  7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
 
 ![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. [memezar](https://www.instagram.com/memezar/)
 
@@ -789,10 +374,10 @@ Follow @Ollie Mattison
 ![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7. [memerizey](https://www.instagram.com/memerizey/)
@@ -802,13 +387,6 @@ Follow @Ollie Mattison
  Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
 
 ![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
 
@@ -826,13 +404,6 @@ Follow @Ollie Mattison
 
 ![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10. [swearcasm](https://www.instagram.com/swearcasm/)
 
  Followers – 359 thousand
@@ -840,13 +411,6 @@ Follow @Ollie Mattison
  According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
 
 ![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Why Are Memes So Popular On Instagram, Anyway
 
@@ -858,29 +422,130 @@ Follow @Ollie Mattison
 
  Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. We Like Sharing Memes
 
  Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+## Conclusion
+
+ There are so many great memes out there for us to share and enjoy, and so it’s definitely worth it to find the Instagram accounts that you enjoy and that you’ll be able to use regularly to get a laugh and have fun with your friends.
+
+ These are our favorites and they always seem to have the most hilarious memes. But you’re sure to find others that you’re going to want to follow and keep up with!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Given how stressful life is these days, memes are a great way for us to feel confident and happy. When searching for great memes, don’t forget Instagram. It’s one of the places to [find entertaining memes](https://tools.techidaily.com/wondershare/filmora/download/). Here’s a look at the 10 best meme accounts on Instagram that you should follow so that you can get your daily dose of laughter.
+
+* [**Part 1: 10 best Instagram meme accounts**](#part1)
+* [**Part 2: Why Are Memes So Popular On Instagram, Anyway**](#part2)
+
+## Dank Memes Instagram Compilation
+
+## Part1: 10 best Instagram meme accounts
+
+### 1. [memes](https://www.instagram.com/memes/)
+
+ Followers - 3 Million
+
+ Memes is one of the biggest communities for memes on the internet, with followers on Facebook as well. They are currently developing a Memes app that you can use in order to make your own memes.
+
+![memes](https://images.wondershare.com/filmora/article-images/memes-ig.JPG)
+
+### 2. [7thgrader.s](https://www.instagram.com/7thgrader.s/)
+
+ Followers - 5.3 Million
+
+ 7thgrader.s claims it’s the place to find all of the “most dank funny posts”. They post at least once a day, but you will often find them posting a little off schedule at times.
+
+![7thgrader](https://images.wondershare.com/filmora/article-images/7thgrader-ig.JPG)
+
+### 3. [memezar](https://www.instagram.com/memezar/)
+
+ Followers – 5.4 Million
+
+ Meme is an account dedicating to making and compiling all sorts of memes that are found all over the internet, but especially on Instagram. They post, on average, twice a day.
+
+![CelAction2D](https://images.wondershare.com/filmora/article-images/memezar-ig.JPG)
+
+### 4. [vines](https://www.instagram.com/vines/)
+
+ Followers 5.7 million
+
+ While the app “Vine” has been taken offline, vines is not – they currently do a lot of meme based videos, some of which were on Vine when it was still useable. These include news clips and other funny videos.
+
+![vines](https://images.wondershare.com/filmora/article-images/vines-ig.JPG)
+
+### 5. [drunk](https://www.instagram.com/drunk/)
+
+ Followers - 5.6 million
+
+ This Instagram page claims to be the largest Instagram community of drunk fails and memes – and the site is still going very strong. While there are a lot of drunk memes and fails, you will also find a variety of ordinary memes from around the web.
+
+![drunk](https://images.wondershare.com/filmora/article-images/drunk-ig.JPG)
+
+### 6. [fuckjerry](https://www.instagram.com/fuckjerry/?hl=en)
+
+ Followers - 13.9 million
+
+ FuckJerry runs a website based on memes and the culture around them, and has also developed a very popular card game called “What Do You Meme?” based on the same premise as Cards Against Humanity. His meme site is one of the most popular that you will find on the web.
+
+![fuckjerry](https://images.wondershare.com/filmora/article-images/fuckjerry-ig.JPG)
+
+### 7. [memerizey](https://www.instagram.com/memerizey/)
+
+ Followers – 175 thousand
+
+ Memerizey is a great meme site that has been developed for the Spanish-speaking Instagram crowd, providing them with their own batches of memes, both popular memes and ones that are specially tailored toward the Spanish speaking community
+
+![memerizey](https://images.wondershare.com/filmora/article-images/memerizey-ig.JPG)
+
+### 8. [funnyvideos](https://www.instagram.com/funnyvideos/)
+
+ Followers - 528 thousand
+
+ Owned by the same people that do @memes, which was first on this list, funny really delivers on its daily dose of laughs promise by regularly providing fresh and hilarious memes and videos to enjoy on their Instagram page.
+
+![funnyvideos](https://images.wondershare.com/filmora/article-images/funnyvideos-ig.JPG)
+
+### 9. [funnymemes](https://www.instagram.com/funnymemes/)
+
+ Followers – 7.9 million
+
+ Funnymemes focuses on providing videos and pictures to the Instagram community that are either adaptations of current memes, or they are new memes that they’ve developed. Either way, it’s a fun site that has been getting a lot of attention and that many people follow for the best meme options.
+
+![funnymemes](https://images.wondershare.com/filmora/article-images/funnymemes-ig.JPG)
+
+### 10. [swearcasm](https://www.instagram.com/swearcasm/)
+
+ Followers – 359 thousand
+
+ According to their profile, they’re “50% swearing and 50% sarcasm”, which some people may argue covers a lot of memes that you see on the web. They try to post fairly regularly and are involved in the meme community that has started to build and become more popular on Instagram over the past few years.
+
+![swearcasm](https://images.wondershare.com/filmora/article-images/swearcasm-ig.JPG)
+
+## Part 2: Why Are Memes So Popular On Instagram, Anyway
+
+ There are so many different reasons that memes have gotten a lot of traction over the years. In fact, they’ve become such a phenomenon that academics are actually starting to research them.
+
+ Here are two of the big reasons why they’ve become a popular form of communication.
+
+### 1\. Memes are Very Easy to Understand
+
+ Memes are meant to be something that we use in order to easily communicate ideas with other people. Memes capture the essence of a thought in a creative way that everyone understands. They’re visual, they’re short, they catch our attention and they help people to grasp your thoughts in a quick, concise way.
+
+### 2\. We Like Sharing Memes
+
+ Think about it – if you see a meme that you find amusing or that fits you or someone you know really well, then you will share it to your social media page or send it to your friend. Sharing memes is a lot of fun, and so it’s become something that is really popular for many of us to do.
 
 ## Conclusion
 
@@ -915,5 +580,18 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-crafting-a-seamless-cross-share-experience-with-fb-and-igtv/"><u>[New] 2024 Approved Crafting a Seamless Cross-Share Experience with FB & IGTV</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-unlocking-the-potential-of-your-laptops-recording-features/"><u>[New] 2024 Approved Unlocking the Potential of Your Laptop's Recording Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-becoming-a-master-of-instagram-auditory-aesthetics/"><u>[New] In 2024, Becoming a Master of Instagram Auditory Aesthetics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-flipping-through-frames-instagrams-video-reversal-wizardry/"><u>[New] In 2024, Flipping Through Frames Instagram's Video Reversal Wizardry</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-twisting-the-norm-your-instagram-video-transformation-for-2024/"><u>[Updated] Twisting the Norm Your Instagram Video Transformation for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-definitive-guide-for-pc-mac-and-smartphone-movie-logging/"><u>2024 Approved The Definitive Guide for PC, Mac, and Smartphone Movie Logging</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveiling-horizon-based-approaches-to-post-on-igtv/"><u>2024 Approved Unveiling Horizon-Based Approaches to Post on IGTV</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-nokia-c02-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Nokia C02 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ejecucion-paso-a-paso-para-transferir-contenido-de-dvd-a-soluciones-cloud-como-google-drive-y-icloud/"><u>Ejecución Paso a Paso Para Transferir Contenido De DVD a Soluciones Cloud Como Google Drive Y iCloud</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-download-the-ultimate-guide-to-roccat-mousedriver-software/"><u>Free Download: The Ultimate Guide to Roccat MouseDriver Software</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/iuodhplusocoplusocueocrpluswuuemhjpluswjiua4mzrjgqtjg6hjg7zjgrjjg5xjgqhjgqtjg6vjga7mninlirnjgarlnkfnuk7miyvms5ui/"><u>ディスク容量削減:イメージファイルの有効な圧縮手法</u></a></li>
+</ul></div>
 

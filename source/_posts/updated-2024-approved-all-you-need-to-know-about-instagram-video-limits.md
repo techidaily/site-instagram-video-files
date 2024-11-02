@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  All You Need to Know About Instagram Video Limits\""
-date: 2024-09-10T02:07:38.994Z
-updated: 2024-09-13T00:56:18.236Z
+date: 2024-11-01T16:39:08.532Z
+updated: 2024-11-02T16:31:12.317Z
 tags:
   - ai video
   - ai instagram
@@ -39,19 +39,6 @@ We'll start by discussing what we mean by "Instagram video." Instagram video enc
 
 03 [Tutorial for How to Record on GarageBand](#part3)
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Long Can An Instagram Video Be?
 
 Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
@@ -67,19 +54,6 @@ Each Instagram Story has a length of 15-second time limit. If you upload a video
 Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
 
 ![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Instagram Reels
 
@@ -172,6 +146,13 @@ Furthermore, to use the new feature and make lengthier Instagram Stories, simply
 
 ![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Instagram Reels
 
 Instagram's newest feature is Reels. It also allows you to share small video snippets (up to 15 seconds in length) with all Instagram users. Before publishing your Reel, you can dub audio, tweak footage, and add instant effects. The Reel video will then appear in your followers' feeds.
@@ -188,19 +169,6 @@ Instagram's IGTV section allows users to upload and view longer videos. IGTV vid
 
 ![IGTV video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-3.png)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### IG Feed Video
 
 The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
@@ -208,13 +176,6 @@ The videos you submit to your main Instagram page, rather than your Stories, are
 Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
 
 ![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### IG Feed Video Ads
 
@@ -231,16 +192,10 @@ The maximum length of an Instagram Story video ad is two minutes. You can utiliz
 Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Adjust The Duration Of Your Video For Instagram?
@@ -263,16 +218,10 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -293,18 +242,18 @@ We'll start by discussing what we mean by "Instagram video." Instagram video enc
 
 03 [Tutorial for How to Record on GarageBand](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Long Can An Instagram Video Be?
 
 Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
 
 ![instagram video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Instagram Story Video
 
@@ -317,10 +266,10 @@ Furthermore, to use the new feature and make lengthier Instagram Stories, simply
 ![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Instagram Reels
@@ -339,13 +288,6 @@ Instagram's IGTV section allows users to upload and view longer videos. IGTV vid
 
 ![IGTV video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### IG Feed Video
 
 The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
@@ -353,13 +295,6 @@ The videos you submit to your main Instagram page, rather than your Stories, are
 Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
 
 ![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### IG Feed Video Ads
 
@@ -374,13 +309,6 @@ Instagram Stories advertisements are an excellent method to reach out to new peo
 The maximum length of an Instagram Story video ad is two minutes. You can utilize different story cards if you want to show your ad on an Instagram story. Each card can display a 15-second video or a single 5-second picture ad. Only the first three cards of a complete ad will appear in the Instagram story stream. After that, after touching on the ad, the viewer must choose whether or not to see more.
 
 Furthermore, Instagram Stories will show 15-second or shorter video advertising for the duration of the video. Video ads lasting more than 10 seconds will be broken into different Stories cards.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Adjust The Duration Of Your Video For Instagram?
 
@@ -419,6 +347,13 @@ We'll start by discussing what we mean by "Instagram video." Instagram video enc
 
 03 [Tutorial for How to Record on GarageBand](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Long Can An Instagram Video Be?
 
 Instagram feed videos, Instagram Story videos, IGTV videos, Instagram advertising, and Instagram Live have various length limitations. We've broken down Instagram video length details for each of them in this guide.
@@ -434,6 +369,13 @@ Each Instagram Story has a length of 15-second time limit. If you upload a video
 Furthermore, to use the new feature and make lengthier Instagram Stories, simply tap the Your Story symbol and then press and hold the record button in the bottom-right corner for as long as you want to record a moment - without worrying about the 15-second limit.
 
 ![instgarm story video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Instagram Reels
 
@@ -451,13 +393,6 @@ Instagram's IGTV section allows users to upload and view longer videos. IGTV vid
 
 ![IGTV video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### IG Feed Video
 
 The videos you submit to your main Instagram page, rather than your Stories, are referred to as Instagram feed videos. These appear on your followers' Instagram feeds as well as on your main profile page.
@@ -465,13 +400,6 @@ The videos you submit to your main Instagram page, rather than your Stories, are
 Videos can only be 1 minute or 60 seconds long when posted to the Instagram feed. In addition, if you wish to submit a video to your Instagram feed or profile, you must keep it under 60 seconds. If you have a longer than a minute video, you must use the app to select a 60-second frame and post it to your feed. You can trim the video and choose your favorite parts utilizing the app's built-in editor.
 
 ![IG Feed video length](https://images.wondershare.com/filmora/article-images/2021/instagram-video-length-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### IG Feed Video Ads
 
@@ -505,6 +433,13 @@ For Win 7 or later (64-bit)
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -529,5 +464,18 @@ For macOS 10.12 or later
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-transform-your-instagram-vids-with-advanced-editing-skills/"><u>[New] 2024 Approved Transform Your Instagram Vids with Advanced Editing Skills</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-secrets-from-pros-how-to-convert-insta-videos-to-premium-mp4/"><u>[New] Secrets From Pros How to Convert Insta Videos to Premium MP4</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unlocking-igtv-potential-converting-and-curating-horizontal-videos-for-2024/"><u>[New] Unlocking IGTV Potential Converting and Curating Horizontal Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-masterful-methods-for-adding-melodies-to-ig-media/"><u>[Updated] 2024 Approved Masterful Methods for Adding Melodies to IG Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-sound-design-strategies-integrating-youtube-music-into-visual-media/"><u>[Updated] Sound Design Strategies Integrating YouTube Music Into Visual Media</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhance-directive-creation-with-these-7-online-resources/"><u>Enhance Directive Creation with These 7 Online Resources</u></a></li>
+<li><a href="https://extra-information.techidaily.com/focus-and-frame-the-art-of-intimate-movie-filming/"><u>Focus & Frame The Art of Intimate Movie Filming</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-oneplus-11-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset OnePlus 11 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-meizu-21-pro-devices-by-drfone-android/"><u>How to Reset Gmail Password on Meizu 21 Pro Devices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-magic-6-lite-phone-without-pin-by-drfone-android/"><u>How to Unlock Honor Magic 6 Lite Phone without PIN</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/top-5-secret-story-viewers-tools/"><u>Top 5 Secret Story Viewers' Tools</u></a></li>
+</ul></div>
 

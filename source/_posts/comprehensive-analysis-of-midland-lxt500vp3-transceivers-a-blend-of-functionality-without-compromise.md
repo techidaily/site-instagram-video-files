@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of Midland LXT500VP3 Transceivers: A Blend of Functionality Without Compromise"
-date: 2024-10-25T16:51:44.452Z
-updated: 2024-10-27T20:35:57.523Z
+date: 2024-10-27T16:15:36.701Z
+updated: 2024-11-02T16:07:40.070Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of Midland LXT500VP3 Transceivers: A Blend of Functionality Without Compromise"
@@ -39,10 +39,10 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
@@ -50,10 +50,10 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -77,6 +77,13 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -86,13 +93,6 @@ Lifewire / Rebecca Isaacs
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -106,13 +106,6 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Precise, but mildly problematic**
 
  The Sabrent boasts that it’s a high precision mini mouse, and in that regard, we have to agree. While 1200 dpi is minimal in comparison to some of the other heavy-hitting mice on the market, this mouse wasn’t designed to be used as a gaming mouse—it was designed in mind that you could take it and pack it on the go and get the job done.
@@ -121,6 +114,19 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The buttons responded quickly and with ease as well. While the main and right buttons do click with some noise, the constant clacking won’t get on any nerves. The scroller isn’t loud, but it took us a couple rolls of the wheel before it shifted around without any resistance. This ultimately wasn’t a big deal, but it might need a little breaking in, so don’t give up on it straight away.
@@ -128,6 +134,13 @@ Lifewire / Rebecca Isaacs
  We used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design.
 
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Comfort: Too small**
 
@@ -140,13 +153,6 @@ Lifewire / Rebecca Isaacs
 ## **Price: Reasonable**
 
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
@@ -189,20 +195,22 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-breaking-the-myth-of-color-standards-z32x-reviewed/"><u>[New] Breaking the Myth of Color Standards Z32X Reviewed</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-social-media-gurus-handbook-accelerating-your-path-to-viral-success-on-instagram/"><u>[New] In 2024, The Social Media Guru's Handbook Accelerating Your Path to Viral Success on Instagram</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-leading-you-to-8-superior-zero-cost-3d-videos-solutions-for-2024/"><u>[New] Leading You to 8 Superior, Zero-Cost 3D Videos Solutions for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-accelerating-your-ascension-to-instagram-a-list-status-our-fast-track-guide-of-15-must-try-strategies/"><u>[Updated] 2024 Approved Accelerating Your Ascension to Instagram A-List Status Our Fast Track Guide of 15 Must-Try Strategies</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-rekindling-relics-of-facebook-tales-step-by-device-step/"><u>[Updated] 2024 Approved Rekindling Relics of Facebook Tales Step by Device Step</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-transforming-mundane-footage-into-spectaculair-slow-mo-instareel/"><u>[Updated] 2024 Approved Transforming Mundane Footage Into Spectaculair Slow Mo InstaReel</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-automated-opener-your-srt-files-windows-and-mac/"><u>[Updated] Automated Opener Your SRT Files, Windows & Mac</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-debating-on-the-significance-of-truthfulness-in-selfies/"><u>[Updated] Debating on the Significance of Truthfulness in Selfies</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-guide-to-premium-free-online-screen-recorders-for-2024/"><u>[Updated] Guide to Premium Free Online Screen Recorders for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-how-to-manual-for-creating-an-inclusive-and-productive-skype-chat-room-accessible-by-both-windows-and-mac-users/"><u>[Updated] In 2024, How-To Manual for Creating an Inclusive and Productive Skype Chat Room Accessible by Both Windows & Mac Users</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-mastering-iphone-photo-blurring-4-techniques-explored-for-2024/"><u>[Updated] Mastering iPhone Photo Blurring 4 Techniques Explored for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/from-parchment-to-paperbacks-the-quintessential-quest-for-classics-for-2024/"><u>From Parchment to Paperbacks The Quintessential Quest for Classics for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/image-improvement-masterclass-top-apps-decoded-for-2024/"><u>Image Improvement Masterclass - Top Apps Decoded for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-simplified-approaches-to-insta-photovideo-resharing/"><u>In 2024, Simplified Approaches to Insta Photo/Video Resharing</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/market-mastery-top-20-words-for-effective-advertising-for-2024/"><u>Market Mastery Top 20 Words for Effective Advertising for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-frame-perfection-top-10-tools-to-edge-your-instagram-content/"><u>[New] 2024 Approved Frame Perfection Top 10 Tools to Edge Your Instagram Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-sharpen-aesthetic-focus-learning-border-techniques-for-insta-videos/"><u>[New] 2024 Approved Sharpen Aesthetic Focus Learning Border Techniques for Insta-Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-stop-automated-post-proposals-on-instagram/"><u>[New] 2024 Approved Stop Automated Post Proposals on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-essential-forgotten-tips-for-instagram-proficiency-for-2024/"><u>[New] Essential, Forgotten Tips for Instagram Proficiency for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rivacy-first-sending-your-personal-youtube-link-via-google/"><u>[New] Privacy First Sending Your Personal YouTube Link via Google</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-easy-guide-to-see-youtube-liked-comments/"><u>[Updated] In 2024, Easy Guide to See YouTube Liked Comments</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-finding-the-highlighted-online-discourse/"><u>[Updated] In 2024, Finding the Highlighted Online Discourse</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-to-embrace-or-not-the-itop-screen-recorder-dilemran/"><u>[Updated] In 2024, To Embrace or Not The ITop Screen Recorder Dilemran</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-sound-effects-voice-customization-on-instagram/"><u>[Updated] Mastering Sound Effects Voice Customization on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-social-scrutiny-who-felt-the-glance-on-your-insta-image-in-2024/"><u>[Updated] Social Scrutiny Who Felt the Glance on Your Insta Image, In 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-top-5-ios-podcast-apps-your-ultimate-listing/"><u>[Updated] Top 5 iOS Podcast Apps Your Ultimate Listing</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-expert-tips-for-effortless-screen-recording-on-android/"><u>2024 Approved Expert Tips for Effortless Screen Recording on Android</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-top-10-economical-pc-screen-recorders-compared/"><u>2024 Approved Top 10 Economical PC Screen Recorders Compared</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/best-5-web-video-recorders-for-2024/"><u>Best 5 Web Video Recorders for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/going-back-in-space-and-time-rewind-your-instagram-video-for-2024/"><u>Going Back in Space and Time Rewind Your Instagram Video for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-free-end-credits-maker-the-1-video-closers-guide/"><u>In 2024, Free End Credits Maker - The #1 Video Closers Guide!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-snapback-success-the-secrets-to-loops-on-instagram/"><u>In 2024, Snapback Success The Secrets to Loops on Instagram</u></a></li>
 </ul></div>
 
