@@ -1,7 +1,7 @@
 ---
 title: Device Reactivated - All Clear
-date: 2024-10-31T16:09:42.736Z
-updated: 2024-11-02T16:01:55.239Z
+date: 2024-11-03T16:20:51.818Z
+updated: 2024-11-07T17:00:27.303Z
 tags:
   - win11
   - win10
@@ -34,30 +34,24 @@ Code 22 occurs usually because your device is manually disabled. Then manually e
 2. Type **devmgmt.msc** and press**Enter**  to access Device Manager.  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e3f572c04.png)
 3. Expand the category that your device belongs to, right-click your device and select**Enable device** .  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e536637bc.jpg)
 If the problem persists, try the next fix.
-
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ---
 
@@ -72,14 +66,14 @@ Driver errors like Code 22 can often be fixed by updating device drivers. You ca
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecfc678b7.jpg)
 
----
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+---
 
 ### Fix 3: Uninstall your device driver
 
@@ -92,16 +86,10 @@ Uninstalling your device driver is another solution you can try to fix **This de
 ---
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Reset the BIOS settings
@@ -123,14 +111,14 @@ If the above steps don’t work for you, to fix driver error code 22, you can tr
 5. Remember which direction the battery is installed. Usually the engraved side, the positive side, is face up. Then, remove the CMOS battery from the main board (most can simply be popped out).![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c58fd6ffe.jpg)
 6. Wait for about one or two minutes for the CMOS to reset itself to its defaults.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 7. Place the battery back in the housing, seal your computer’s case, and start your computer. Your BIOS should have reset itself, re-enabling your graphics device in the process.![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c68d02c94.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ---
 
@@ -153,19 +141,18 @@ Please do reply if you got your problem fixed.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-dissecting-imovies-cropping-algorithm/"><u>[New] 2024 Approved Dissecting iMovie's Cropping Algorithm</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-list-of-social-media-analytics-for-instagram-excellence/"><u>[New] 2024 Approved The Ultimate List of Social Media Analytics for Instagram Excellence</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-photoshop-grading-made-simple-for-everyone-for-2024/"><u>[New] Photoshop Grading Made Simple for Everyone for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-unlock-your-view-best-bargain-cam-recording-apps/"><u>[New] Unlock Your View Best Bargain Cam Recording Apps</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-art-of-instagram-filter-selection-tips-for-the-year-2023/"><u>[Updated] 2024 Approved The Art of Instagram Filter Selection Tips for the Year 2023</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-revolutionize-your-brand-presence-on-igtv-with-these-top-10-strategies/"><u>[Updated] In 2024, Revolutionize Your Brand Presence on IGTV with These Top 10 Strategies</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unlocking-hidden-potential-with-instagrams-inquiry-emoji/"><u>[Updated] In 2024, Unlocking Hidden Potential with Instagram’s Inquiry Emoji</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-masterful-techniques-to-alter-facial-gender-in-instagram-snapchat-and-facebook-pictures/"><u>[Updated] Masterful Techniques to Alter Facial Gender in Instagram, Snapchat & Facebook Pictures</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-ideal-12-vlogging-cameras-with-seamless-screen-control-for-2024/"><u>[Updated] Unveiling the Ideal 12 Vlogging Cameras with Seamless Screen Control for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/fixing-windows-crashes-due-to-0x0000011b-errors/"><u>Fixing Windows Crashes Due to 0X0000011B Errors</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-oneplus-ace-3-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On OnePlus Ace 3? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-unlocking-user-preferences-with-instagrams-real-time-feedback/"><u>In 2024, Unlocking User Preferences with Instagram's Real-Time Feedback</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2550560-9781937006501-moments-of-mindfulness/"><u>Moments of Mindfulness | Free Book</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-instructions-for-installing-the-latest-logitech-g502-gaming-mouse-software/"><u>Step-by-Step Instructions for Installing the Latest Logitech G502 Gaming Mouse Software</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-decoding-youtubes-clandestine-content-with-orderliness/"><u>[New] 2024 Approved Decoding YouTube's Clandestine Content with Orderliness</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-comparative-review-top-cloud-services-prices/"><u>[New] Comparative Review Top Cloud Services' Prices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-getting-more-from-instagram-videos-and-photos/"><u>[New] Getting More From Instagram Videos & Photos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-ultimate-compendium-of-top-rated-instagram-analytics-applications/"><u>[New] In 2024, The Ultimate Compendium of Top-Rated Instagram Analytics Applications</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/10plus-best-instagram-video-editor-for-pc-online-android/"><u>10+ Best Instagram Video Editor for PC, Online, Android</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-counterclockwise-playback-in-instagram-videos/"><u>2024 Approved Counterclockwise Playback in Instagram Videos</u></a></li>
+<li><a href="https://windows11.techidaily.com/6-ways-to-fix-minecrafts-exit-code-1-on-windows/"><u>6 Ways to Fix Minecraft's Exit Code: 1 on Windows</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/creating-captivating-loops-for-instagram-posts-for-2024/"><u>Creating Captivating Loops for Instagram Posts for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/detecting-inauthentic-connections-identifying-false-friendship-bids-online/"><u>Detecting Inauthentic Connections: Identifying False Friendship Bids Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-hidden-potential-enhance-your-photos-using-preview-on-macos-efficiently/"><u>Discover the Hidden Potential: Enhance Your Photos Using Preview on macOS Efficiently</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-to-fixing-errors-when-unable-to-locate-physxloaderdll-on-your-pc/"><u>Guide to Fixing Errors When Unable to Locate physxloader.dll on Your PC</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-panzoid-framework-assemblage/"><u>In 2024, Ultimate Panzoid Framework Assemblage</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-the-fastest-way-to-rotate-a-video-tips-and-tricks/"><u>New 2024 Approved The Fastest Way to Rotate a Video Tips and Tricks</u></a></li>
 </ul></div>
 
