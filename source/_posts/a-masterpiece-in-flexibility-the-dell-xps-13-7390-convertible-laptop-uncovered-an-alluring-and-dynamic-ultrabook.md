@@ -1,7 +1,7 @@
 ---
 title: "A Masterpiece in Flexibility - The Dell XPS 13 7390 Convertible Laptop Uncovered: An Alluring & Dynamic Ultrabook"
-date: 2024-11-03T21:30:49.459Z
-updated: 2024-11-07T16:48:26.653Z
+date: 2024-11-15T23:47:31.051Z
+updated: 2024-11-19T18:54:25.328Z
 categories:
   - BestProducts
 description: "This Article Describes A Masterpiece in Flexibility - The Dell XPS 13 7390 Convertible Laptop Uncovered: An Alluring & Dynamic Ultrabook"
@@ -40,6 +40,13 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
@@ -74,20 +81,13 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/radDS_2IRuzjTlZxUS5og2a3PIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Top_04-b051e3660efc406ab97f92df654d3762.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Amazingly light, but not wholly convincing**
 
@@ -111,6 +111,13 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Just follow the directions**
@@ -129,19 +136,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Solid power for everyday tasks**
 
  With an 8th-gen Intel Core i5-8250U at 1.6Ghz and 8GB RAM onboard, the 2018 LG Gram runs on the same chipset as the Surface Laptop 2 and Dell XPS 13\. It provides solid power for everyday tasks, and we didn't run into any noticeable slowdown while moving around Windows 10, surfing the web, typing up documents, and loading up apps. It's not a powerhouse CPU, however, and creative professionals looking for a machine for photo or video editing, for example, will surely want more processing power and RAM to play with.
@@ -153,6 +147,13 @@ Lifewire / Andrew Hayward
  With an integrated Intel Graphics UHD 620 GPU inside, the LG Gram isn't built for intense gaming needs. However, it does OK with modern 3D games at low-to-medium settings. As has been the case with other laptops we've tried, battle royale shooter smash Fortnite defaulted to settings that looked nice but led to a very choppy frame rate in action, and we ultimately had to turn off all effects and hit low settings on nearly everything to make the game run smoothly. Switching to Rocket League, the car-soccer game ran decently with mid-to-high settings, but again we trimmed down a few settings for a speedier frame rate.
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: It makes an impression**
 
@@ -166,13 +167,6 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Battery: Seriously amazing**
@@ -184,16 +178,10 @@ Lifewire / Andrew Hayward
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Hello, Windows (but no Windows Hello)**
@@ -203,10 +191,10 @@ Lifewire / Andrew Hayward
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
@@ -265,24 +253,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mute-instagrams-personalized-posts/"><u>[New] 2024 Approved Mute Instagram's Personalized Posts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-anonymity-in-action-insta-stories-guide/"><u>[New] Anonymity in Action Insta Stories Guide</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-leverage-likes-and-brands-to-boost-ig-income/"><u>[New] Leverage Likes and Brands to Boost IG Income</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-video-preservation-direct-and-indirect-approaches/"><u>[Updated] Instagram Video Preservation Direct & Indirect Approaches</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-social-media-sensation-making-your-vids-pop-for-2024/"><u>[Updated] Social Media Sensation Making Your Vids Pop for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-step-by-step-guide-to-high-quality-zoom-recordings-for-podcasters/"><u>[Updated] Step-by-Step Guide to High-Quality Zoom Recordings for Podcasters</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-streamline-content-sharing-a-complete-instagram-video-upload-guide-from-desktop-for-2024/"><u>[Updated] Streamline Content Sharing A Complete Instagram Video Upload Guide From Desktop for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-core-interface-youtube-studio-explained/"><u>[Updated] The Core Interface YouTube Studio Explained</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-diaspora-user-visualization-measurements-format-length/"><u>2024 Approved Diaspora User Visualization Measurements, Format, Length</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/flying-high-with-the-blade-blh4100-a-thrilling-rtf-rc-chopper-review/"><u>Flying High with the Blade BLH4100 - A Thrilling RTF RC Chopper Review</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Huawei Nova Y91? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagram-archive-essentials-top-15-downloader-tools/"><u>In 2024, Instagram Archive Essentials Top 15 Downloader Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-beat-of-instagram-music-strategies/"><u>In 2024, The Beat of Instagram Music Strategies</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-best-10-chinese-video-to-english-translator/"><u>New In 2024, Best 10 Chinese Video to English Translator</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/pioneers-in-post-production-top-tools-for-instagram-content-creators-for-2024/"><u>Pioneers in Post-Production Top Tools for Instagram Content Creators for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1721422530815-shield-up-dont-surrenderflee-googles-bard-app/"><u>Shield Up, Don't Surrender—Flee Google's Bard App</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/step-by-step-reposting-on-instagram/"><u>Step-by-Step Reposting on Instagram</u></a></li>
-<li><a href="https://windows11.techidaily.com/streamline-your-screen-settings-with-these-10-win-11-tricks/"><u>Streamline Your Screen Settings with These 10 Win 11 Tricks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-becoming-an-instagram-reel-prodigy/"><u>[New] Becoming an Instagram Reel Prodigy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rom-videographer-to-income-generator-on-youtube/"><u>[New] From Videographer to Income Generator on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-get-the-most-out-of-instagram-photos-with-these-apps/"><u>[New] Get the Most Out of Instagram Photos with These Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-filter-mastery-essential-skills-for-2024/"><u>[New] Instagram Filter Mastery - Essential Skills for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-integrating-seamless-multimedia-elements-on-your-mac-screen/"><u>[New] Integrating Seamless Multimedia Elements on Your Mac Screen</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-6-must-have-apps-to-elevate-your-instagram-video-content-for-2024/"><u>[New] Top 6 Must-Have Apps to Elevate Your Instagram Video Content for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-uncomplicated-methods-sharing-igtv-in-stories/"><u>[New] Uncomplicated Methods Sharing IGTV in Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-analytics-tools-for-an-improved-tracking-of-your-instagram-metrics/"><u>[Updated] Analytics Tools For an Improved Tracking of Your Instagram Metrics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-effectively-share-youtube-links-on-instagrams-story-feature/"><u>[Updated] In 2024, How to Effectively Share YouTube Links on Instagram's Story Feature</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ultimate-guide-to-selecting-best-windows-screen-capture-tools/"><u>[Updated] In 2024, Ultimate Guide to Selecting Best Windows Screen Capture Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/10-next-gen-mobile-solutions-beyond-openais-gpt/"><u>10 Next-Gen Mobile Solutions Beyond OpenAI's GPT</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-creative-twists-transformative-text-in-imagery/"><u>2024 Approved Unveiling Creative Twists Transformative Text in Imagery</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-guide-on-unlocking-iphone-12-with-a-broken-screen-by-drfone-ios/"><u>Complete Guide on Unlocking iPhone 12 with a Broken Screen?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-camera-screen-to-insta-story-editing-high-aspect-video-with-fcpx/"><u>From Camera Screen to Insta Story Editing High Aspect Video with FCPX</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-securely-archive-device-drivers-in-windows-11-and-10-environments/"><u>How to Securely Archive Device Drivers in Windows 11 and 10 Environments</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-gionee-f3-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Gionee F3 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/maximize-reach-with-effective-igtv-video-posts/"><u>Maximize Reach with Effective IGTV Video Posts</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/quick-fixes-for-when-your-device-wont-boot-up-with-pacific-drive/"><u>Quick Fixes for When Your Device Won't Boot Up with Pacific Drive</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unlocking-the-power-of-memes-a-guide-to-creating-funny-videos-for-2024/"><u>Unlocking the Power of Memes A Guide to Creating Funny Videos for 2024</u></a></li>
 </ul></div>
 

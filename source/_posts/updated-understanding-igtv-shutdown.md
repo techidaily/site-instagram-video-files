@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Understanding IGTV Shutdown"
-date: 2024-10-31T17:17:14.689Z
-updated: 2024-11-07T23:42:31.282Z
+date: 2024-11-16T21:44:38.168Z
+updated: 2024-11-19T20:36:31.168Z
 tags:
   - ai video
   - ai instagram
@@ -65,13 +65,6 @@ Follow @Shanoon Cox
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -87,10 +80,10 @@ Follow @Shanoon Cox
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -111,6 +104,13 @@ Follow @Shanoon Cox
 
  Select the **Push Notifications option**, and then scroll all the way down to the **IGTV Video Updates section** of the Push Notifications menu. Tap on the **Off** option, and you’re done, you’ll no longer receive notifications from IGTV. If at any point you change your mind and you decide that you want to receive notifications from IGTV you can return to the Push Notifications menu and select the **From People I Follow** or **From Everyone** option in the IGTV Video Update section of the Push Notifications menu.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide IGTV Videos?
 
  At the moment this feature is only available on iPhones, while users who access IGTV from Android devices only have the option to report a video they find offensive or don’t like for any other reason. Once you open IGTV on your iPhone, you will be able to see the videos the platform suggests you should watch in **the For You** section. When you come across an IGTV video you no longer want to see, simply **swipe down**, and then **tap on the three-dot icon** that is located next to the Like, Comment and Share buttons.
@@ -126,10 +126,16 @@ Follow @Shanoon Cox
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,10 +151,10 @@ Follow @Shanoon Cox
  There is nothing more frustrating than receiving notifications about posts on social media you have zero interest in. Fortunately for all of us, turning off notifications is a quick and simple process that can be completed in just a few clicks or taps. IGTV, Instagram’s latest mobile video platform is no exception, and if you decide to use it, you will occasionally stumble upon the content you don’t necessarily like and you will receive notifications about posts that really have nothing to do with your interests. In case you are looking for a way to get rid of IGTV suggestions, you’ve come to the right place because in this article we are going to show you how to hide videos you don’t want to see and how to switch off notifications.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Turn Off IGTV Notifications on Instagram
@@ -198,20 +204,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-inverted-footage-whats-behind-instagrams-peculiarity/"><u>[New] 2024 Approved Inverted Footage What's Behind Instagram's Peculiarity?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-concealed-aspects-understanding-the-unique-stories-of-followers/"><u>[New] In 2024, The Concealed Aspects Understanding the Unique Stories of Followers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-instacrafts-seamless-video-assemblies-on-androidios-for-2024/"><u>[New] InstaCrafts Seamless Video Assemblies on Android/iOS for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-10-igtv-talents-ready-to-take-off/"><u>[Updated] 10 IGTV Talents Ready to Take Off</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-tune-and-trends-a-guide-to-sound-in-social-media-snapshots/"><u>[Updated] 2024 Approved Tune & Trends A Guide to Sound in Social Media Snapshots</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unveiling-the-power-of-images-in-instagram-movies/"><u>[Updated] 2024 Approved Unveiling the Power of Images in Instagram Movies</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-ace-all-round-strategies-maximizing-efficiency-in-acquiring-and-storing-vimeo-videos/"><u>[Updated] Ace All-Round Strategies Maximizing Efficiency in Acquiring & Storing Vimeo Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-a-comparative-analysis-androids-finest-video-downloaders/"><u>[Updated] In 2024, A Comparative Analysis Android's Finest Video Downloaders</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-how-to-upside-down-your-instagram-videos-complete-manual/"><u>[Updated] In 2024, How to Upside Down Your Instagram Videos [Complete Manual]</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quick-ig-post-featuring-podcast-insight/"><u>[Updated] Quick IG Post Featuring Podcast Insight</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-14-plus-without-passcode-now-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 14 Plus Without Passcode Now</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-stealthy-facebook-video-navigator/"><u>In 2024, Stealthy Facebook Video Navigator</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/is-your-system-delivering-genuine-dolby-atmos-performance/"><u>Is Your System Delivering Genuine Dolby Atmos Performance?</u></a></li>
-<li><a href="https://driver-error.techidaily.com/repairing-the-loading-error-of-enex-in-win11-environment/"><u>Repairing the Loading Error of eNEX in Win11 Environment</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ess-transitions-for-youtube-videos-in-adobe-premiere-for-2024/"><u>Seamless Transitions for YouTube Videos in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-hastyhit-freezevidsnapshot/"><u>[New] 2024 Approved HastyHit FreezeVidSnapshot</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-harnessing-instagrams-power-for-financial-gain/"><u>[New] Harnessing Instagram's Power for Financial Gain</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-decelerating-action-the-ultimate-guide-to-ig-reels-slow-motion/"><u>[Updated] 2024 Approved Decelerating Action The Ultimate Guide to IG Reels’ Slow Motion</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-voice-log-retrieval-content-scrutiny/"><u>[Updated] 2024 Approved Voice Log Retrieval, Content Scrutiny</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-elevate-your-storytelling-borders-for-instagram-videos/"><u>[Updated] Elevate Your Storytelling Borders for Instagram Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-perfect-photos-post-edit-top-6-iphone-techniques-to-tidy-up-images/"><u>[Updated] In 2024, Perfect Photos Post-Edit Top 6 iPhone Techniques to Tidy Up Images</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-insta-marketing-mastery-crafting-viral-video-campaigns-on-social-media-for-2024/"><u>[Updated] Insta-Marketing Mastery Crafting Viral Video Campaigns on Social Media for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/guide-to-mass-downloading-a-complete-look-at-tiktok-archives/"><u>Guide to Mass Downloading A Complete Look at TikTok Archives</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-fixes-for-stuck-instagram-videos/"><u>Mastering Fixes for Stuck Instagram Videos</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/quick-fixes-for-converting-msv-audio-files-into-mp3-format/"><u>Quick Fixes for Converting MSV Audio Files Into MP3 Format</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722960236975-step-by-step-guide-to-updating-your-amd-vega-driver-boosting-games-like-never-before/"><u>Step-by-Step Guide to Updating Your AMD Vega Driver - Boosting Games Like Never Before</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/ten-simple-steps-to-acquire-igtv-media-for-2024/"><u>Ten Simple Steps to Acquire IGTV Media for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/the-ultimate-list-of-android-password-security-software-keeping-your-credentials-safe-and-organized/"><u>The Ultimate List of Android Password Security Software: Keeping Your Credentials Safe and Organized</u></a></li>
 </ul></div>
 
