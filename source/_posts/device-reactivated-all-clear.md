@@ -1,7 +1,7 @@
 ---
 title: Device Reactivated - All Clear
-date: 2024-11-15T16:05:00.359Z
-updated: 2024-11-19T22:34:43.715Z
+date: 2024-11-22T19:03:08.261Z
+updated: 2024-11-28T17:32:24.922Z
 tags:
   - win11
   - win10
@@ -33,13 +33,6 @@ Code 22 occurs usually because your device is manually disabled. Then manually e
 1. On your keyboard, press the**Windows** ![](https://images.drivereasy.com/wp-content/uploads/2018/08/img_5b7b8ac86a6f5.png) key and**R** at the same time to open the Run box.
 2. Type **devmgmt.msc** and press**Enter**  to access Device Manager.  
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e3f572c04.png)
 3. Expand the category that your device belongs to, right-click your device and select**Enable device** .  
 
@@ -58,19 +51,13 @@ Driver errors like Code 22 can often be fixed by updating device drivers. You ca
 3. Click the **Update** button next to a flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).Or click **Update All** to automatically download and install the correct version of **_all_** the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecfc678b7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ---
@@ -82,13 +69,6 @@ Uninstalling your device driver is another solution you can try to fix **This de
 1. In Device Manager, right-click your device and select**Uninstall device** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ea2541557.jpg)
 2. Restart your computer, and Windows will automatically reinstall the driver for your device.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ---
 
@@ -108,23 +88,22 @@ If the above steps don’t work for you, to fix driver error code 22, you can tr
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c4a50b434.jpg)  
  Example – CMOS battery on a laptop
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. Remember which direction the battery is installed. Usually the engraved side, the positive side, is face up. Then, remove the CMOS battery from the main board (most can simply be popped out).![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c58fd6ffe.jpg)
 6. Wait for about one or two minutes for the CMOS to reset itself to its defaults.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 7. Place the battery back in the housing, seal your computer’s case, and start your computer. Your BIOS should have reset itself, re-enabling your graphics device in the process.![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c68d02c94.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ---
 
@@ -147,16 +126,20 @@ Please do reply if you got your problem fixed.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagram-video-timing-what-you-need-to-know/"><u>[New] 2024 Approved Instagram Video Timing What You Need To Know</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-revealing-10-hidden-viewers-of-stories/"><u>[New] Revealing 10 Hidden Viewers of Stories</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-crafting-captivating-reels-syncing-audio-to-images-for-2024/"><u>[Updated] Crafting Captivating Reels Syncing Audio to Images for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-essential-tips-for-effective-instagram-video-conversations/"><u>[Updated] Essential Tips for Effective Instagram Video Conversations</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-quick-guide-to-capturing-moments-during-google-meets/"><u>[Updated] In 2024, Quick Guide to Capturing Moments During Google Meets</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-essentials-of-image-augmentation-inserting-text-into-images-for-pc-and-mac-users/"><u>[Updated] In 2024, The Essentials of Image Augmentation Inserting Text Into Images for PC & Mac Users</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-qanda-beyond-basic-usage-for-2024/"><u>[Updated] Instagram Q&A Beyond Basic Usage for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlock-the-secrets-of-managing-your-private-reels-on-instagram/"><u>Unlock the Secrets of Managing Your Private Reels on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-powering-up-your-action-footage-one-gadget-at-a-time/"><u>[New] 2024 Approved Powering Up Your Action Footage, One Gadget at a Time</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-affordable-cloud-vaulting-mass-file-saving-made-cheap-for-2024/"><u>[New] Affordable Cloud Vaulting Mass File Saving Made Cheap for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-screen-recorder-alternatives-in-depth-review-and-top-picks/"><u>[New] In 2024, Screen Recorder Alternatives In-Depth Review & Top Picks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-insiders-guide-to-musical-enhancements-on-ig-for-2024/"><u>[New] The Insider's Guide to Musical Enhancements on IG for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-evasion-tactics-for-watching-instagram-stories-unattached-to-your-account/"><u>[Updated] 2024 Approved Evasion Tactics for Watching Instagram Stories Unattached to Your Account</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-achieve-more-money-from-your-short-videos-on-youtube/"><u>[Updated] Achieve More Money From Your Short Videos on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elevate-your-social-media-presence-insta-videography/"><u>[Updated] In 2024, Elevate Your Social Media Presence Insta-Videography</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-infusing-vibrancy-into-stories-a-guide-to-choosing-the-right-emojis/"><u>[Updated] In 2024, Infusing Vibrancy Into Stories A Guide to Choosing the Right Emojis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-rapid-instagram-video-viewing-techniques/"><u>[Updated] In 2024, Rapid Instagram Video Viewing Techniques</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-maximize-style-with-premium-border-options-for-ig-posts/"><u>[Updated] Maximize Style with Premium Border Options for IG Posts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ranked-top-picks-for-free-skype-tones/"><u>[Updated] Ranked Top Picks for Free Skype Tones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-secrets-unlocked-advanced-techniques-to-sculpt-your-igtv-content-size/"><u>[Updated] Secrets Unlocked Advanced Techniques to Sculpt Your IGTV Content Size</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-videographers-minecraft-6-proven-ways-to-document-gameplay/"><u>[Updated] The Videographer's Minecraft 6 Proven Ways to Document Gameplay</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725289668327-winx-dvd-ripper-platinum-dvd-dvd/"><u>【公式】WinX DVD Ripper Platinum: 専用DVDリッパープラチナムを無料でダウンロード - 現在も進化し続ける高性能DVDコピーソフト</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-calculating-earnings-ad-revenues-in-the-world-of-youtube/"><u>In 2024, Calculating Earnings Ad Revenues in the World of YouTube?</u></a></li>
 </ul></div>
 

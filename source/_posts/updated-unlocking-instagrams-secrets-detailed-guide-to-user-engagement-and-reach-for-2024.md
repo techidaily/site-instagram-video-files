@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Instagram's Secrets  Detailed Guide to User Engagement and Reach for 2024\""
-date: 2024-11-17T20:43:03.530Z
-updated: 2024-11-20T00:41:40.180Z
+date: 2024-11-21T16:33:05.363Z
+updated: 2024-11-28T20:48:22.024Z
 tags:
   - ai video
   - ai instagram
@@ -35,6 +35,10 @@ In this article, we are explaining how to analyze Instagram insights to enhance 
 * [**Part4: Notes you should know**](#part4)
 * [**Part5: Alternatives to Instagram insights**](#part5)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to access Instagram Insights?
 
 Instagram Insights being a totally free tool to be used on your phone requires a business account to work. The first and foremost thing you need to do is converting the regular Instagram account to a business account. When you convert to a business account, you can see Instagram Insights for content posted after that.
@@ -52,13 +56,6 @@ Impressions, profile visits, and reach can be visible with insights and can be t
 * Choose particular promotions/posts/stories to get their insights.
 
 ![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Access insights from post
 
@@ -96,13 +93,6 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 **Others** – posts shared through DM, saved, mentioned, tagged, notifications from tagged/mentioned posts, and posts on ‘Following’ tab notifications
 
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Filtering post data based on metric, timeframe, and content type
 
@@ -147,6 +137,10 @@ A post can be a single video/photo or an album on Instagram. The Instagram Insig
 Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagram analytics segment is fueled with optimization data, for determining how to create and when to share posts. It has engagement rate graphs, hashtag analytics, etc. You get to know the most interactive post and how it influences a post’s popularity.
 
 ![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
 
@@ -213,6 +207,10 @@ Automatic chronological sorting of Stories helps to understand the pattern of co
 * Open ‘Stories’, and swipe up the post.
 * Click the vertical-bar icon and view your Story insights.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: View Posts Data
 
 You can check several posts together or dive deeper into the metrics for post specific information. Here we have explained both of them.
@@ -236,13 +234,6 @@ The ‘Discovery’ section’s first statistics denotes percentage of non-follo
 **Others** – posts shared through DM, saved, mentioned, tagged, notifications from tagged/mentioned posts, and posts on ‘Following’ tab notifications
 
 ![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Filtering post data based on metric, timeframe, and content type
 
@@ -283,10 +274,7 @@ A post can be a single video/photo or an album on Instagram. The Instagram Insig
 ## Part 5: Alternatives to Instagram insights
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. [Keyhole](https://keyhole.co/instagram-analytics)
@@ -302,10 +290,7 @@ Squarelovin is an in-depth Instagram analytics tool that shows the metrics for r
 ![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -315,6 +300,151 @@ When you have a clear idea about Instagram Insights, achieving the best out of y
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+When it comes to online marketing, Instagram plays a key role for product based organizations as many marketers prefer Instagram as a prominent influencer marketing platform. So, [Instagram Insights](https://www.facebook.com/help/1533933820244654) is a necessity for Instagram data analysis. Without that it’s tough to determine your audience and growth point. Well! Does all this making you confused or clueless? Worry not! We have a solution for that as well.
+
+In this article, we are explaining how to analyze Instagram insights to enhance your [brand marketing](https://tools.techidaily.com/wondershare/filmora/download/). Keep reading for more!
+
+* [**Part1: How to access Instagram Insights**](#part1)
+* [**Part2: View Posts Data**](#part2)
+* [**Part3: What does stories data mean**](#part3)
+* [**Part4: Notes you should know**](#part4)
+* [**Part5: Alternatives to Instagram insights**](#part5)
+
+## Part 1: How to access Instagram Insights?
+
+Instagram Insights being a totally free tool to be used on your phone requires a business account to work. The first and foremost thing you need to do is converting the regular Instagram account to a business account. When you convert to a business account, you can see Instagram Insights for content posted after that.
+
+Insights from Instagram enables you to view your content, follower demographics and actions. You can measure campaigns, compare content, and see the performance of individual posts. Total number of posts on your account and the addition in the previous week can also viewed. You can view websites clicks along with call-to-action button clicks i.e. email, call, and direction.
+
+Here is how to access Instagram Insights –
+
+### Access insights from business profile
+
+Impressions, profile visits, and reach can be visible with insights and can be tracked weekly. Followers’ most active time during the day, on your business profile can be traced to enhance your marketing campaign.
+
+* Log into your business profile and click the 4 vertical-bar-like icon from the top-right corner.
+* Now, you get an overall view of the way people interact with your business profile.
+* Choose particular promotions/posts/stories to get their insights.
+
+![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Access insights from post
+
+On your business profile, click a post to view insights. A right tilted arrow on the bottom-right denotes a promoted post.
+
+On a promoted post click ‘Original’ to view its Instagram Insights, and tap ‘Promotion’ for viewing insights.
+
+### Access insights from story
+
+Automatic chronological sorting of Stories helps to understand the pattern of content engagement. Instagram Insights expire after 14 days of posting Story. But the Story is active only for 24 hours.
+
+* Open ‘Stories’, and swipe up the post.
+* Click the vertical-bar icon and view your Story insights.
+
+## Part 2: View Posts Data
+
+You can check several posts together or dive deeper into the metrics for post specific information. Here we have explained both of them.
+
+### View metrics for Individual posts
+
+With the ‘View Insight’ button you can know the details about any post. Various other metrics like likes, comments, and saves are displayed on the top. The ‘Actions’ segment shows user response. Here is what Instagram tracks – **Profile Visits, Website Clicks, Follows**
+
+The ‘Discovery’ section’s first statistics denotes percentage of non-followers who found your post. Next to that, the post’s reach and impressions. The source of those impressions are people –
+
+**Home** – who got the post on their feed
+
+**Profile** – who found it on your profile
+
+**Search & Explore** – who got your post from ‘Explore’ feed or through keyword search
+
+**Hashtags** – who got your post from hashtag search
+
+**Location** – who saw the post from location feed
+
+**Others** – posts shared through DM, saved, mentioned, tagged, notifications from tagged/mentioned posts, and posts on ‘Following’ tab notifications
+
+![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Filtering post data based on metric, timeframe, and content type
+
+Three most recent posts are visible on the Instagram Insight’s ‘Posts’ section. This section by default displays the cumulative number of impressions for all the posts from the previous year.
+
+You can segregate the Instagram Insight data by clicking the blue links from the top. Hit any filter among Content type/measurement (saved, impressions, likes, comments, engagement, and reach)/time. These filters help you pick relevant information to determine campaigns, goals, and top performing content.
+
+You can measure goals for a certain period through impressions and reach, engagement, ratio of engagement to reach, best and worst performing content types. Campaign goals are measured by timeframe.
+
+## Part 3: What does stories data mean
+
+Only ‘Stories’ after subscribing to a business account will be offered insights with. Live content doesn’t have insights as of now. Here is what a Story contains –
+
+**Reach** – unique user numbers that viewed your Story
+
+**Impressions** – total views for your Story
+
+**Taps back** – how many times a user tapped to view your previous Story
+
+**Taps forward** – number of times a user taps to skip the following Story
+
+**Swipe away** – how many times someone skipped to the next person’s Story
+
+**Replies** – how many times people replied to your Story through ‘Send Message’ option
+
+**Exits** \- how many times people exit Stories to see their feed
+
+## Part 4: Notes you should know
+
+### The difference between impressions and reach
+
+Impressions are a number of times a post has been viewed, whereas reach explains the unique views on your post. One account’s multiple views are taken as a single reach but multiple impressions.
+
+### Multiple photos or videos will be counted as one
+
+A post can be a single video/photo or an album on Instagram. The Instagram Insights takes the entire album post as a single entity and impressions and reach is determined based on that.
+
+## Part 5: Alternatives to Instagram insights
+
+### 1. [Keyhole](https://keyhole.co/instagram-analytics)
+
+Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagram analytics segment is fueled with optimization data, for determining how to create and when to share posts. It has engagement rate graphs, hashtag analytics, etc. You get to know the most interactive post and how it influences a post’s popularity.
+
+![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
+
+### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
+
+Squarelovin is an in-depth Instagram analytics tool that shows the metrics for recent posts’ growth. Monthly analysis, posts’ history fragmented to year, month, day, and hour as well as deep insights on communities’ interests and preferences is possible. You get to know what fuels engagement, the best and worst time to post.
+
+![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
+
+## Conclusion
+
+When you have a clear idea about Instagram Insights, achieving the best out of your marketing campaign is a smooth sail. Put your heart into it and see your brand soar higher with Instagram Insights. If you want to edit Instagram video, Filmora is a powerful editor with Instagram editing tools. Try it out!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -367,6 +497,10 @@ Automatic chronological sorting of Stories helps to understand the pattern of co
 * Open ‘Stories’, and swipe up the post.
 * Click the vertical-bar icon and view your Story insights.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: View Posts Data
 
 You can check several posts together or dive deeper into the metrics for post specific information. Here we have explained both of them.
@@ -427,158 +561,9 @@ Impressions are a number of times a post has been viewed, whereas reach explains
 
 A post can be a single video/photo or an album on Instagram. The Instagram Insights takes the entire album post as a single entity and impressions and reach is determined based on that.
 
-## Part 5: Alternatives to Instagram insights
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-### 1. [Keyhole](https://keyhole.co/instagram-analytics)
-
-Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagram analytics segment is fueled with optimization data, for determining how to create and when to share posts. It has engagement rate graphs, hashtag analytics, etc. You get to know the most interactive post and how it influences a post’s popularity.
-
-![keyhole](https://images.wondershare.com/filmora/article-images/keyhole.JPG)
-
-### 2. [Squarelovin](https://squarelovin.com/business/home/instagram-insights/)
-
-Squarelovin is an in-depth Instagram analytics tool that shows the metrics for recent posts’ growth. Monthly analysis, posts’ history fragmented to year, month, day, and hour as well as deep insights on communities’ interests and preferences is possible. You get to know what fuels engagement, the best and worst time to post.
-
-![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
-
-## Conclusion
-
-When you have a clear idea about Instagram Insights, achieving the best out of your marketing campaign is a smooth sail. Put your heart into it and see your brand soar higher with Instagram Insights. If you want to edit Instagram video, Filmora is a powerful editor with Instagram editing tools. Try it out!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-When it comes to online marketing, Instagram plays a key role for product based organizations as many marketers prefer Instagram as a prominent influencer marketing platform. So, [Instagram Insights](https://www.facebook.com/help/1533933820244654) is a necessity for Instagram data analysis. Without that it’s tough to determine your audience and growth point. Well! Does all this making you confused or clueless? Worry not! We have a solution for that as well.
-
-In this article, we are explaining how to analyze Instagram insights to enhance your [brand marketing](https://tools.techidaily.com/wondershare/filmora/download/). Keep reading for more!
-
-* [**Part1: How to access Instagram Insights**](#part1)
-* [**Part2: View Posts Data**](#part2)
-* [**Part3: What does stories data mean**](#part3)
-* [**Part4: Notes you should know**](#part4)
-* [**Part5: Alternatives to Instagram insights**](#part5)
-
-## Part 1: How to access Instagram Insights?
-
-Instagram Insights being a totally free tool to be used on your phone requires a business account to work. The first and foremost thing you need to do is converting the regular Instagram account to a business account. When you convert to a business account, you can see Instagram Insights for content posted after that.
-
-Insights from Instagram enables you to view your content, follower demographics and actions. You can measure campaigns, compare content, and see the performance of individual posts. Total number of posts on your account and the addition in the previous week can also viewed. You can view websites clicks along with call-to-action button clicks i.e. email, call, and direction.
-
-Here is how to access Instagram Insights –
-
-### Access insights from business profile
-
-Impressions, profile visits, and reach can be visible with insights and can be tracked weekly. Followers’ most active time during the day, on your business profile can be traced to enhance your marketing campaign.
-
-* Log into your business profile and click the 4 vertical-bar-like icon from the top-right corner.
-* Now, you get an overall view of the way people interact with your business profile.
-* Choose particular promotions/posts/stories to get their insights.
-
-![access insights from business](https://images.wondershare.com/filmora/article-images/access-instagram-insights-business.JPG)
-
-### Access insights from post
-
-On your business profile, click a post to view insights. A right tilted arrow on the bottom-right denotes a promoted post.
-
-On a promoted post click ‘Original’ to view its Instagram Insights, and tap ‘Promotion’ for viewing insights.
-
-### Access insights from story
-
-Automatic chronological sorting of Stories helps to understand the pattern of content engagement. Instagram Insights expire after 14 days of posting Story. But the Story is active only for 24 hours.
-
-* Open ‘Stories’, and swipe up the post.
-* Click the vertical-bar icon and view your Story insights.
-
-## Part 2: View Posts Data
-
-You can check several posts together or dive deeper into the metrics for post specific information. Here we have explained both of them.
-
-### View metrics for Individual posts
-
-With the ‘View Insight’ button you can know the details about any post. Various other metrics like likes, comments, and saves are displayed on the top. The ‘Actions’ segment shows user response. Here is what Instagram tracks – **Profile Visits, Website Clicks, Follows**
-
-The ‘Discovery’ section’s first statistics denotes percentage of non-followers who found your post. Next to that, the post’s reach and impressions. The source of those impressions are people –
-
-**Home** – who got the post on their feed
-
-**Profile** – who found it on your profile
-
-**Search & Explore** – who got your post from ‘Explore’ feed or through keyword search
-
-**Hashtags** – who got your post from hashtag search
-
-**Location** – who saw the post from location feed
-
-**Others** – posts shared through DM, saved, mentioned, tagged, notifications from tagged/mentioned posts, and posts on ‘Following’ tab notifications
-
-![view ig data from posts](https://images.wondershare.com/filmora/article-images/view-ig-data-from-posts.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### Filtering post data based on metric, timeframe, and content type
-
-Three most recent posts are visible on the Instagram Insight’s ‘Posts’ section. This section by default displays the cumulative number of impressions for all the posts from the previous year.
-
-You can segregate the Instagram Insight data by clicking the blue links from the top. Hit any filter among Content type/measurement (saved, impressions, likes, comments, engagement, and reach)/time. These filters help you pick relevant information to determine campaigns, goals, and top performing content.
-
-You can measure goals for a certain period through impressions and reach, engagement, ratio of engagement to reach, best and worst performing content types. Campaign goals are measured by timeframe.
-
-## Part 3: What does stories data mean
-
-Only ‘Stories’ after subscribing to a business account will be offered insights with. Live content doesn’t have insights as of now. Here is what a Story contains –
-
-**Reach** – unique user numbers that viewed your Story
-
-**Impressions** – total views for your Story
-
-**Taps back** – how many times a user tapped to view your previous Story
-
-**Taps forward** – number of times a user taps to skip the following Story
-
-**Swipe away** – how many times someone skipped to the next person’s Story
-
-**Replies** – how many times people replied to your Story through ‘Send Message’ option
-
-**Exits** \- how many times people exit Stories to see their feed
-
-## Part 4: Notes you should know
-
-### The difference between impressions and reach
-
-Impressions are a number of times a post has been viewed, whereas reach explains the unique views on your post. One account’s multiple views are taken as a single reach but multiple impressions.
-
-### Multiple photos or videos will be counted as one
-
-A post can be a single video/photo or an album on Instagram. The Instagram Insights takes the entire album post as a single entity and impressions and reach is determined based on that.
 
 ## Part 5: Alternatives to Instagram insights
 
@@ -593,13 +578,6 @@ Apart from Instagram Insights, you can look for a tool like Keyhole. Its Instagr
 Squarelovin is an in-depth Instagram analytics tool that shows the metrics for recent posts’ growth. Monthly analysis, posts’ history fragmented to year, month, day, and hour as well as deep insights on communities’ interests and preferences is possible. You get to know what fuels engagement, the best and worst time to post.
 
 ![squarelovin](https://images.wondershare.com/filmora/article-images/squarelovin.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -636,21 +614,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-effortless-viewing-tackling-instagram-video-issues/"><u>[New] 2024 Approved Effortless Viewing Tackling Instagram Video Issues</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-vlc-capture-tool-assessment/"><u>[New] 2024 Approved VLC Capture Tool Assessment</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-navigating-insta-fan-hollows-a-quick-guide/"><u>[New] In 2024, Navigating Insta Fan Hollows A Quick Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-unlocking-the-potential-of-your-mobile-content-for-youtube-wealth/"><u>[New] In 2024, Unlocking the Potential of Your Mobile Content for YouTube Wealth</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-discover-the-power-of-proportions-in-youtube-content-creation/"><u>[Updated] 2024 Approved Discover the Power of Proportions in YouTube Content Creation</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-cultivating-commerce-on-instagram-partnering-with-profitable-brands/"><u>[Updated] In 2024, Cultivating Commerce on Instagram Partnering with Profitable Brands</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-invisible-hand-decoding-instagrams-update-effects-for-2024/"><u>[Updated] The Invisible Hand Decoding Instagram’s Update Effects for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unlocking-engagement-strategies-for-instagram-puzzle-creation/"><u>[Updated] Unlocking Engagement Strategies for Instagram Puzzle Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-review-significant-tech-failures/"><u>A Review: Significant Tech Failures</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/estimating-music-video-production-expenses/"><u>Estimating Music Video Production Expenses</u></a></li>
-<li><a href="https://games-able.techidaily.com/focusing-on-essentials-gamer-mice-design-features/"><u>Focusing on Essentials: Gamer Mice Design Features</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-harness-chatgpt-for-building-professional-ai-artwork-and-photos/"><u>How to Harness ChatGPT for Building Professional AI Artwork and Photos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/igtv-to-fb-exposure-guide-5-top-methods-for-2024/"><u>IGTV to FB Exposure Guide (5 Top Methods) for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagrams-social-filters-unfollow-guide/"><u>In 2024, Instagram's Social Filters Unfollow Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/tracing-the-flow-of-money-in-consumer-opinions-for-2024/"><u>Tracing the Flow of Money in Consumer Opinions for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-itel-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Itel Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-elevate-conversations-via-curated-creativity-in-stories-lives-for-2024/"><u>[New] Elevate Conversations via Curated Creativity in Stories Lives for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-behind-the-screen-look-examining-instagram-post-views/"><u>[New] In 2024, Behind The Screen Look Examining Instagram Post Views</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-inbuilt-camera-functions-to-capture-screens-on-huaweis-matep-series-phones/"><u>[New] Inbuilt Camera Functions to Capture Screens on Huawei's Mate/P Series Phones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-how-to-multiply-engagement-on-your-instagram-story/"><u>[Updated] 2024 Approved How to Multiply Engagement on Your Instagram Story</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-expert-trackers-for-social-media-hashes-in-fb-tweet-and-ig/"><u>[Updated] Expert Trackers for Social Media Hashes in FB, Tweet & IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-instagram-rising-video-view-counts/"><u>[Updated] In 2024, Mastering Instagram Rising Video View Counts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-art-of-perfecting-vocal-recordings-for-video-projects/"><u>[Updated] In 2024, The Art of Perfecting Vocal Recordings for Video Projects</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-maximizing-viewership-igtv-video-scaling-hacks-for-2024/"><u>[Updated] Maximizing Viewership IGTV Video Scaling Hacks for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-real-vs-counterfeit-deciphering-authentic-youtube-supports/"><u>[Updated] Real Vs. Counterfeit Deciphering Authentic YouTube Supports</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/amplify-engagement-unique-ig-questions-for-lives-for-2024/"><u>Amplify Engagement Unique IG Questions for Lives for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/comment-transformer-vite-un-fichier-mkv-en-mp4-avec-precision-et-sans-perturbation/"><u>Comment Transformer Vite Un Fichier MKV en MP4 Avec Précision Et Sans Perturbation ?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/connecting-google-duo-to-your-gmail-account-tips-for-optimal-use/"><u>Connecting Google Duo to Your Gmail Account: Tips for Optimal Use</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-tecno-spark-20-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Tecno Spark 20 Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-cutting-edge-tools-for-igtv-content-creation-and-editing/"><u>In 2024, Cutting-Edge Tools for IGTV Content Creation and Editing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-y100t-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Vivo Y100t?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/time-traveling-through-pages-how-to-effectively-leverage-the-wayback-machine-for-historical-research/"><u>Time Traveling Through Pages: How to Effectively Leverage the Wayback Machine for Historical Research</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/translate-compressed-files-into-subtitle-format-srt-for-2024/"><u>Translate Compressed Files Into Subtitle Format (SRT) for 2024</u></a></li>
 </ul></div>
 
