@@ -1,7 +1,7 @@
 ---
 title: Device Reactivated - All Clear
-date: 2024-11-22T19:03:08.261Z
-updated: 2024-11-28T17:32:24.922Z
+date: 2024-12-04T21:53:34.551Z
+updated: 2024-12-07T19:29:42.893Z
 tags:
   - win11
   - win10
@@ -39,6 +39,10 @@ Code 22 occurs usually because your device is manually disabled. Then manually e
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e536637bc.jpg)
 If the problem persists, try the next fix.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ---
 
 ### Fix 2: Update your device driver
@@ -50,14 +54,10 @@ Driver errors like Code 22 can often be fixed by updating device drivers. You ca
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecd845a65.jpg)
 3. Click the **Update** button next to a flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).Or click **Update All** to automatically download and install the correct version of **_all_** the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecfc678b7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ---
@@ -69,6 +69,10 @@ Uninstalling your device driver is another solution you can try to fix **This de
 1. In Device Manager, right-click your device and select**Uninstall device** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ea2541557.jpg)
 2. Restart your computer, and Windows will automatically reinstall the driver for your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ---
 
@@ -84,25 +88,21 @@ If the above steps don’t work for you, to fix driver error code 22, you can tr
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c88244255.jpg)  
  Example – CMOS battery on a desktop PC  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On laptops, finding the battery housing may be not as easy. Some models have a small pop-out tray on the chassis to enable easy removal. Some may be covered with something as protection (see an example below).  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c4a50b434.jpg)  
  Example – CMOS battery on a laptop
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. Remember which direction the battery is installed. Usually the engraved side, the positive side, is face up. Then, remove the CMOS battery from the main board (most can simply be popped out).![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c58fd6ffe.jpg)
 6. Wait for about one or two minutes for the CMOS to reset itself to its defaults.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 7. Place the battery back in the housing, seal your computer’s case, and start your computer. Your BIOS should have reset itself, re-enabling your graphics device in the process.![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c68d02c94.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ---
@@ -126,20 +126,16 @@ Please do reply if you got your problem fixed.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-powering-up-your-action-footage-one-gadget-at-a-time/"><u>[New] 2024 Approved Powering Up Your Action Footage, One Gadget at a Time</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-affordable-cloud-vaulting-mass-file-saving-made-cheap-for-2024/"><u>[New] Affordable Cloud Vaulting Mass File Saving Made Cheap for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-screen-recorder-alternatives-in-depth-review-and-top-picks/"><u>[New] In 2024, Screen Recorder Alternatives In-Depth Review & Top Picks</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-insiders-guide-to-musical-enhancements-on-ig-for-2024/"><u>[New] The Insider's Guide to Musical Enhancements on IG for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-evasion-tactics-for-watching-instagram-stories-unattached-to-your-account/"><u>[Updated] 2024 Approved Evasion Tactics for Watching Instagram Stories Unattached to Your Account</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-achieve-more-money-from-your-short-videos-on-youtube/"><u>[Updated] Achieve More Money From Your Short Videos on YouTube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elevate-your-social-media-presence-insta-videography/"><u>[Updated] In 2024, Elevate Your Social Media Presence Insta-Videography</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-infusing-vibrancy-into-stories-a-guide-to-choosing-the-right-emojis/"><u>[Updated] In 2024, Infusing Vibrancy Into Stories A Guide to Choosing the Right Emojis</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-rapid-instagram-video-viewing-techniques/"><u>[Updated] In 2024, Rapid Instagram Video Viewing Techniques</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-maximize-style-with-premium-border-options-for-ig-posts/"><u>[Updated] Maximize Style with Premium Border Options for IG Posts</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ranked-top-picks-for-free-skype-tones/"><u>[Updated] Ranked Top Picks for Free Skype Tones</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-secrets-unlocked-advanced-techniques-to-sculpt-your-igtv-content-size/"><u>[Updated] Secrets Unlocked Advanced Techniques to Sculpt Your IGTV Content Size</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-videographers-minecraft-6-proven-ways-to-document-gameplay/"><u>[Updated] The Videographer's Minecraft 6 Proven Ways to Document Gameplay</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1725289668327-winx-dvd-ripper-platinum-dvd-dvd/"><u>【公式】WinX DVD Ripper Platinum: 専用DVDリッパープラチナムを無料でダウンロード - 現在も進化し続ける高性能DVDコピーソフト</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-calculating-earnings-ad-revenues-in-the-world-of-youtube/"><u>In 2024, Calculating Earnings Ad Revenues in the World of YouTube?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-pushing-the-envelope-on-instagram-larger-videos-explained/"><u>[New] In 2024, Pushing the Envelope on Instagram Larger Videos Explained</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-above-the-clouds-unveiled-best-online-portals-for-hd-skies/"><u>[Updated] 2024 Approved Above the Clouds Unveiled Best Online Portals for HD Skies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-youtube-short-content-techniques-unveiled/"><u>[Updated] In 2024, Essential YouTube Short Content Techniques Unveiled</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-leaving-no-trace-on-insta-permanent-deactivation-101/"><u>[Updated] In 2024, Leaving No Trace on Insta Permanent Deactivation 101</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-blueprint-for-effective-use-of-audio-emojis-for-2024/"><u>[Updated] The Ultimate Blueprint for Effective Use of Audio Emojis for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-visualsizetweak-mastering-your-instagram-media/"><u>[Updated] VisualSizeTweak Mastering Your Instagram Media</u></a></li>
+<li><a href="https://extra-information.techidaily.com/androids-favorite-collage-crafting-software-for-2024/"><u>Android's Favorite Collage Crafting Software for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/effortless-guide-transforming-mkv-files-into-compact-flv-format-in-minutes/"><u>Effortless Guide: Transforming MKV Files Into Compact FLV Format in Minutes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-video-to-mp3-everything-you-need-to-know-for-2024/"><u>Instagram Video to Mp3 - Everything You Need to Know for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/navigating-the-nuances-of-ps4-live-gaming-recordings-for-2024/"><u>Navigating the Nuances of PS4 Live Gaming Recordings for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/open-markets-close-plans-strategy-inception-for-2024/"><u>Open Markets, Close Plans Strategy Inception for 2024</u></a></li>
 </ul></div>
 

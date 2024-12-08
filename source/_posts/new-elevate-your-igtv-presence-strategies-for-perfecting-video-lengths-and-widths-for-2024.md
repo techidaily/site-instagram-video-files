@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Elevate Your IGTV Presence  Strategies for Perfecting Video Lengths and Widths for 2024\""
-date: 2024-07-23T16:53:46.240Z
-updated: 2024-07-24T16:53:46.240Z
+date: 2024-12-05T00:50:59.174Z
+updated: 2024-12-07T22:11:39.983Z
 tags:
   - ai video
   - ai instagram
@@ -27,187 +27,9 @@ thumbnail: https://thmb.techidaily.com/2151304b15358b5e0486365b1b4e0f5fc2185a445
 
 The amount of opportunities Instagram offers to marketers and all other video content creators has recently been expanded. Finally, the users of one of the largest social networks ever created can post videos that last longer than sixty seconds, although there are a number of limitations. [Uploading a video to Instagram TV, or IGTV](https://tools.techidaily.com/wondershare/filmora/download/) is a straightforward process, but at the moment you can only add vertically oriented videos to your IGTV channel. That’s why we’ve decided to show you several quick and easy ways of resizing and rotating your videos so that each video you share on IGTV fits the platform’s demands perfectly.
 
-### Make Your IGTV Marketing Videos Shine
-
-Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
-
-[![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-* [Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]](#part1)
-* [Part 2: A Few Tips for Shooting Better IGTV Videos](#part2)
-* [Part 3: Tips for Resizing IGTV Videos](#part3)
-
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]
-
-At the moment, IGTV only supports videos with aspect ratios that range from **4:5 to 9:16**, so if you recorded a video in any other aspect ratio you will have to change it before you share it on your IGTV channel. Moreover, the maximum size of a video file that lasts up to ten minutes is limited to just **650MB**, and the chances are that you will have to change the file’s size in order to be able to upload it to IGTV. Let’s have a look at some of the most effective ways of reformatting your IGTV videos.
-
-#### Resizing Videos with Filmora on Mac and PC Computers
-
-Changing the aspect ratio and the resolution of a video file in Filmora is easy. After you launch Wondershare’s video editor, you’ll have the option to **create a new project** or continue working on a project you already created. Once Filmora’s main window appears on the screen you just have to go to the **File menu** and select the **Project Settings option**.
-
-You can then change the resolution or choose a different frame rate. It is best to pick the **1080X1920 (9:16 Portrait) option** since the files exported in 2160X3840 (9:16 Portrait) resolution can end up being too large for the IGTV platform. Click on the OK button to confirm the adjustments you’ve made, and proceed to edit your video.
-
-In case the process of changing a video’s aspect ratio and resolution is too complicated for you, Filmora offers an even simpler way of reformatting footage. Simply **import a video** into the video editor, and then **place it on a video track on the timeline**. **Right-click on the file** and select the **Crop and Zoom option** from the menu, or alternatively, just use the left mouse click to select a video you added to the timeline and use the **Alt+C keyboard shortcut** to access the **Crop and Zoom window**.
-
-Click on the **Ratio drop-down menu** and choose the **9:16 option**, and then **position the Crop rectangle over the area of the video you’d like to keep**. Clicking on the **Ok button** will remove all the parts of the video that were outside of the area covered by the Crop rectangle, and you can then click on the **Play button** below the **Preview Window** to see the results before you export the video.
-
-Here is a video tutorial for you to learn how to resize the video with Filmora.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### Using Kapwing to Resize Videos Online
-
-[Kapwing](https://www.kapwing.com/) is an online video editing platform that offers a number of useful tools that enable its users to quickly polish their videos before posting them on social media. Upon arriving at Kapwing’s home page you will be able to see a number of different options, such as **Video Maker, Rotate Video, Filter Video, or Video Speed**, so you just have to click on the **Resize video** tool to start changing the aspect ratio and the resolution of your video.
-
-A new window will open in your browser after you click on the Resize video feature, and you will be asked to **upload a file** from your computer or to **paste a video’s URL**. Once you upload a video to the Kapwing platform you can choose from **Instagram, Story or IGTV, YouTube, FB/Twitter Portrait, FB/Twitter Landscape, or Facebook Cover** options. Click on the **Story or IGTV setting**, choose between **No Crop and Crop** presets, and select the **background color** before hitting the **Create button**.
-
-After the platform processes the video, you’ll be able to download it to your computer or continue editing it. The only downside is that all of your IGTV videos are going to be watermarked if you’re using the free version of the platform.
-
-#### Resizing Vertical Videos with iMovie on macOS
-
-Even though iMovie allows its users to change a video’s aspect ratio, this video editor for Mac computers only lets you choose between standard **16:9 and 4:3 aspect ratios**. That’s the reason why the only way to get your videos ready for IGTV in iMovie is to crop them.
-
-Simply click on the **Crop icon** in the editor’s toolbar and then use the **crop rectangle** to create a vertically oriented video. Use the Preview Window to make sure that you are satisfied with the results and proceed to export it from iMovie.
-
-#### Using the Video Resizer for IGTV&Frame app on iPhones
-
-Creators who frequently record their IGTV videos with their iPhones, don’t necessarily have to use desktop-based video editors, because apps like [Video Resizer for IGTV&Frame Resizing IGTV](https://itunes.apple.com/us/app/video-resizer-for-igtv-frame/id1379007244?mt=8) make optimizing footage for IGTV quick and easy.
-
-The app offers a wide range of resizing options, and you can **match width or height**, add a **border around a video** or even **move the video** in any way you want. The best part is that **preset video file sizes for Instagram, Facebook, and Twitter videos are available within the app**, so you can quickly resize a video before uploading it to IGTV. Even though you can use this app for free, you must upgrade to the Pro version in order to use all the features it has to offer.
-
-#### Videos with Smart Video Rotate and Flip – Rotator and Flipper app on Android Devices
-
-Unfortunately, there isn’t much more you can do with this app other than **flip or rotate videos**. Changing the aspect ratio is not an option [Smart Video Rotate and Flip – Rotator and Flipper app](https://play.google.com/store/apps/details?id=com.clogica.videorotator&hl=en%5FUS) offer and you can’t use the app to crop your videos. The results you’ll be able to get by rotating a landscape video can be underwhelming, so this app can only be helpful for IGTV creators if the footage you’re rotating is captured in a 16:9 aspect ratio since you can then turn it to 9:16 by simply rotating it.
-
-#### Part 2: A Few Tips for Shooting Better IGTV Videos
-
-Recording the footage with your Smartphone is perhaps the quickest way to create an IGTV video since you can just hold your phone vertically while recording is in progress. There are lots of video editing apps you can use to enhance the colors, add hardcoded subtitles or visual effects to each video you want to upload to your IGTV channel.
-
-Until recently recording vertical videos with video cameras was one of the biggest mistakes you could make, but platforms like IGTV have changed that. So, if you would like to capture your IGTV videos with professional cameras and lenses, all you have to do is rotate the camera for 90-degrees. You can also record horizontally oriented videos and then rotate them to change their aspect ratio in video editing software like Filmora.
-
-#### Part 3: Tips for Resizing IGTV Videos
-
-Resizing a video or changing its aspect ratio is a fairly simple process, but if you want to post videos on IGTV it is better if you record all of your content in accordance with the platform’s demands. The shot composition is an important aspect of creating an IGTV video since if your framing isn’t perfect you may end up removing parts of your footage. Despite the fact that IGTV lets you upload videos that last up to ten minutes, posting shorter videos that last two or three minutes will produce better results, as most social media users have a short attention span.
-
-**Conclusion**
-
-You don’t have to be a skilled video editor in order to **resize a video**, because most video editing software products offer a lot of easy ways to accomplish this. In addition, you don’t even have to edit your videos from a computer, because there are a lot of Android and iOS-based apps that enable you to rotate or reformat your IGTV videos in just a few easy taps. Which method of resizing IGTV videos do you like to use the most? Leave a comment below and let us know.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-The amount of opportunities Instagram offers to marketers and all other video content creators has recently been expanded. Finally, the users of one of the largest social networks ever created can post videos that last longer than sixty seconds, although there are a number of limitations. [Uploading a video to Instagram TV, or IGTV](https://tools.techidaily.com/wondershare/filmora/download/) is a straightforward process, but at the moment you can only add vertically oriented videos to your IGTV channel. That’s why we’ve decided to show you several quick and easy ways of resizing and rotating your videos so that each video you share on IGTV fits the platform’s demands perfectly.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Make Your IGTV Marketing Videos Shine
-
-Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
-
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-* [Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]](#part1)
-* [Part 2: A Few Tips for Shooting Better IGTV Videos](#part2)
-* [Part 3: Tips for Resizing IGTV Videos](#part3)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
-## Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]
-
-At the moment, IGTV only supports videos with aspect ratios that range from **4:5 to 9:16**, so if you recorded a video in any other aspect ratio you will have to change it before you share it on your IGTV channel. Moreover, the maximum size of a video file that lasts up to ten minutes is limited to just **650MB**, and the chances are that you will have to change the file’s size in order to be able to upload it to IGTV. Let’s have a look at some of the most effective ways of reformatting your IGTV videos.
-
-#### Resizing Videos with Filmora on Mac and PC Computers
-
-Changing the aspect ratio and the resolution of a video file in Filmora is easy. After you launch Wondershare’s video editor, you’ll have the option to **create a new project** or continue working on a project you already created. Once Filmora’s main window appears on the screen you just have to go to the **File menu** and select the **Project Settings option**.
-
-You can then change the resolution or choose a different frame rate. It is best to pick the **1080X1920 (9:16 Portrait) option** since the files exported in 2160X3840 (9:16 Portrait) resolution can end up being too large for the IGTV platform. Click on the OK button to confirm the adjustments you’ve made, and proceed to edit your video.
-
-In case the process of changing a video’s aspect ratio and resolution is too complicated for you, Filmora offers an even simpler way of reformatting footage. Simply **import a video** into the video editor, and then **place it on a video track on the timeline**. **Right-click on the file** and select the **Crop and Zoom option** from the menu, or alternatively, just use the left mouse click to select a video you added to the timeline and use the **Alt+C keyboard shortcut** to access the **Crop and Zoom window**.
-
-Click on the **Ratio drop-down menu** and choose the **9:16 option**, and then **position the Crop rectangle over the area of the video you’d like to keep**. Clicking on the **Ok button** will remove all the parts of the video that were outside of the area covered by the Crop rectangle, and you can then click on the **Play button** below the **Preview Window** to see the results before you export the video.
-
-Here is a video tutorial for you to learn how to resize the video with Filmora.
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### Using Kapwing to Resize Videos Online
-
-[Kapwing](https://www.kapwing.com/) is an online video editing platform that offers a number of useful tools that enable its users to quickly polish their videos before posting them on social media. Upon arriving at Kapwing’s home page you will be able to see a number of different options, such as **Video Maker, Rotate Video, Filter Video, or Video Speed**, so you just have to click on the **Resize video** tool to start changing the aspect ratio and the resolution of your video.
-
-A new window will open in your browser after you click on the Resize video feature, and you will be asked to **upload a file** from your computer or to **paste a video’s URL**. Once you upload a video to the Kapwing platform you can choose from **Instagram, Story or IGTV, YouTube, FB/Twitter Portrait, FB/Twitter Landscape, or Facebook Cover** options. Click on the **Story or IGTV setting**, choose between **No Crop and Crop** presets, and select the **background color** before hitting the **Create button**.
-
-After the platform processes the video, you’ll be able to download it to your computer or continue editing it. The only downside is that all of your IGTV videos are going to be watermarked if you’re using the free version of the platform.
-
-#### Resizing Vertical Videos with iMovie on macOS
-
-Even though iMovie allows its users to change a video’s aspect ratio, this video editor for Mac computers only lets you choose between standard **16:9 and 4:3 aspect ratios**. That’s the reason why the only way to get your videos ready for IGTV in iMovie is to crop them.
-
-Simply click on the **Crop icon** in the editor’s toolbar and then use the **crop rectangle** to create a vertically oriented video. Use the Preview Window to make sure that you are satisfied with the results and proceed to export it from iMovie.
-
-#### Using the Video Resizer for IGTV&Frame app on iPhones
-
-Creators who frequently record their IGTV videos with their iPhones, don’t necessarily have to use desktop-based video editors, because apps like [Video Resizer for IGTV&Frame Resizing IGTV](https://itunes.apple.com/us/app/video-resizer-for-igtv-frame/id1379007244?mt=8) make optimizing footage for IGTV quick and easy.
-
-The app offers a wide range of resizing options, and you can **match width or height**, add a **border around a video** or even **move the video** in any way you want. The best part is that **preset video file sizes for Instagram, Facebook, and Twitter videos are available within the app**, so you can quickly resize a video before uploading it to IGTV. Even though you can use this app for free, you must upgrade to the Pro version in order to use all the features it has to offer.
-
-#### Videos with Smart Video Rotate and Flip – Rotator and Flipper app on Android Devices
-
-Unfortunately, there isn’t much more you can do with this app other than **flip or rotate videos**. Changing the aspect ratio is not an option [Smart Video Rotate and Flip – Rotator and Flipper app](https://play.google.com/store/apps/details?id=com.clogica.videorotator&hl=en%5FUS) offer and you can’t use the app to crop your videos. The results you’ll be able to get by rotating a landscape video can be underwhelming, so this app can only be helpful for IGTV creators if the footage you’re rotating is captured in a 16:9 aspect ratio since you can then turn it to 9:16 by simply rotating it.
-
-#### Part 2: A Few Tips for Shooting Better IGTV Videos
-
-Recording the footage with your Smartphone is perhaps the quickest way to create an IGTV video since you can just hold your phone vertically while recording is in progress. There are lots of video editing apps you can use to enhance the colors, add hardcoded subtitles or visual effects to each video you want to upload to your IGTV channel.
-
-Until recently recording vertical videos with video cameras was one of the biggest mistakes you could make, but platforms like IGTV have changed that. So, if you would like to capture your IGTV videos with professional cameras and lenses, all you have to do is rotate the camera for 90-degrees. You can also record horizontally oriented videos and then rotate them to change their aspect ratio in video editing software like Filmora.
-
-#### Part 3: Tips for Resizing IGTV Videos
-
-Resizing a video or changing its aspect ratio is a fairly simple process, but if you want to post videos on IGTV it is better if you record all of your content in accordance with the platform’s demands. The shot composition is an important aspect of creating an IGTV video since if your framing isn’t perfect you may end up removing parts of your footage. Despite the fact that IGTV lets you upload videos that last up to ten minutes, posting shorter videos that last two or three minutes will produce better results, as most social media users have a short attention span.
-
-**Conclusion**
-
-You don’t have to be a skilled video editor in order to **resize a video**, because most video editing software products offer a lot of easy ways to accomplish this. In addition, you don’t even have to edit your videos from a computer, because there are a lot of Android and iOS-based apps that enable you to rotate or reformat your IGTV videos in just a few easy taps. Which method of resizing IGTV videos do you like to use the most? Leave a comment below and let us know.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-The amount of opportunities Instagram offers to marketers and all other video content creators has recently been expanded. Finally, the users of one of the largest social networks ever created can post videos that last longer than sixty seconds, although there are a number of limitations. [Uploading a video to Instagram TV, or IGTV](https://tools.techidaily.com/wondershare/filmora/download/) is a straightforward process, but at the moment you can only add vertically oriented videos to your IGTV channel. That’s why we’ve decided to show you several quick and easy ways of resizing and rotating your videos so that each video you share on IGTV fits the platform’s demands perfectly.
 
 ### Make Your IGTV Marketing Videos Shine
 
@@ -219,9 +41,6 @@ Recently, video marketing has become an unstoppable trend. Celebrities and busin
 * [Part 2: A Few Tips for Shooting Better IGTV Videos](#part2)
 * [Part 3: Tips for Resizing IGTV Videos](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]
 
 At the moment, IGTV only supports videos with aspect ratios that range from **4:5 to 9:16**, so if you recorded a video in any other aspect ratio you will have to change it before you share it on your IGTV channel. Moreover, the maximum size of a video file that lasts up to ten minutes is limited to just **650MB**, and the chances are that you will have to change the file’s size in order to be able to upload it to IGTV. Let’s have a look at some of the most effective ways of reformatting your IGTV videos.
@@ -292,9 +111,6 @@ Follow @Shanoon Cox
 
 The amount of opportunities Instagram offers to marketers and all other video content creators has recently been expanded. Finally, the users of one of the largest social networks ever created can post videos that last longer than sixty seconds, although there are a number of limitations. [Uploading a video to Instagram TV, or IGTV](https://tools.techidaily.com/wondershare/filmora/download/) is a straightforward process, but at the moment you can only add vertically oriented videos to your IGTV channel. That’s why we’ve decided to show you several quick and easy ways of resizing and rotating your videos so that each video you share on IGTV fits the platform’s demands perfectly.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Make Your IGTV Marketing Videos Shine
 
 Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
@@ -305,9 +121,98 @@ Recently, video marketing has become an unstoppable trend. Celebrities and busin
 * [Part 2: A Few Tips for Shooting Better IGTV Videos](#part2)
 * [Part 3: Tips for Resizing IGTV Videos](#part3)
 
+## Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]
+
+At the moment, IGTV only supports videos with aspect ratios that range from **4:5 to 9:16**, so if you recorded a video in any other aspect ratio you will have to change it before you share it on your IGTV channel. Moreover, the maximum size of a video file that lasts up to ten minutes is limited to just **650MB**, and the chances are that you will have to change the file’s size in order to be able to upload it to IGTV. Let’s have a look at some of the most effective ways of reformatting your IGTV videos.
+
+#### Resizing Videos with Filmora on Mac and PC Computers
+
+Changing the aspect ratio and the resolution of a video file in Filmora is easy. After you launch Wondershare’s video editor, you’ll have the option to **create a new project** or continue working on a project you already created. Once Filmora’s main window appears on the screen you just have to go to the **File menu** and select the **Project Settings option**.
+
+You can then change the resolution or choose a different frame rate. It is best to pick the **1080X1920 (9:16 Portrait) option** since the files exported in 2160X3840 (9:16 Portrait) resolution can end up being too large for the IGTV platform. Click on the OK button to confirm the adjustments you’ve made, and proceed to edit your video.
+
+In case the process of changing a video’s aspect ratio and resolution is too complicated for you, Filmora offers an even simpler way of reformatting footage. Simply **import a video** into the video editor, and then **place it on a video track on the timeline**. **Right-click on the file** and select the **Crop and Zoom option** from the menu, or alternatively, just use the left mouse click to select a video you added to the timeline and use the **Alt+C keyboard shortcut** to access the **Crop and Zoom window**.
+
+Click on the **Ratio drop-down menu** and choose the **9:16 option**, and then **position the Crop rectangle over the area of the video you’d like to keep**. Clicking on the **Ok button** will remove all the parts of the video that were outside of the area covered by the Crop rectangle, and you can then click on the **Play button** below the **Preview Window** to see the results before you export the video.
+
+Here is a video tutorial for you to learn how to resize the video with Filmora.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+#### Using Kapwing to Resize Videos Online
+
+[Kapwing](https://www.kapwing.com/) is an online video editing platform that offers a number of useful tools that enable its users to quickly polish their videos before posting them on social media. Upon arriving at Kapwing’s home page you will be able to see a number of different options, such as **Video Maker, Rotate Video, Filter Video, or Video Speed**, so you just have to click on the **Resize video** tool to start changing the aspect ratio and the resolution of your video.
+
+A new window will open in your browser after you click on the Resize video feature, and you will be asked to **upload a file** from your computer or to **paste a video’s URL**. Once you upload a video to the Kapwing platform you can choose from **Instagram, Story or IGTV, YouTube, FB/Twitter Portrait, FB/Twitter Landscape, or Facebook Cover** options. Click on the **Story or IGTV setting**, choose between **No Crop and Crop** presets, and select the **background color** before hitting the **Create button**.
+
+After the platform processes the video, you’ll be able to download it to your computer or continue editing it. The only downside is that all of your IGTV videos are going to be watermarked if you’re using the free version of the platform.
+
+#### Resizing Vertical Videos with iMovie on macOS
+
+Even though iMovie allows its users to change a video’s aspect ratio, this video editor for Mac computers only lets you choose between standard **16:9 and 4:3 aspect ratios**. That’s the reason why the only way to get your videos ready for IGTV in iMovie is to crop them.
+
+Simply click on the **Crop icon** in the editor’s toolbar and then use the **crop rectangle** to create a vertically oriented video. Use the Preview Window to make sure that you are satisfied with the results and proceed to export it from iMovie.
+
+#### Using the Video Resizer for IGTV&Frame app on iPhones
+
+Creators who frequently record their IGTV videos with their iPhones, don’t necessarily have to use desktop-based video editors, because apps like [Video Resizer for IGTV&Frame Resizing IGTV](https://itunes.apple.com/us/app/video-resizer-for-igtv-frame/id1379007244?mt=8) make optimizing footage for IGTV quick and easy.
+
+The app offers a wide range of resizing options, and you can **match width or height**, add a **border around a video** or even **move the video** in any way you want. The best part is that **preset video file sizes for Instagram, Facebook, and Twitter videos are available within the app**, so you can quickly resize a video before uploading it to IGTV. Even though you can use this app for free, you must upgrade to the Pro version in order to use all the features it has to offer.
+
+#### Videos with Smart Video Rotate and Flip – Rotator and Flipper app on Android Devices
+
+Unfortunately, there isn’t much more you can do with this app other than **flip or rotate videos**. Changing the aspect ratio is not an option [Smart Video Rotate and Flip – Rotator and Flipper app](https://play.google.com/store/apps/details?id=com.clogica.videorotator&hl=en%5FUS) offer and you can’t use the app to crop your videos. The results you’ll be able to get by rotating a landscape video can be underwhelming, so this app can only be helpful for IGTV creators if the footage you’re rotating is captured in a 16:9 aspect ratio since you can then turn it to 9:16 by simply rotating it.
+
+#### Part 2: A Few Tips for Shooting Better IGTV Videos
+
+Recording the footage with your Smartphone is perhaps the quickest way to create an IGTV video since you can just hold your phone vertically while recording is in progress. There are lots of video editing apps you can use to enhance the colors, add hardcoded subtitles or visual effects to each video you want to upload to your IGTV channel.
+
+Until recently recording vertical videos with video cameras was one of the biggest mistakes you could make, but platforms like IGTV have changed that. So, if you would like to capture your IGTV videos with professional cameras and lenses, all you have to do is rotate the camera for 90-degrees. You can also record horizontally oriented videos and then rotate them to change their aspect ratio in video editing software like Filmora.
+
+#### Part 3: Tips for Resizing IGTV Videos
+
+Resizing a video or changing its aspect ratio is a fairly simple process, but if you want to post videos on IGTV it is better if you record all of your content in accordance with the platform’s demands. The shot composition is an important aspect of creating an IGTV video since if your framing isn’t perfect you may end up removing parts of your footage. Despite the fact that IGTV lets you upload videos that last up to ten minutes, posting shorter videos that last two or three minutes will produce better results, as most social media users have a short attention span.
+
+**Conclusion**
+
+You don’t have to be a skilled video editor in order to **resize a video**, because most video editing software products offer a lot of easy ways to accomplish this. In addition, you don’t even have to edit your videos from a computer, because there are a lot of Android and iOS-based apps that enable you to rotate or reformat your IGTV videos in just a few easy taps. Which method of resizing IGTV videos do you like to use the most? Leave a comment below and let us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+The amount of opportunities Instagram offers to marketers and all other video content creators has recently been expanded. Finally, the users of one of the largest social networks ever created can post videos that last longer than sixty seconds, although there are a number of limitations. [Uploading a video to Instagram TV, or IGTV](https://tools.techidaily.com/wondershare/filmora/download/) is a straightforward process, but at the moment you can only add vertically oriented videos to your IGTV channel. That’s why we’ve decided to show you several quick and easy ways of resizing and rotating your videos so that each video you share on IGTV fits the platform’s demands perfectly.
+
+### Make Your IGTV Marketing Videos Shine
+
+Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
+
+[![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* [Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]](#part1)
+* [Part 2: A Few Tips for Shooting Better IGTV Videos](#part2)
+* [Part 3: Tips for Resizing IGTV Videos](#part3)
+
 ## Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]
 
 At the moment, IGTV only supports videos with aspect ratios that range from **4:5 to 9:16**, so if you recorded a video in any other aspect ratio you will have to change it before you share it on your IGTV channel. Moreover, the maximum size of a video file that lasts up to ten minutes is limited to just **650MB**, and the chances are that you will have to change the file’s size in order to be able to upload it to IGTV. Let’s have a look at some of the most effective ways of reformatting your IGTV videos.
@@ -365,6 +270,98 @@ Resizing a video or changing its aspect ratio is a fairly simple process, but if
 You don’t have to be a skilled video editor in order to **resize a video**, because most video editing software products offer a lot of easy ways to accomplish this. In addition, you don’t even have to edit your videos from a computer, because there are a lot of Android and iOS-based apps that enable you to rotate or reformat your IGTV videos in just a few easy taps. Which method of resizing IGTV videos do you like to use the most? Leave a comment below and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+The amount of opportunities Instagram offers to marketers and all other video content creators has recently been expanded. Finally, the users of one of the largest social networks ever created can post videos that last longer than sixty seconds, although there are a number of limitations. [Uploading a video to Instagram TV, or IGTV](https://tools.techidaily.com/wondershare/filmora/download/) is a straightforward process, but at the moment you can only add vertically oriented videos to your IGTV channel. That’s why we’ve decided to show you several quick and easy ways of resizing and rotating your videos so that each video you share on IGTV fits the platform’s demands perfectly.
+
+### Make Your IGTV Marketing Videos Shine
+
+Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
+
+[![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+* [Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]](#part1)
+* [Part 2: A Few Tips for Shooting Better IGTV Videos](#part2)
+* [Part 3: Tips for Resizing IGTV Videos](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 1: How to Resize IGTV Videos? \[PC & Mac & iPhone & Android\]
+
+At the moment, IGTV only supports videos with aspect ratios that range from **4:5 to 9:16**, so if you recorded a video in any other aspect ratio you will have to change it before you share it on your IGTV channel. Moreover, the maximum size of a video file that lasts up to ten minutes is limited to just **650MB**, and the chances are that you will have to change the file’s size in order to be able to upload it to IGTV. Let’s have a look at some of the most effective ways of reformatting your IGTV videos.
+
+#### Resizing Videos with Filmora on Mac and PC Computers
+
+Changing the aspect ratio and the resolution of a video file in Filmora is easy. After you launch Wondershare’s video editor, you’ll have the option to **create a new project** or continue working on a project you already created. Once Filmora’s main window appears on the screen you just have to go to the **File menu** and select the **Project Settings option**.
+
+You can then change the resolution or choose a different frame rate. It is best to pick the **1080X1920 (9:16 Portrait) option** since the files exported in 2160X3840 (9:16 Portrait) resolution can end up being too large for the IGTV platform. Click on the OK button to confirm the adjustments you’ve made, and proceed to edit your video.
+
+In case the process of changing a video’s aspect ratio and resolution is too complicated for you, Filmora offers an even simpler way of reformatting footage. Simply **import a video** into the video editor, and then **place it on a video track on the timeline**. **Right-click on the file** and select the **Crop and Zoom option** from the menu, or alternatively, just use the left mouse click to select a video you added to the timeline and use the **Alt+C keyboard shortcut** to access the **Crop and Zoom window**.
+
+Click on the **Ratio drop-down menu** and choose the **9:16 option**, and then **position the Crop rectangle over the area of the video you’d like to keep**. Clicking on the **Ok button** will remove all the parts of the video that were outside of the area covered by the Crop rectangle, and you can then click on the **Play button** below the **Preview Window** to see the results before you export the video.
+
+Here is a video tutorial for you to learn how to resize the video with Filmora.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+#### Using Kapwing to Resize Videos Online
+
+[Kapwing](https://www.kapwing.com/) is an online video editing platform that offers a number of useful tools that enable its users to quickly polish their videos before posting them on social media. Upon arriving at Kapwing’s home page you will be able to see a number of different options, such as **Video Maker, Rotate Video, Filter Video, or Video Speed**, so you just have to click on the **Resize video** tool to start changing the aspect ratio and the resolution of your video.
+
+A new window will open in your browser after you click on the Resize video feature, and you will be asked to **upload a file** from your computer or to **paste a video’s URL**. Once you upload a video to the Kapwing platform you can choose from **Instagram, Story or IGTV, YouTube, FB/Twitter Portrait, FB/Twitter Landscape, or Facebook Cover** options. Click on the **Story or IGTV setting**, choose between **No Crop and Crop** presets, and select the **background color** before hitting the **Create button**.
+
+After the platform processes the video, you’ll be able to download it to your computer or continue editing it. The only downside is that all of your IGTV videos are going to be watermarked if you’re using the free version of the platform.
+
+#### Resizing Vertical Videos with iMovie on macOS
+
+Even though iMovie allows its users to change a video’s aspect ratio, this video editor for Mac computers only lets you choose between standard **16:9 and 4:3 aspect ratios**. That’s the reason why the only way to get your videos ready for IGTV in iMovie is to crop them.
+
+Simply click on the **Crop icon** in the editor’s toolbar and then use the **crop rectangle** to create a vertically oriented video. Use the Preview Window to make sure that you are satisfied with the results and proceed to export it from iMovie.
+
+#### Using the Video Resizer for IGTV&Frame app on iPhones
+
+Creators who frequently record their IGTV videos with their iPhones, don’t necessarily have to use desktop-based video editors, because apps like [Video Resizer for IGTV&Frame Resizing IGTV](https://itunes.apple.com/us/app/video-resizer-for-igtv-frame/id1379007244?mt=8) make optimizing footage for IGTV quick and easy.
+
+The app offers a wide range of resizing options, and you can **match width or height**, add a **border around a video** or even **move the video** in any way you want. The best part is that **preset video file sizes for Instagram, Facebook, and Twitter videos are available within the app**, so you can quickly resize a video before uploading it to IGTV. Even though you can use this app for free, you must upgrade to the Pro version in order to use all the features it has to offer.
+
+#### Videos with Smart Video Rotate and Flip – Rotator and Flipper app on Android Devices
+
+Unfortunately, there isn’t much more you can do with this app other than **flip or rotate videos**. Changing the aspect ratio is not an option [Smart Video Rotate and Flip – Rotator and Flipper app](https://play.google.com/store/apps/details?id=com.clogica.videorotator&hl=en%5FUS) offer and you can’t use the app to crop your videos. The results you’ll be able to get by rotating a landscape video can be underwhelming, so this app can only be helpful for IGTV creators if the footage you’re rotating is captured in a 16:9 aspect ratio since you can then turn it to 9:16 by simply rotating it.
+
+#### Part 2: A Few Tips for Shooting Better IGTV Videos
+
+Recording the footage with your Smartphone is perhaps the quickest way to create an IGTV video since you can just hold your phone vertically while recording is in progress. There are lots of video editing apps you can use to enhance the colors, add hardcoded subtitles or visual effects to each video you want to upload to your IGTV channel.
+
+Until recently recording vertical videos with video cameras was one of the biggest mistakes you could make, but platforms like IGTV have changed that. So, if you would like to capture your IGTV videos with professional cameras and lenses, all you have to do is rotate the camera for 90-degrees. You can also record horizontally oriented videos and then rotate them to change their aspect ratio in video editing software like Filmora.
+
+#### Part 3: Tips for Resizing IGTV Videos
+
+Resizing a video or changing its aspect ratio is a fairly simple process, but if you want to post videos on IGTV it is better if you record all of your content in accordance with the platform’s demands. The shot composition is an important aspect of creating an IGTV video since if your framing isn’t perfect you may end up removing parts of your footage. Despite the fact that IGTV lets you upload videos that last up to ten minutes, posting shorter videos that last two or three minutes will produce better results, as most social media users have a short attention span.
+
+**Conclusion**
+
+You don’t have to be a skilled video editor in order to **resize a video**, because most video editing software products offer a lot of easy ways to accomplish this. In addition, you don’t even have to edit your videos from a computer, because there are a lot of Android and iOS-based apps that enable you to rotate or reformat your IGTV videos in just a few easy taps. Which method of resizing IGTV videos do you like to use the most? Leave a comment below and let us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -383,8 +380,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -393,7 +388,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-master-windows-11-revolutionary-techniques-for-efficient-video-trimming/"><u>[New] In 2024, Master Window's 11 Revolutionary Techniques for Efficient Video Trimming</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-reversing-the-clock-a-complete-guide-for-instagram-users/"><u>[New] Reversing the Clock A Complete Guide for Instagram Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fusing-data-and-design-for-dynamic-fb-video-campaigns/"><u>[Updated] 2024 Approved Fusing Data & Design for Dynamic FB Video Campaigns</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-expert-tips-on-navigating-the-complex-world-of-instagram-hashtags-for-2024/"><u>[Updated] Expert Tips on Navigating the Complex World of Instagram Hashtags for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-how-to-do-a-poll-on-instagram-stories-the-only-guide-you-need-to-read/"><u>2024 Approved How to Do a Poll on Instagram Stories The Only Guide You Need to Read</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/debunking-7-myths-ai-in-text-conversations/"><u>Debunking 7 Myths: AI in Text Conversations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-nokia-71-impressive-display-superior-photography-and-economical-pricing-reviewed/"><u>Exploring the Nokia 7.1: Impressive Display, Superior Photography, and Economical Pricing Reviewed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagrams-selfie-codex-decoding-image-integrity/"><u>Instagram's Selfie Codex Decoding Image Integrity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-in-online-income-the-revelation-of-500plus-subscribers-power-for-2024/"><u>Surge in Online Income The Revelation of 500+ Subscribers' Power for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-clandestine-way-exploring-insta-stories-on-tech-devices-for-2024/"><u>The Clandestine Way Exploring Insta Stories on Tech Devices for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Instagram Reels  Adding Your Own Soundtrack\""
-date: 2024-11-25T16:00:05.968Z
-updated: 2024-11-28T18:21:37.263Z
+date: 2024-12-01T00:29:06.168Z
+updated: 2024-12-07T20:09:17.658Z
 tags:
   - ai video
   - ai instagram
@@ -57,10 +57,6 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 ![record instagram reels video](https://images.wondershare.com/filmora/article-images/instagram-reels-record-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** While recording it, you can click on the Music icon to add a song. Alternatively, before recording a video for your Reel, you can tap on the Music icon, search for the song you want to add, and add it.
 
 ![instagram reels music option](https://images.wondershare.com/filmora/article-images/instagram-reels-music-option.jpg)
@@ -82,7 +78,7 @@ Instagram lets you add music after you complete your recording as well. This opt
 ![add music after  instagram reels video recording](https://images.wondershare.com/filmora/article-images/add-music-instagram-reels-after-recording.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Find Trending Songs and Add Them to Your Reels?
@@ -101,13 +97,13 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 
 ![record instagram reels with trending music](https://images.wondershare.com/filmora/article-images/record-instagram-reels-with-trending-background-music.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Add Your Own Background Music to Reels?
 
 In case you don't want to use any of the songs from Reel's music section, instead use something of your own; you can do that too! All you will have to do is use any of the music apps on your phone with your Instagram account. Then, play your favorite song, and while doing that, start recording a reel. The music that is being played will be added to the Reel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to Add Your Own Voice to Instagram Reels?
 
@@ -122,6 +118,10 @@ If you don't want to add music as your background sound, instead use your voice 
 **Step 3:** Now, start recording your voice. Once you are done recording your voice, click on the Done option.
 
 ![record voiceover with instagram reels](https://images.wondershare.com/filmora/article-images/record-voiceover-instagram-reels.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 6: How to Save Reels with Music?
 
@@ -140,7 +140,7 @@ Although the Reels stay there on your profile in the Reels section, they don't g
 ![save instagram reels video automatically](https://images.wondershare.com/filmora/article-images/save-instagram-reels-video-automatically-on-device.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 7: How to Add Music to Instagram Reels Business Account?
@@ -183,10 +183,6 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 ![instagram reels option](https://images.wondershare.com/filmora/article-images/instagram-reels-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now, tap on the record option to record something on Reels.
 
 ![record instagram reels video](https://images.wondershare.com/filmora/article-images/instagram-reels-record-option.jpg)
@@ -227,10 +223,6 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 
 ![record instagram reels with trending music](https://images.wondershare.com/filmora/article-images/record-instagram-reels-with-trending-background-music.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Add Your Own Background Music to Reels?
 
 In case you don't want to use any of the songs from Reel's music section, instead use something of your own; you can do that too! All you will have to do is use any of the music apps on your phone with your Instagram account. Then, play your favorite song, and while doing that, start recording a reel. The music that is being played will be added to the Reel.
@@ -244,6 +236,10 @@ If you don't want to add music as your background sound, instead use your voice 
 **Step 2:** If you want to add music, you can do that; if not, just let it be. After the recording is done, you will be taken to another page. Here, you will see some option right at the top of the recorded video. Click on the Microphone icon.
 
 ![instagram reels microphone option](https://images.wondershare.com/filmora/article-images/instagram-reels-microphone-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Now, start recording your voice. Once you are done recording your voice, click on the Done option.
 
@@ -264,6 +260,10 @@ Although the Reels stay there on your profile in the Reels section, they don't g
 **Step 3:** Now, toggle the Save Reels to Device option to automatically save the Reels you create on your mobile.
 
 ![save instagram reels video automatically](https://images.wondershare.com/filmora/article-images/save-instagram-reels-video-automatically-on-device.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 7: How to Add Music to Instagram Reels Business Account?
 
@@ -305,10 +305,6 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 ![instagram reels option](https://images.wondershare.com/filmora/article-images/instagram-reels-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now, tap on the record option to record something on Reels.
 
 ![record instagram reels video](https://images.wondershare.com/filmora/article-images/instagram-reels-record-option.jpg)
@@ -322,10 +318,6 @@ First, let's find out **how to add music to reels on Instagram** when you record
 ![choose parts of music for instagram reels](https://images.wondershare.com/filmora/article-images/choose-part-music-instagram-reels.jpg)
 
 Once you are done recording your video along with the background music, click on the preview option to see how your Reel will look like with the audio.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Reels After Recording?
 
@@ -345,10 +337,6 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 
 ![instagram reels background music](https://images.wondershare.com/filmora/article-images/instagram-reels-background-music.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2:** After clicking on the song name, you find other Reels who have used the same track. Along with it, you will also see the Use Audio option. Please tap on that.
 
 ![instagram reels use audio from others](https://images.wondershare.com/filmora/article-images/instagram-reels-use-audio-option.jpg)
@@ -360,6 +348,10 @@ Let's say you have seen a trending song on multiple Instagram Reels and you feel
 ## Part 4: How to Add Your Own Background Music to Reels?
 
 In case you don't want to use any of the songs from Reel's music section, instead use something of your own; you can do that too! All you will have to do is use any of the music apps on your phone with your Instagram account. Then, play your favorite song, and while doing that, start recording a reel. The music that is being played will be added to the Reel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Add Your Own Voice to Instagram Reels?
 
@@ -443,10 +435,6 @@ First, let's find out **how to add music to reels on Instagram** when you record
 
 ![choose parts of music for instagram reels](https://images.wondershare.com/filmora/article-images/choose-part-music-instagram-reels.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you are done recording your video along with the background music, click on the preview option to see how your Reel will look like with the audio.
 
 ## Part 2: How to Add Music to Reels After Recording?
@@ -458,6 +446,10 @@ Instagram lets you add music after you complete your recording as well. This opt
 **Step 2:** After recording your video, click on the Music icon, and then you will be taken to the Music library page. On the search bar, type the song name you want to add, and the song will be added to the video.
 
 ![add music after  instagram reels video recording](https://images.wondershare.com/filmora/article-images/add-music-instagram-reels-after-recording.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Find Trending Songs and Add Them to Your Reels?
 
@@ -501,9 +493,17 @@ Although the Reels stay there on your profile in the Reels section, they don't g
 
 ![instagram reels camera settings](https://images.wondershare.com/filmora/article-images/instagram-reels-camera-settings-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** The Camera Settings will show you three things, Story, Reels, Live. You need to click on the Reels option.
 
 ![instagram reels camera settings](https://images.wondershare.com/filmora/article-images/instagram-reels-camera-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Now, toggle the Save Reels to Device option to automatically save the Reels you create on your mobile.
 
@@ -538,16 +538,19 @@ Instagram Reels are beneficial for everyone. Whether you are an influencer, cele
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-enhance-your-video-impact-with-slow-motion-on-ig/"><u>[New] 2024 Approved Enhance Your Video Impact with Slow Motion on IG</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-quiet-your-feed-stop-instagrams-suggestion-system/"><u>[New] 2024 Approved Quiet Your Feed Stop Instagram's Suggestion System</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-seamless-streams-addressing-instagrams-video-snags-for-2024/"><u>[New] Seamless Streams Addressing Instagram's Video Snags for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-essentials-unleashed-8-products-that-are-changing-the-business-landscape-for-2024/"><u>[Updated] Essentials Unleashed 8 Products That Are Changing the Business Landscape for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigate-with-precision-the-complete-guide-to-idevice-podcast-downloads/"><u>2024 Approved Navigate with Precision The Complete Guide to iDevice Podcast Downloads</u></a></li>
-<li><a href="https://win-special.techidaily.com/a-breakdown-of-memory-features-integrated-in-windows-environments-discover-how-yl-software-analyzes-them/"><u>A Breakdown of Memory Features Integrated in Windows Environments: Discover How YL Software Analyzes Them</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ais-new-gear-the-chatgpt-plus-plan-20-mo-just-for-the-usa/"><u>AI's New Gear: The ChatGPT Plus Plan ($20 Mo), Just for the USA</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 To Other iPhone? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-edge-video-cutting-techniques-to-boost-engagement/"><u>Instagram Edge Video Cutting Techniques to Boost Engagement</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unbeatable-macbook-air-offer-up-to-80-discount-on-certified-pre-owned-13-laptops-find-your-bargain-now/"><u>Unbeatable MacBook Air Offer: Up To 80% Discount on Certified Pre-Owned 13 Laptops - Find Your Bargain Now!</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/vibrant-video-vibes-merging-melodies-with-media-for-2024/"><u>Vibrant Video Vibes Merging Melodies with Media for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-evaluating-the-impact-of-true-to-self-imagery-on-instagram/"><u>[New] In 2024, Evaluating the Impact of True-to-Self Imagery on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-mastering-instagram-videos-understanding-time-constraints/"><u>[New] In 2024, Mastering Instagram Videos Understanding Time Constraints</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-why-highlighted-content-flourishes-on-instagram-stories/"><u>[Updated] 2024 Approved Why Highlighted Content Flourishes on Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-success-stories-leveraging-highlights-for-growth-for-2024/"><u>[Updated] Instagram Success Stories Leveraging Highlights for Growth for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-rotation-revelations-guide-crafting-captivating-images-on-social-media-for-2024/"><u>[Updated] The Rotation Revelations Guide Crafting Captivating Images on Social Media for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unveiling-8-top-choices-your-go-to-templates-on-ig/"><u>[Updated] Unveiling 8 Top Choices Your Go-To Templates on IG</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/sential-gaming-capture-programs-for-2024/"><u>15 Essential Gaming Capture Programs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-uplifting-social-media-impacts-todays-world/"><u>7 Uplifting Social Media Impacts Today's World</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-xiaomi-redmi-12-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Xiaomi Redmi 12</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ace-your-transcription-needs-with-the-best-speech-to-text-apps-of-202n/"><u>Ace Your Transcription Needs with the Best Speech-to-Text Apps of 202N</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/troubleshooting-and-fixing-graphics-drivers-for-an-optimal-forza-horizon-5-experience/"><u>Troubleshooting and Fixing Graphics Drivers for an Optimal Forza Horizon 5 Experience</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/usb-printing-issues-post-suspend-with-win7/"><u>USB Printing Issues Post-Suspend with Win7</u></a></li>
 </ul></div>
 
