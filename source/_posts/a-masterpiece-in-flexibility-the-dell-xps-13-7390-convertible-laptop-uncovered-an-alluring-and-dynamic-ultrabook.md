@@ -1,7 +1,7 @@
 ---
 title: "A Masterpiece in Flexibility - The Dell XPS 13 7390 Convertible Laptop Uncovered: An Alluring & Dynamic Ultrabook"
-date: 2024-12-08T21:46:44.150Z
-updated: 2024-12-13T20:43:09.688Z
+date: 2024-12-16T16:50:06.788Z
+updated: 2024-12-23T04:00:07.212Z
 categories:
   - BestProducts
 description: "This Article Describes A Masterpiece in Flexibility - The Dell XPS 13 7390 Convertible Laptop Uncovered: An Alluring & Dynamic Ultrabook"
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/UTcUqy8dPDWlsYUZPdsu5EVj8HU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -44,13 +44,13 @@ Lifewire / Andrew Hayward
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -121,14 +121,10 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Solid power for everyday tasks**
@@ -143,16 +139,12 @@ Lifewire / Andrew Hayward
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Network: Connects as expected**
@@ -163,6 +155,10 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Battery: Seriously amazing**
@@ -172,10 +168,6 @@ Lifewire / Andrew Hayward
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100 percent brightness. That means it's built for a full-on workday, which makes it a great option for productivity. In our video rundown test, in which we constantly stream a Netflix movie at 100 percent brightness, the LG Gram 15.6-inch lasted for 9 hours, 14 minutes. With locally-stored video, you're sure to get a whole lot more out of it.
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Hello, Windows (but no Windows Hello)**
 
@@ -190,6 +182,10 @@ Lifewire / Andrew Hayward
  In any case, $999 is a more appealing value for a computer that doesn't pack as much polish as some rivals, but wins out when it comes to elements like battery life, screen size, and minimal weight. For some users, that's sure to be an appealing combination. Note that you can spend quite a bit on upgrades with the LG Gram 15.6-inch, including opting for versions with a faster Intel Core i7 processor, additional RAM, a fingerprint sensor, and even a touch display if desired.
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -206,6 +202,10 @@ Lifewire / Andrew Hayward
 **Well-built for productivity.**
 
  There are better all-around ultraportable laptops in this price range, and we had some issues with the feeling of the build, the keyboard layout, and the merely good display quality. However, if you're in the market for an incredibly light laptop with a big screen and a battery that lasts and lasts, it's hard to ignore the LG Gram 15.6-inch (2018). You get a very capable computer for the price, and it's a notebook that can legitimately last through a full workday even at max brightness.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -239,22 +239,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-fundamental-guidelines-for-saving-lol-scores/"><u>[New] 2024 Approved Fundamental Guidelines for Saving LOL Scores</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mastering-video-editing-for-social-media-standout/"><u>[New] 2024 Approved Mastering Video Editing for Social Media Standout</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-dissecting-video-self-presentation-uncovering-truthfulness-needs/"><u>[New] Dissecting Video Self-Presentation Uncovering Truthfulness Needs</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-dive-into-the-world-of-self-expression-a-treasury-of-instagramcaptions/"><u>[New] In 2024, Dive Into the World of Self-Expression - A Treasury of #InstagramCaptions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-spearheading-social-media-select-the-best-video-editors-for-ig/"><u>[New] Spearheading Social Media Select the Best Video Editors for IG</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-master-the-art-of-instagram-videos-length-adjustments-for-2024/"><u>[Updated] How to Master the Art of Instagram Videos' Length Adjustments for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-revenue-optimization-leveraging-your-youtube-mobile-audience/"><u>[Updated] In 2024, Revenue Optimization Leveraging Your YouTube Mobile Audience</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-instagram-picture-perfect-a-quick-guide-for-2024/"><u>[Updated] Instagram Picture Perfect A Quick Guide for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-transforming-your-igtv-presence-with-new-covers/"><u>[Updated] Transforming Your IGTV Presence with New Covers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-how-to-share-vimeo-video-in-instagram-stories/"><u>2024 Approved How to Share Vimeo Video in Instagram Stories</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/beyond-apowersoft-top-10-screen-capture-apps-analyzed-for-2024/"><u>Beyond Apowersoft Top 10 Screen Capture Apps Analyzed for 2024</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/eenvoudige-schritten-om-je-iphon-te-herstellen-wanneer-het-niet-inschakeld-is/"><u>Eénvoudige Schritten Om Je iPhon Te Herstellen Wanneer Het Niet Inschakeld Is</u></a></li>
-<li><a href="https://driver-install.techidaily.com/efficient-drivers-update-in-winos/"><u>Efficient Drivers Update in WINOS</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-device-path-not-found-issues-in-your-windows-os/"><u>Fixing ‘Device Path Not Found’ Issues In Your Windows OS</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-in-depth-analysis-leading-tv-streaming-providers/"><u>In 2024, In-Depth Analysis Leading TV Streaming Providers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/the-art-of-effortless-video-size-transformation-on-macos-for-2024/"><u>The Art of Effortless Video Size Transformation on MacOS for 2024</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/troubleshooting-guide-for-windows-nx-error-0xc000000e-without-losing-information/"><u>Troubleshooting Guide for Windows nX Error 0xC000000E Without Losing Information</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-choosing-the-right-instagram-video-size-a-2023-guide/"><u>[New] 2024 Approved Choosing the Right Instagram Video Size - A 2023 Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-instagram-accelerator-unveiling-the-fastest-path-to-follower-fortune-and-fanfare/"><u>[New] 2024 Approved The Ultimate Instagram Accelerator Unveiling the Fastest Path to Follower Fortune & Fanfare</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-navigating-to-your-distinctive-tiktok-tag/"><u>[New] Navigating to Your Distinctive TikTok Tag</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-relaxation-at-your-fingertips-games-you-love-for-2024/"><u>[New] Relaxation at Your Fingertips Games You Love for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-evaluating-the-impact-of-true-to-self-imagery-on-instagram/"><u>[Updated] 2024 Approved Evaluating the Impact of True-to-Self Imagery on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-how-to-elevate-your-social-influence-the-six-step-guide-to-instagram-verified-status/"><u>[Updated] 2024 Approved How to Elevate Your Social Influence The Six-Step Guide to Instagram Verified Status</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-shining-up-photos-on-instagram-three-effective-ways/"><u>[Updated] 2024 Approved Shining Up Photos on Instagram Three Effective Ways</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-masterclass-in-creativity-best-free-3d-text-psds/"><u>[Updated] Masterclass in Creativity Best Free 3D Text PSDS</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-simplifying-complexity-easy-gopro-4k-video-edits/"><u>[Updated] Simplifying Complexity Easy GoPro 4K Video Edits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/best-of-breed-exceptional-cardboard-vr-gaming-experienits-for-2024/"><u>Best of Breed Exceptional Cardboard VR Gaming Experienits for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/elite-guide-exceptional-instagram-hlv-designers-for-2024/"><u>Elite Guide Exceptional Instagram HLV Designers for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/enhance-your-instagram-stories-with-a-blend-of-pictures-a-beginners-guide/"><u>Enhance Your Instagram Stories with a Blend of Pictures A Beginner's Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-data-to-decisions-the-journey-of-ai-through-transfer-learning/"><u>From Data to Decisions: The Journey of AI Through Transfer Learning</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-essential-tips-for-effective-instagram-video-conversations/"><u>In 2024, Essential Tips for Effective Instagram Video Conversations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-step-by-step-guide-to-find-youtube-hidden-videos/"><u>In 2024, Step-By-Step Guide to Find YouTube Hidden Videos</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-iphone-12-pro-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from iPhone 12 Pro iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/rhythm-and-reels-instagrams-music-playbook-for-2024/"><u>Rhythm & Reels Instagram’s Music Playbook for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/scripting-space-and-time-manipulation-for-movies-for-2024/"><u>Scripting Space & Time Manipulation for Movies for 2024</u></a></li>
 </ul></div>
 
