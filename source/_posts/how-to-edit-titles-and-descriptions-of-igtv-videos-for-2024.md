@@ -1,7 +1,7 @@
 ---
 title: "How to Edit Titles and Descriptions of IGTV Videos for 2024"
-date: 2024-07-23T16:37:11.579Z
-updated: 2024-07-24T16:37:11.579Z
+date: 2024-12-25T17:12:01.478Z
+updated: 2024-12-28T16:16:04.096Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/aaeee5a2f3c8b68771aea3a6cb049a51985742ce0
 
 # How to Edit Titles and Descriptions of IGTV Videos?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -32,32 +29,14 @@ A **title of a video and its description** can often be the reason why someone w
 
 You may also like: [8 Best Popular Instagram After Effects Templates](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Add Titles and Descriptions to Videos You’re Uploading to IGTV?
 
 Regardless of the device, you’re using to upload a video to your IGTV account, you will be asked to give a title to the video and to add a description. The video’s title **can’t have more than 75 characters**, while the **description can’t exceed the 2200-character limit** and these constrain are the same if you are **[uploading a video to IGTV from web, Instagram or IGTV app](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/edit-igtv-title-description.jpg)
 
 **After granting the IGTV access to the videos stored on your phone’s camera roll** you will be able to **add a cover photo, choose a title or write a description of the video**. You don’t have to be a social media expert in order to know that **the title should tell your audience what the video is about**. The **description of an IGTV video can be a mini blog post** that tells the story of a video or conveys important messages related to the topic of a video. Furthermore, you can add **clickable mentions of other IGTV users** or up to **30 searchable hashtags** to improve the visibility of your video. You can also **include links to your podcast, Facebook page, YouTube channel or your website** so that the viewers can find out more about the video’s topic. When you’re done, just click or tap on the **Post button** and the video you shared will contain all the information you added to it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Edit IGTV Video Descriptions and Titles After You Upload Them?
 
 Upon posting the video you can see the title by simply viewing the video in the full-screen mode. Just **tap on the center of the video** to start viewing it in full screen and **the title will be displayed in the left corner of the video**. Tap on the **drop-down arrow** next to the video’s title if you want to view the video’s description.
@@ -90,6 +69,10 @@ A **title of a video and its description** can often be the reason why someone w
 
 You may also like: [8 Best Popular Instagram After Effects Templates](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Titles and Descriptions to Videos You’re Uploading to IGTV?
 
 Regardless of the device, you’re using to upload a video to your IGTV account, you will be asked to give a title to the video and to add a description. The video’s title **can’t have more than 75 characters**, while the **description can’t exceed the 2200-character limit** and these constrain are the same if you are **[uploading a video to IGTV from web, Instagram or IGTV app](https://tools.techidaily.com/wondershare/filmora/download/)**.
@@ -98,14 +81,15 @@ Regardless of the device, you’re using to upload a video to your IGTV account,
 
 **After granting the IGTV access to the videos stored on your phone’s camera roll** you will be able to **add a cover photo, choose a title or write a description of the video**. You don’t have to be a social media expert in order to know that **the title should tell your audience what the video is about**. The **description of an IGTV video can be a mini blog post** that tells the story of a video or conveys important messages related to the topic of a video. Furthermore, you can add **clickable mentions of other IGTV users** or up to **30 searchable hashtags** to improve the visibility of your video. You can also **include links to your podcast, Facebook page, YouTube channel or your website** so that the viewers can find out more about the video’s topic. When you’re done, just click or tap on the **Post button** and the video you shared will contain all the information you added to it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Edit IGTV Video Descriptions and Titles After You Upload Them?
 
 Upon posting the video you can see the title by simply viewing the video in the full-screen mode. Just **tap on the center of the video** to start viewing it in full screen and **the title will be displayed in the left corner of the video**. Tap on the **drop-down arrow** next to the video’s title if you want to view the video’s description.
 
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/change-igtv-video-title-description.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Editing titles, however, is only possible from a **web browser**, because the IGTV and Instagram apps still don’t offer this option. Go to your IGTV channel and **click on a video** you’d like to edit and then click on **the three-dot icon**. Select **the Edit Video option** from the menu and proceed to edit the video’s title by either clicking on the **Change Title or the Change Description** option. Don’t forget to click on the **Save button** to confirm the adjustments you’ve just made, and the text displayed in the **Title and Description boxes** will be automatically updated.
 
@@ -118,8 +102,9 @@ Besides add the Titles and Description for the IGTV videos when uploading, you c
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -136,20 +121,22 @@ A **title of a video and its description** can often be the reason why someone w
 
 You may also like: [8 Best Popular Instagram After Effects Templates](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Add Titles and Descriptions to Videos You’re Uploading to IGTV?
 
 Regardless of the device, you’re using to upload a video to your IGTV account, you will be asked to give a title to the video and to add a description. The video’s title **can’t have more than 75 characters**, while the **description can’t exceed the 2200-character limit** and these constrain are the same if you are **[uploading a video to IGTV from web, Instagram or IGTV app](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/edit-igtv-title-description.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **After granting the IGTV access to the videos stored on your phone’s camera roll** you will be able to **add a cover photo, choose a title or write a description of the video**. You don’t have to be a social media expert in order to know that **the title should tell your audience what the video is about**. The **description of an IGTV video can be a mini blog post** that tells the story of a video or conveys important messages related to the topic of a video. Furthermore, you can add **clickable mentions of other IGTV users** or up to **30 searchable hashtags** to improve the visibility of your video. You can also **include links to your podcast, Facebook page, YouTube channel or your website** so that the viewers can find out more about the video’s topic. When you’re done, just click or tap on the **Post button** and the video you shared will contain all the information you added to it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Edit IGTV Video Descriptions and Titles After You Upload Them?
 
 Upon posting the video you can see the title by simply viewing the video in the full-screen mode. Just **tap on the center of the video** to start viewing it in full screen and **the title will be displayed in the left corner of the video**. Tap on the **drop-down arrow** next to the video’s title if you want to view the video’s description.
@@ -167,8 +154,9 @@ Besides add the Titles and Description for the IGTV videos when uploading, you c
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -185,20 +173,10 @@ A **title of a video and its description** can often be the reason why someone w
 
 You may also like: [8 Best Popular Instagram After Effects Templates](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Add Titles and Descriptions to Videos You’re Uploading to IGTV?
 
 Regardless of the device, you’re using to upload a video to your IGTV account, you will be asked to give a title to the video and to add a description. The video’s title **can’t have more than 75 characters**, while the **description can’t exceed the 2200-character limit** and these constrain are the same if you are **[uploading a video to IGTV from web, Instagram or IGTV app](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/edit-igtv-title-description.jpg)
 
 **After granting the IGTV access to the videos stored on your phone’s camera roll** you will be able to **add a cover photo, choose a title or write a description of the video**. You don’t have to be a social media expert in order to know that **the title should tell your audience what the video is about**. The **description of an IGTV video can be a mini blog post** that tells the story of a video or conveys important messages related to the topic of a video. Furthermore, you can add **clickable mentions of other IGTV users** or up to **30 searchable hashtags** to improve the visibility of your video. You can also **include links to your podcast, Facebook page, YouTube channel or your website** so that the viewers can find out more about the video’s topic. When you’re done, just click or tap on the **Post button** and the video you shared will contain all the information you added to it.
@@ -207,10 +185,11 @@ No advertising on the website.
 
 Upon posting the video you can see the title by simply viewing the video in the full-screen mode. Just **tap on the center of the video** to start viewing it in full screen and **the title will be displayed in the left corner of the video**. Tap on the **drop-down arrow** next to the video’s title if you want to view the video’s description.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![IGTV Edit Title Description](https://images.wondershare.com/filmora/article-images/change-igtv-video-title-description.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Editing titles, however, is only possible from a **web browser**, because the IGTV and Instagram apps still don’t offer this option. Go to your IGTV channel and **click on a video** you’d like to edit and then click on **the three-dot icon**. Select **the Edit Video option** from the menu and proceed to edit the video’s title by either clicking on the **Change Title or the Change Description** option. Don’t forget to click on the **Save button** to confirm the adjustments you’ve just made, and the text displayed in the **Title and Description boxes** will be automatically updated.
 
@@ -221,6 +200,10 @@ The titles and descriptions are probably the most important parts of each post y
 Besides add the Titles and Description for the IGTV videos when uploading, you can also write text and titles directly to IGTV videos. For [adding text and titles to videos for IGTV on web](https://tools.techidaily.com/wondershare/filmora/download/), you can try Filmora which is available on both Windows and Mac computers.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -241,8 +224,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -251,7 +232,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-global-audiences-local-stories-crafting-engaging-instagramcaptions-for-2024/"><u>[New] Global Audiences, Local Stories - Crafting Engaging #InstagramCaptions for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-create-awesome-instagram-videos/"><u>[New] In 2024, How to Create Awesome Instagram Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-innovations-in-mobile-photography-a-look-at-iphone-x-for-2024/"><u>[New] Innovations in Mobile Photography A Look at iPhone X for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-path-to-longer-instagram-vids-a-comprehensible-approach/"><u>[New] The Path to Longer Instagram Vids A Comprehensible Approach</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-fun-for-the-whole-family-revisiting-a-goofy-movie/"><u>[Updated] 'Fun for the Whole Family' Revisiting a 'Goofy Movie'</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-expert-tips-for-efficient-instagram-to-mp4-transformation-for-2024/"><u>[Updated] Expert Tips for Efficient Instagram to MP4 Transformation for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-huawei-p10-review/"><u>2024 Approved Huawei P10 Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/gratuito-conversor-de-mpe-para-ogg-online-herramienta-libre-y-facil-usar-con-movavi/"><u>Gratuito Conversor De MPE Para OGG Online - Herramienta Libre Y Fácil Usar Con Movavi</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/harnessing-hashtag-magic-for-more-followers-for-2024/"><u>Harnessing Hashtag Magic for More Followers for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-visuallyvivid-adjust-your-content-for-instagram-success/"><u>In 2024, VisuallyVivid Adjust Your Content for Instagram Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instacrafts-seamless-video-assemblies-on-androidios/"><u>InstaCrafts Seamless Video Assemblies on Android/iOS</u></a></li>
+<li><a href="https://some-tips.techidaily.com/navigating-the-world-of-srt-files-on-youtube-and-twitter-for-2024/"><u>Navigating the World of SRT Files on YouTube and Twitter for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/seamless-solutions-for-watching-flv-videos-on-apple-mobile-devices/"><u>Seamless Solutions for Watching Flv Videos on Apple Mobile Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-secret-to-stylish-borders-in-instagram-visuals-for-2024/"><u>The Secret to Stylish Borders in Instagram Visuals for 2024</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/top-rated-no-cost-sandisk-ultimate-external-hard-drive-clone-tool/"><u>Top Rated No-Cost Sandisk Ultimate External Hard Drive Clone Tool</u></a></li>
+<li><a href="https://win-docs.techidaily.com/troubleshooting-guide-resolving-hulus-error-message-p-ts201/"><u>Troubleshooting Guide: Resolving Hulu's Error Message - P-TS201</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleashing-the-power-of-subtitles-discover-the-top-8-efficient-convertors-to-srt-on-windowsmacosx/"><u>Unleashing the Power of Subtitles - Discover The Top 8 Efficient Convertors to SRT on Windows/MacOSX</u></a></li>
+</ul></div>
 
