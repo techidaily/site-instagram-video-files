@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Upload Videos to IGTV for 2024"
-date: 2024-07-23T16:29:41.177Z
-updated: 2024-07-24T16:29:41.177Z
+date: 2025-01-04T07:12:40.831Z
+updated: 2025-01-06T21:30:31.224Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/1b6976e6cb0861a8e856af8d9b91eb1dc370f068c
 
 # How to Upload Videos to IGTV?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -30,18 +27,20 @@ thumbnail: https://thmb.techidaily.com/1b6976e6cb0861a8e856af8d9b91eb1dc370f068c
 
 A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Make Your IGTV Marketing Videos Shine
 
 Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Upload Videos to IGTV?
 
 The process of uploading a video to IGTV isn’t much more complicated than posting a photo or video to your Instagram account and it can be completed in just a couple of quick taps. Naturally, in order to be able to use IGTV, you must have an Instagram account, so before you take any other steps, make sure that you are signed in to your account on Instagram.
@@ -68,9 +67,6 @@ Even though IGTV videos can last up to **sixty minutes**, this option is **reser
 
 Currently, the size of a video can’t exceed **560 MB** for videos between **15 seconds and ten minutes,** while the maximum file size for a sixty-minute videos is limited to **3.6 GB**. IGTV videos have to be vertical, and the content you upload must have a minimum **4:5 aspect ratio, while the maximum aspect ratio is 9:16\.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Tips for Uploading and Posting Videos to IGTV
 
 Despite the fact that you can now upload videos that last for an entire hour, it is still better to keep the content you share on your IGTV channel short. Videos that **last between two and five minutes** are best suited for the audience on social media. Posting videos that surpass the five-minute limit can prove to be counterproductive because people won’t take the time to watch them from start to finish.
@@ -86,6 +82,10 @@ After uploading a video to IGTV you can monitor the number of **likes, comments,
 In the first six months after its initial launch IGTV seems like it has made Instagram more entertaining because it encourages creators to post captivating videos people around the globe love watching. Hopefully, we have provided you with all the information you’re going to need to upload your first video to IGTV. Leave a comment below and share your IGTV experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,10 +103,15 @@ A little over six months ago, Instagram launched the IGTV service that allows cr
 
 Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Upload Videos to IGTV?
 
@@ -134,83 +139,15 @@ Even though IGTV videos can last up to **sixty minutes**, this option is **reser
 
 Currently, the size of a video can’t exceed **560 MB** for videos between **15 seconds and ten minutes,** while the maximum file size for a sixty-minute videos is limited to **3.6 GB**. IGTV videos have to be vertical, and the content you upload must have a minimum **4:5 aspect ratio, while the maximum aspect ratio is 9:16\.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Tips for Uploading and Posting Videos to IGTV
 
 Despite the fact that you can now upload videos that last for an entire hour, it is still better to keep the content you share on your IGTV channel short. Videos that **last between two and five minutes** are best suited for the audience on social media. Posting videos that surpass the five-minute limit can prove to be counterproductive because people won’t take the time to watch them from start to finish.
 
 Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
 
-## Analyzing and Promoting an IGTV Channel
-
-After uploading a video to IGTV you can monitor the number of **likes, comments, and views** by tapping on the **‘three dots’ icon** located next to the **Like, Comment and Share icons** on a particular video. A **drop-down menu will appear** on the screen and you should tap on the **View Insights** option in order to see how many **views, likes and comments** your video got. Below the **Engagement information**, you can find the **Audience Retention** menu that offers **Average Percentage Watch** information as well as **a drop-off graph** that tells you at which point viewers stop watching your video. The data provided by the IGTV analytics can be extremely valuable when planning future posts on IGTV. Moreover, you can use conventional tools for content promotion on Instagram to increase the number of views your IGTV videos are getting.
-
-**Conclusion**
-
-In the first six months after its initial launch IGTV seems like it has made Instagram more entertaining because it encourages creators to post captivating videos people around the globe love watching. Hopefully, we have provided you with all the information you’re going to need to upload your first video to IGTV. Leave a comment below and share your IGTV experiences with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
-
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-### Make Your IGTV Marketing Videos Shine
-
-Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## How to Upload Videos to IGTV?
-
-The process of uploading a video to IGTV isn’t much more complicated than posting a photo or video to your Instagram account and it can be completed in just a couple of quick taps. Naturally, in order to be able to use IGTV, you must have an Instagram account, so before you take any other steps, make sure that you are signed in to your account on Instagram.
-
-#### Creating an IGTV Channel
-
-Launch the Instagram app, and then tap on the **Settings icon** located in the upper right corner. Pick the **Create Channel** option and that is it, you will now be able to add videos to your IGTV channel or browse and watch videos other creators post on their channels.
-
-#### Uploading Videos to IGTV Using the Instagram or the IGTV app
-
-It doesn’t really matter which of these two apps you decide to use to upload videos to your IGTV channel, because the process is identical. Simply tap on the **IGTV icon** that looks like, well, a TV with an antenna and then tap on the **\+ icon** to add a video from your camera roll. Keep in mind that videos that last more than a couple of minutes can be huge in size and that it might be better to upload videos to your IGTV channel from a computer if the video is larger than one or two gigabytes.
-
-Write a description of the video and give it a catchy title before hitting the **Post button**. Optionally, you can **enable the share to Facebook option** even before you post the video to your IGTV channel, but you can also share a video to different social media platforms after you posted it to IGTV.
-
-#### Uploading Videos to IGTV from a Computer
-
-Open your web browser and head over to **instagram.com.** If you’re not already signed in, you’ll be asked to provide the **login information**, so once you’ve inserted your **username and password** you’ll be able to see your Instagram feed. Click on the icon located next to the heart-shaped icon that displays all the notifications, located in the top right corner, in order to gain access to your Instagram channel.
-
-Proceed to click on the **IGTV icon**, and then click on the **Upload button**. Once a new page loads you can **upload a cover photo** or add a **description and a title**. On the left side of the screen you will be able to see a **\+ icon** and below it, you’ll see the **Drag and Drop a Video File** message. You can either **drag and drop** a video file from a folder to the designated area of the screen or you can click on the **\+ icon** and navigate to the folder in which the file you want to upload is located. If you would like to **share the video on Facebook and IGTV at the same time**, you must first **connect your IGTV to your Facebook page**. Afterward, you should simply **click on the IGTV and Facebook page option** to enable it and proceed to click on the Post button and the bottom of the screen.
-
-#### Video Upload Requirements for IGTV
-
-Even though IGTV videos can last up to **sixty minutes**, this option is **reserved for verified accounts.** Regular IGTV creators can only upload videos that **last from fifteen seconds up to ten minutes.** In addition, you can only upload **MP4 video** files to your IGTV channel, since the platform **doesn’t support any other video file format** at the moment.
-
-Currently, the size of a video can’t exceed **560 MB** for videos between **15 seconds and ten minutes,** while the maximum file size for a sixty-minute videos is limited to **3.6 GB**. IGTV videos have to be vertical, and the content you upload must have a minimum **4:5 aspect ratio, while the maximum aspect ratio is 9:16\.**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Tips for Uploading and Posting Videos to IGTV
-
-Despite the fact that you can now upload videos that last for an entire hour, it is still better to keep the content you share on your IGTV channel short. Videos that **last between two and five minutes** are best suited for the audience on social media. Posting videos that surpass the five-minute limit can prove to be counterproductive because people won’t take the time to watch them from start to finish.
-
-Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
 
 ## Analyzing and Promoting an IGTV Channel
 
@@ -235,17 +172,15 @@ Follow @Shanoon Cox
 A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Make Your IGTV Marketing Videos Shine
 
 Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
 
 [![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Upload Videos to IGTV?
 
 The process of uploading a video to IGTV isn’t much more complicated than posting a photo or video to your Instagram account and it can be completed in just a couple of quick taps. Naturally, in order to be able to use IGTV, you must have an Instagram account, so before you take any other steps, make sure that you are signed in to your account on Instagram.
@@ -286,9 +221,70 @@ After uploading a video to IGTV you can monitor the number of **likes, comments,
 
 In the first six months after its initial launch IGTV seems like it has made Instagram more entertaining because it encourages creators to post captivating videos people around the globe love watching. Hopefully, we have provided you with all the information you’re going to need to upload your first video to IGTV. Leave a comment below and share your IGTV experiences with us.
 
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A little over six months ago, Instagram launched the IGTV service that allows creators to post videos that last up to one hour. On the same day IGTV app that makes sharing videos on your IGTV channel easier was also launched, so you don’t even have to use the Instagram app to post new content to your channel. In case you’re not familiar with the IGTV app and you don’t know how to upload videos to your channel you’ve come to the right place, because in this article we are going to take you through all the steps you’ll need to take in order to upload a video to IGTV.
+
+### Make Your IGTV Marketing Videos Shine
+
+Recently, video marketing has become an unstoppable trend. Celebrities and businesses earn great fortune through high-quality marketing videos. To join the **[profitable video marketing era](https://tools.techidaily.com/wondershare/filmora/download/)**, you can create your own IGTV marketing videos now!
+
+[![create marketing videos](https://images.wondershare.com/filmora/article-images/2021/create-marketing-videos.png)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## How to Upload Videos to IGTV?
+
+The process of uploading a video to IGTV isn’t much more complicated than posting a photo or video to your Instagram account and it can be completed in just a couple of quick taps. Naturally, in order to be able to use IGTV, you must have an Instagram account, so before you take any other steps, make sure that you are signed in to your account on Instagram.
+
+#### Creating an IGTV Channel
+
+Launch the Instagram app, and then tap on the **Settings icon** located in the upper right corner. Pick the **Create Channel** option and that is it, you will now be able to add videos to your IGTV channel or browse and watch videos other creators post on their channels.
+
+#### Uploading Videos to IGTV Using the Instagram or the IGTV app
+
+It doesn’t really matter which of these two apps you decide to use to upload videos to your IGTV channel, because the process is identical. Simply tap on the **IGTV icon** that looks like, well, a TV with an antenna and then tap on the **\+ icon** to add a video from your camera roll. Keep in mind that videos that last more than a couple of minutes can be huge in size and that it might be better to upload videos to your IGTV channel from a computer if the video is larger than one or two gigabytes.
+
+Write a description of the video and give it a catchy title before hitting the **Post button**. Optionally, you can **enable the share to Facebook option** even before you post the video to your IGTV channel, but you can also share a video to different social media platforms after you posted it to IGTV.
+
+#### Uploading Videos to IGTV from a Computer
+
+Open your web browser and head over to **instagram.com.** If you’re not already signed in, you’ll be asked to provide the **login information**, so once you’ve inserted your **username and password** you’ll be able to see your Instagram feed. Click on the icon located next to the heart-shaped icon that displays all the notifications, located in the top right corner, in order to gain access to your Instagram channel.
+
+Proceed to click on the **IGTV icon**, and then click on the **Upload button**. Once a new page loads you can **upload a cover photo** or add a **description and a title**. On the left side of the screen you will be able to see a **\+ icon** and below it, you’ll see the **Drag and Drop a Video File** message. You can either **drag and drop** a video file from a folder to the designated area of the screen or you can click on the **\+ icon** and navigate to the folder in which the file you want to upload is located. If you would like to **share the video on Facebook and IGTV at the same time**, you must first **connect your IGTV to your Facebook page**. Afterward, you should simply **click on the IGTV and Facebook page option** to enable it and proceed to click on the Post button and the bottom of the screen.
+
+#### Video Upload Requirements for IGTV
+
+Even though IGTV videos can last up to **sixty minutes**, this option is **reserved for verified accounts.** Regular IGTV creators can only upload videos that **last from fifteen seconds up to ten minutes.** In addition, you can only upload **MP4 video** files to your IGTV channel, since the platform **doesn’t support any other video file format** at the moment.
+
+Currently, the size of a video can’t exceed **560 MB** for videos between **15 seconds and ten minutes,** while the maximum file size for a sixty-minute videos is limited to **3.6 GB**. IGTV videos have to be vertical, and the content you upload must have a minimum **4:5 aspect ratio, while the maximum aspect ratio is 9:16\.**
+
+## Tips for Uploading and Posting Videos to IGTV
+
+Despite the fact that you can now upload videos that last for an entire hour, it is still better to keep the content you share on your IGTV channel short. Videos that **last between two and five minutes** are best suited for the audience on social media. Posting videos that surpass the five-minute limit can prove to be counterproductive because people won’t take the time to watch them from start to finish.
+
+Aside from YouTube, a majority of videos on social media platforms are watched without sound. That’s why adding subtitles to your video may be a good idea, but just remember that you have to hardcode the subtitles into the video since SRT files don’t work well with vertical videos.
+
+## Analyzing and Promoting an IGTV Channel
+
+After uploading a video to IGTV you can monitor the number of **likes, comments, and views** by tapping on the **‘three dots’ icon** located next to the **Like, Comment and Share icons** on a particular video. A **drop-down menu will appear** on the screen and you should tap on the **View Insights** option in order to see how many **views, likes and comments** your video got. Below the **Engagement information**, you can find the **Audience Retention** menu that offers **Average Percentage Watch** information as well as **a drop-off graph** that tells you at which point viewers stop watching your video. The data provided by the IGTV analytics can be extremely valuable when planning future posts on IGTV. Moreover, you can use conventional tools for content promotion on Instagram to increase the number of views your IGTV videos are getting.
+
+**Conclusion**
+
+In the first six months after its initial launch IGTV seems like it has made Instagram more entertaining because it encourages creators to post captivating videos people around the globe love watching. Hopefully, we have provided you with all the information you’re going to need to upload your first video to IGTV. Leave a comment below and share your IGTV experiences with us.
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -308,8 +304,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -318,7 +312,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-full-spectrum-kinetics-examination/"><u>[New] 2024 Approved Full Spectrum Kinetics Examination</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-how-to-reverse-video-on-instagram-complete-guide-for-2024/"><u>[New] How to Reverse Video on Instagram? [Complete Guide] for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-elevate-your-social-strategy-with-these-top-8-apps-phones-included/"><u>[New] In 2024, Elevate Your Social Strategy with These Top 8 Apps, Phones Included</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-ultimate-guide-5-top-earning-instagram-strategies/"><u>[New] In 2024, Ultimate Guide 5 Top-Earning Instagram Strategies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-creativity-producing-original-and-entertaining-reels-on-facebook-for-2024/"><u>[New] Unlocking Creativity Producing Original and Entertaining Reels on Facebook for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-cut-to-the-chase-leading-video-editors-for-android-and-windows/"><u>[Updated] Cut to the Chase Leading Video Editors for Android and Windows</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-reducing-inertia-induced-jello-in-uav-videos/"><u>[Updated] Reducing Inertia-Induced Jello in UAV Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sky-high-explorations-made-simple-a-compreenasive-review-of-dji-sparks-miniature-drone-design/"><u>[Updated] Sky High Explorations Made Simple A Compreenasive Review of DJI Spark's Miniature Drone Design</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveil-the-untouched-best-of-insta-stories/"><u>2024 Approved Unveil the Untouched Best of Insta Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/bring-life-to-your-instagram-posts-with-branded-graphics-and-icons-for-2024/"><u>Bring Life to Your Instagram Posts with Branded Graphics & Icons for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/combat-automatic-sleep-mode-easy-remedies-for-stable-pc-performance/"><u>Combat Automatic Sleep Mode – Easy Remedies for Stable PC Performance</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/effiziente-strategien-zum-archivieren-von-dateien-und-ordnern-in-windows-betriebssystemen-7810/"><u>Effiziente Strategien Zum Archivieren Von Dateien Und Ordnern in Windows-Betriebssystemen (7/8/10)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c53-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Realme C53 Phone without PIN</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-instagram-videos-understanding-time-constraints/"><u>In 2024, Mastering Instagram Videos Understanding Time Constraints</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-strategies-for-stumbling-upon-covert-youtube-videos/"><u>In 2024, Strategies for Stumbling Upon Covert YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-ultimate-instagram-live-mastering-video-chats/"><u>In 2024, Ultimate Instagram Live Mastering Video Chats</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-art-of-adaptation-uploading-your-horizon-content-to-instagram-tv-for-2024/"><u>The Art of Adaptation Uploading Your Horizon Content to Instagram TV for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-designing-powerful-youtube-logos-for-2024/"><u>The Ultimate Guide to Designing Powerful YouTube Logos for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "A Masterpiece in Flexibility - The Dell XPS 13 7390 Convertible Laptop Uncovered: An Alluring & Dynamic Ultrabook"
-date: 2024-12-21T18:24:25.710Z
-updated: 2024-12-28T16:16:37.003Z
+date: 2025-01-04T05:19:14.116Z
+updated: 2025-01-07T00:53:56.287Z
 categories:
   - BestProducts
 description: "This Article Describes A Masterpiece in Flexibility - The Dell XPS 13 7390 Convertible Laptop Uncovered: An Alluring & Dynamic Ultrabook"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/UTcUqy8dPDWlsYUZPdsu5EVj8HU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -74,14 +78,10 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/radDS_2IRuzjTlZxUS5og2a3PIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Top_04-b051e3660efc406ab97f92df654d3762.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Amazingly light, but not wholly convincing**
 
@@ -107,17 +107,9 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Just follow the directions**
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Large and capable enough**
 
@@ -129,14 +121,10 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Solid power for everyday tasks**
@@ -151,9 +139,17 @@ Lifewire / Andrew Hayward
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network: Connects as expected**
 
@@ -173,11 +169,19 @@ Lifewire / Andrew Hayward
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Hello, Windows (but no Windows Hello)**
 
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
 
@@ -188,10 +192,6 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
@@ -239,18 +239,20 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-cutting-edge-videography-bordering-techniques-for-ig/"><u>[New] 2024 Approved Cutting-Edge Videography Bordering Techniques for IG</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-behind-the-numbers-deciphering-how-youtube-measures-popularity/"><u>[New] In 2024, Behind the Numbers Deciphering How YouTube Measures Popularity</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-dull-to-delightful-text-that-tumbles-and-twirls/"><u>[Updated] In 2024, From Dull to Delightful Text that Tumbles and Twirls</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-impart-rotational-luminosity-modification-in-photoshopping/"><u>2024 Approved Impart Rotational Luminosity Modification in Photoshopping</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagram-to-device-direct-and-indirect-video-transfers/"><u>2024 Approved Instagram to Device Direct and Indirect Video Transfers</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-radiant-contrast-synchronizer/"><u>2024 Approved Radiant Contrast Synchronizer</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boost-your-efficiency-top-7-amazing-benefits-of-using-chatgpt-in-the-office/"><u>Boost Your Efficiency: Top 7 Amazing Benefits of Using ChatGPT in the Office</u></a></li>
-<li><a href="https://techidaily.com/effortless-scanning-and-conversion-of-documents-and-images-use-your-iphone-with-precision-technology/"><u>Effortless Scanning & Conversion of Documents & Images: Use Your iPhone with Precision Technology!</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-unlocking-video-treasures-securely-capturing-igtv-videos-on-windows-and-macos/"><u>In 2024, Unlocking Video Treasures Securely Capturing IGTV Videos on Windows & MacOS</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/rapid-rise-on-insta-like-mastery-plus-video-impact/"><u>Rapid Rise on Insta - Like Mastery + Video Impact</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/resolving-code-28-issues-on-your-windows-pc-a-step-by-step-guide/"><u>Resolving 'Code: 28' Issues on Your Windows PC – A Step-by-Step Guide</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/tecno-pova-5-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Tecno Pova 5 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-locations-to-secure-your-new-ipad-pro-ipad-air-and-apple-pencil-pro-with-exclusive-current-offers/"><u>Top Locations to Secure Your New iPad Pro, iPad Air & Apple Pencil Pro with Exclusive Current Offers!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-crafting-a-chorus-of-images-and-sound-on-instagram/"><u>[New] Crafting a Chorus of Images & Sound on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-stealthy-content-consumption-top-5-apps-for-2024/"><u>[New] Stealthy Content Consumption - Top 5 Apps for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-reigniting-the-social-sphere-how-to-amplify-instagram-activity/"><u>[Updated] In 2024, Reigniting the Social Sphere How to Amplify Instagram Activity</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-rise-above-the-crowd-how-to-amass-over-a-million-video-views/"><u>[Updated] Rise Above the Crowd How to Amass Over a Million Video Views</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-secure-apps-for-hidden-instagram-stories/"><u>[Updated] Secure Apps for Hidden Instagram Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-aural-ascendancy-mastering-sound-integration-on-reels/"><u>2024 Approved Aural Ascendancy Mastering Sound Integration on Reels</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-apps-for-dji-video-manipulation-and-mixing/"><u>2024 Approved Leading Apps for DJi Video Manipulation and Mixing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722890609819-all-you-need-to-know-about-the-new-google-pixel-timepiece-rumored-features-and-pricing-insights-await/"><u>All You Need to Know About the New Google Pixel Timepiece – Rumored Features and Pricing Insights Await!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/flip-the-script-crafting-unique-and-shareable-memes-on-social-platforms-for-2024/"><u>Flip the Script Crafting Unique and Shareable Memes on Social Platforms for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-iphone-13-pro-max-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your iPhone 13 Pro Max without Security Questions?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-from-console-to-screen-efficient-recording-strategies/"><u>In 2024, From Console to Screen Efficient Recording Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/maximizing-android-performance-via-wsl-optimization-techniques/"><u>Maximizing Android Performance via WSL Optimization Techniques</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-for-the-not-plugged-in-error-0xc0000098-on-your-windows-computer/"><u>Step-by-Step Solution for the Not Plugged In Error (0xC0000098) on Your Windows Computer</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/stepping-into-business-mode-register-as-an-instagram-corp-page/"><u>Stepping Into Business Mode Register as an Instagram Corp Page</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/what-dialect-is-official-in-israel/"><u>What Dialect Is Official in Israel?</u></a></li>
 </ul></div>
 

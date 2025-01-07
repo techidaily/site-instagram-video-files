@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Demystifying IGTV  A Compreayer's Guide to Social Media for 2024\""
-date: 2024-12-25T18:10:10.649Z
-updated: 2024-12-28T16:44:41.465Z
+date: 2025-01-06T07:17:19.509Z
+updated: 2025-01-06T23:05:19.728Z
 tags:
   - ai video
   - ai instagram
@@ -37,6 +37,126 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
 
  You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 1: What is IGTV
+
+ We are going to divulge what IGTV in this section of the article is. If you are tired of those one minute videos on Instagram and want to publish a longer video. Then IGTV is the ultimate answer for you. These videos on Instagram TV are [vertical](https://www.forbes.com/forbes/welcome/?toURL=https://www.forbes.com/sites/forbescommunicationscouncil/2018/02/02/the-rise-of-vertical-video-how-top-brands-are-adopting-a-new-content-format/&refURL=https://www.google.com.hk/&referrer=https://www.google.com.hk/) and full screen, so you don’t need to rotate the screen to watch a video properly.
+
+ Here we have featured the basic details about features and content specifications for IGTV –
+
+* You get to watch vertical full screen videos by default.
+* You can either use the IGTV app or view content right from Instagram app.
+* You can upload videos from the web or the IGTV app.
+* The videos auto-play when you launch the IGTV app.
+* It supports MP4 file types with a JPG thumbnail.
+* If you have a verified account, then you can post videos between 15 seconds to 60 minutes’ duration. For others the maximum duration is 10 minutes.
+* You can like, comment and use the ‘Direct’ tab to send videos to friends.
+* The video aspect ratio is limited to 9: 16 whereas the file size is up to 3.6GB.
+* Creators have their own YouTube channels. But, anyone can become a creator on IGTV.
+* Presently it doesn’t have any Ads, but Instagram might introduce it to make channel creators earn from their videos.
+
+## Part 2: How to use IGTV step by step
+
+ Are you wondering how to use IGTV? It is as simple as turning on TV. The app optimizes videos depending on your device screen. As soon as you launch the app or tap the IGTV button on Instagram it starts playing right away.
+
+ There is no need of searching content to start watching from people you follow or topics that interest you. You can explore more by swiping the screen up and find ‘For You’, ‘Following’, ‘Continue Watching’, and ‘Popular’.
+
+ Now that you have a fair idea about what is IGTV, and how to use it. Let’s understand how to use IGTV in a step by step manner. Here we are showing how to use IGTV through the Instagram app.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### View and search IGTV channels
+
+* **Step 1**: Launch your Instagram app and tap the IGTV icon adjacent to the DM button.
+* **Step 2**: The IGTV will open right away and you can find ‘For You’, ‘Following’, ‘Popular’, and ‘Continue Watching’.
+* **Step 3**: You can select any of them to watch what videos are there and tap on the respective videos to play it.
+* **Step 4**: To search a video on IGTV, tap the search icon saying ‘Search IGTV’ from the left side of the screen.
+
+![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
+
+### Create your IGTV channel
+
+* **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
+* **Step 2**: Again click ‘Next’ and the ‘Create Channel’ button afterwards.
+* **Step 3**: Now, your Instagram channel has been created and your profile picture will show up instead of the ‘Settings’ icon.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Upload a video to your IGTV channels
+
+* **Step 1**: To upload a video to your IGTV channel, tap your profile picture in IGTV interface.
+* **Step 2**: Click the ‘+’ sign or the ‘Upload video’ button and then select a video from your phone gallery.
+* **Step 3**: Once the video is selected it starts playing onscreen. Click on the ‘Next’ button found on the top right corner.
+* **Step 4**: On the next page enter the ‘Title’, ‘Description’, and enable or disable the ‘Make visible on Facebook Page’. You can also tap the ‘Edit’ button for changing the thumbnail image.
+* Press the ‘Post’ button right after that. Wait a while to get the video uploaded on your IGTV channel.
+
+![post igtv](https://images.wondershare.com/filmora/article-images/post-igtv.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 3: Tips for promoting IGTV
+
+ You can promote IGTV with ease, after knowing what IGTV is, and how to use it. Here are some prominent tips to help you in this regard. Keep exploring!
+
+### 1\. Vertical Video is necessary
+
+ For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
+
+### 2\. Keep It Short
+
+ Just because you have got a video limit of 10 minutes doesn’t mean you will pester the channel with anything and everything without bothering about the video length. Always keeping it short works, as people rarely stay interested beyond the initial 3-4 minutes of a video. Unless you belong to the film industry and have HD quality videos with breathtaking content don’t rush to post 30-40 minutes long ones. Anything between 2 to 5 minutes is worth.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 3\. Don’t Just Repost videos
+
+ Unlike Instagram Stories, IGTV content is going to stay there beyond the 24 hours. So, wisely choose content for your channel and keep your followers intact.
+
+## Conclusion
+
+ We are optimistic that this article has brought everything that you wanted to know about IGTV. Be it what is IGTV or how does IGTV work. Our elaborate guide on how to use IGTV has certainly made your task easier. Enjoy your new IGTV channel!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Have you heard of what is IGTV yet? You might have seen it already but haven’t explored it. On June 21, 2018 Instagram launched a product called – IGTV (Instagram). Another announcement during the same time is Instagram crossed one billion users.
+
+[Instagram TV](https://instagram-press.com/blog/2018/06/20/welcome-to-igtv/) or IGTV is opening up better options for influencers. With this new product in the market, influencers can promote and interact with followers in more ways.
+
+ Well! If what is IGTV and how to use IGTV is still sounds unfamiliar, check out this article to explore more!
+
+* [**Part1: What is IGTV**](#part1)
+* [**Part2: How to use IGTV**](#part2)
+* [**Part3: Tips for promoting IGTV**](#part3)
+
+ You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is IGTV
 
  We are going to divulge what IGTV in this section of the article is. If you are tired of those one minute videos on Instagram and want to publish a longer video. Then IGTV is the ultimate answer for you. These videos on Instagram TV are [vertical](https://www.forbes.com/forbes/welcome/?toURL=https://www.forbes.com/sites/forbescommunicationscouncil/2018/02/02/the-rise-of-vertical-video-how-top-brands-are-adopting-a-new-content-format/&refURL=https://www.google.com.hk/&referrer=https://www.google.com.hk/) and full screen, so you don’t need to rotate the screen to watch a video properly.
@@ -71,10 +191,6 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
 
 ![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Create your IGTV channel
 
 * **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
@@ -96,8 +212,108 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
  You can promote IGTV with ease, after knowing what IGTV is, and how to use it. Here are some prominent tips to help you in this regard. Keep exploring!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### 1\. Vertical Video is necessary
+
+ For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
+
+### 2\. Keep It Short
+
+ Just because you have got a video limit of 10 minutes doesn’t mean you will pester the channel with anything and everything without bothering about the video length. Always keeping it short works, as people rarely stay interested beyond the initial 3-4 minutes of a video. Unless you belong to the film industry and have HD quality videos with breathtaking content don’t rush to post 30-40 minutes long ones. Anything between 2 to 5 minutes is worth.
+
+### 3\. Don’t Just Repost videos
+
+ Unlike Instagram Stories, IGTV content is going to stay there beyond the 24 hours. So, wisely choose content for your channel and keep your followers intact.
+
+## Conclusion
+
+ We are optimistic that this article has brought everything that you wanted to know about IGTV. Be it what is IGTV or how does IGTV work. Our elaborate guide on how to use IGTV has certainly made your task easier. Enjoy your new IGTV channel!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Have you heard of what is IGTV yet? You might have seen it already but haven’t explored it. On June 21, 2018 Instagram launched a product called – IGTV (Instagram). Another announcement during the same time is Instagram crossed one billion users.
+
+[Instagram TV](https://instagram-press.com/blog/2018/06/20/welcome-to-igtv/) or IGTV is opening up better options for influencers. With this new product in the market, influencers can promote and interact with followers in more ways.
+
+ Well! If what is IGTV and how to use IGTV is still sounds unfamiliar, check out this article to explore more!
+
+* [**Part1: What is IGTV**](#part1)
+* [**Part2: How to use IGTV**](#part2)
+* [**Part3: Tips for promoting IGTV**](#part3)
+
+ You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 1: What is IGTV
+
+ We are going to divulge what IGTV in this section of the article is. If you are tired of those one minute videos on Instagram and want to publish a longer video. Then IGTV is the ultimate answer for you. These videos on Instagram TV are [vertical](https://www.forbes.com/forbes/welcome/?toURL=https://www.forbes.com/sites/forbescommunicationscouncil/2018/02/02/the-rise-of-vertical-video-how-top-brands-are-adopting-a-new-content-format/&refURL=https://www.google.com.hk/&referrer=https://www.google.com.hk/) and full screen, so you don’t need to rotate the screen to watch a video properly.
+
+ Here we have featured the basic details about features and content specifications for IGTV –
+
+* You get to watch vertical full screen videos by default.
+* You can either use the IGTV app or view content right from Instagram app.
+* You can upload videos from the web or the IGTV app.
+* The videos auto-play when you launch the IGTV app.
+* It supports MP4 file types with a JPG thumbnail.
+* If you have a verified account, then you can post videos between 15 seconds to 60 minutes’ duration. For others the maximum duration is 10 minutes.
+* You can like, comment and use the ‘Direct’ tab to send videos to friends.
+* The video aspect ratio is limited to 9: 16 whereas the file size is up to 3.6GB.
+* Creators have their own YouTube channels. But, anyone can become a creator on IGTV.
+* Presently it doesn’t have any Ads, but Instagram might introduce it to make channel creators earn from their videos.
+
+## Part 2: How to use IGTV step by step
+
+ Are you wondering how to use IGTV? It is as simple as turning on TV. The app optimizes videos depending on your device screen. As soon as you launch the app or tap the IGTV button on Instagram it starts playing right away.
+
+ There is no need of searching content to start watching from people you follow or topics that interest you. You can explore more by swiping the screen up and find ‘For You’, ‘Following’, ‘Continue Watching’, and ‘Popular’.
+
+ Now that you have a fair idea about what is IGTV, and how to use it. Let’s understand how to use IGTV in a step by step manner. Here we are showing how to use IGTV through the Instagram app.
+
+### View and search IGTV channels
+
+* **Step 1**: Launch your Instagram app and tap the IGTV icon adjacent to the DM button.
+* **Step 2**: The IGTV will open right away and you can find ‘For You’, ‘Following’, ‘Popular’, and ‘Continue Watching’.
+* **Step 3**: You can select any of them to watch what videos are there and tap on the respective videos to play it.
+* **Step 4**: To search a video on IGTV, tap the search icon saying ‘Search IGTV’ from the left side of the screen.
+
+![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
+
+### Create your IGTV channel
+
+* **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
+* **Step 2**: Again click ‘Next’ and the ‘Create Channel’ button afterwards.
+* **Step 3**: Now, your Instagram channel has been created and your profile picture will show up instead of the ‘Settings’ icon.
+
+### Upload a video to your IGTV channels
+
+* **Step 1**: To upload a video to your IGTV channel, tap your profile picture in IGTV interface.
+* **Step 2**: Click the ‘+’ sign or the ‘Upload video’ button and then select a video from your phone gallery.
+* **Step 3**: Once the video is selected it starts playing onscreen. Click on the ‘Next’ button found on the top right corner.
+* **Step 4**: On the next page enter the ‘Title’, ‘Description’, and enable or disable the ‘Make visible on Facebook Page’. You can also tap the ‘Edit’ button for changing the thumbnail image.
+* Press the ‘Post’ button right after that. Wait a while to get the video uploaded on your IGTV channel.
+
+![post igtv](https://images.wondershare.com/filmora/article-images/post-igtv.JPG)
+
+## Part 3: Tips for promoting IGTV
+
+ You can promote IGTV with ease, after knowing what IGTV is, and how to use it. Here are some prominent tips to help you in this regard. Keep exploring!
 
 ### 1\. Vertical Video is necessary
 
@@ -176,123 +392,11 @@ Follow @Shanoon Cox
 ![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### Create your IGTV channel
-
-* **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
-* **Step 2**: Again click ‘Next’ and the ‘Create Channel’ button afterwards.
-* **Step 3**: Now, your Instagram channel has been created and your profile picture will show up instead of the ‘Settings’ icon.
-
-### Upload a video to your IGTV channels
-
-* **Step 1**: To upload a video to your IGTV channel, tap your profile picture in IGTV interface.
-* **Step 2**: Click the ‘+’ sign or the ‘Upload video’ button and then select a video from your phone gallery.
-* **Step 3**: Once the video is selected it starts playing onscreen. Click on the ‘Next’ button found on the top right corner.
-* **Step 4**: On the next page enter the ‘Title’, ‘Description’, and enable or disable the ‘Make visible on Facebook Page’. You can also tap the ‘Edit’ button for changing the thumbnail image.
-* Press the ‘Post’ button right after that. Wait a while to get the video uploaded on your IGTV channel.
-
-![post igtv](https://images.wondershare.com/filmora/article-images/post-igtv.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Part 3: Tips for promoting IGTV
-
- You can promote IGTV with ease, after knowing what IGTV is, and how to use it. Here are some prominent tips to help you in this regard. Keep exploring!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 1\. Vertical Video is necessary
-
- For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
-
-### 2\. Keep It Short
-
- Just because you have got a video limit of 10 minutes doesn’t mean you will pester the channel with anything and everything without bothering about the video length. Always keeping it short works, as people rarely stay interested beyond the initial 3-4 minutes of a video. Unless you belong to the film industry and have HD quality videos with breathtaking content don’t rush to post 30-40 minutes long ones. Anything between 2 to 5 minutes is worth.
-
-### 3\. Don’t Just Repost videos
-
- Unlike Instagram Stories, IGTV content is going to stay there beyond the 24 hours. So, wisely choose content for your channel and keep your followers intact.
-
-## Conclusion
-
- We are optimistic that this article has brought everything that you wanted to know about IGTV. Be it what is IGTV or how does IGTV work. Our elaborate guide on how to use IGTV has certainly made your task easier. Enjoy your new IGTV channel!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Have you heard of what is IGTV yet? You might have seen it already but haven’t explored it. On June 21, 2018 Instagram launched a product called – IGTV (Instagram). Another announcement during the same time is Instagram crossed one billion users.
-
-[Instagram TV](https://instagram-press.com/blog/2018/06/20/welcome-to-igtv/) or IGTV is opening up better options for influencers. With this new product in the market, influencers can promote and interact with followers in more ways.
-
- Well! If what is IGTV and how to use IGTV is still sounds unfamiliar, check out this article to explore more!
-
-* [**Part1: What is IGTV**](#part1)
-* [**Part2: How to use IGTV**](#part2)
-* [**Part3: Tips for promoting IGTV**](#part3)
-
- You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 1: What is IGTV
-
- We are going to divulge what IGTV in this section of the article is. If you are tired of those one minute videos on Instagram and want to publish a longer video. Then IGTV is the ultimate answer for you. These videos on Instagram TV are [vertical](https://www.forbes.com/forbes/welcome/?toURL=https://www.forbes.com/sites/forbescommunicationscouncil/2018/02/02/the-rise-of-vertical-video-how-top-brands-are-adopting-a-new-content-format/&refURL=https://www.google.com.hk/&referrer=https://www.google.com.hk/) and full screen, so you don’t need to rotate the screen to watch a video properly.
-
- Here we have featured the basic details about features and content specifications for IGTV –
-
-* You get to watch vertical full screen videos by default.
-* You can either use the IGTV app or view content right from Instagram app.
-* You can upload videos from the web or the IGTV app.
-* The videos auto-play when you launch the IGTV app.
-* It supports MP4 file types with a JPG thumbnail.
-* If you have a verified account, then you can post videos between 15 seconds to 60 minutes’ duration. For others the maximum duration is 10 minutes.
-* You can like, comment and use the ‘Direct’ tab to send videos to friends.
-* The video aspect ratio is limited to 9: 16 whereas the file size is up to 3.6GB.
-* Creators have their own YouTube channels. But, anyone can become a creator on IGTV.
-* Presently it doesn’t have any Ads, but Instagram might introduce it to make channel creators earn from their videos.
-
-## Part 2: How to use IGTV step by step
-
- Are you wondering how to use IGTV? It is as simple as turning on TV. The app optimizes videos depending on your device screen. As soon as you launch the app or tap the IGTV button on Instagram it starts playing right away.
-
- There is no need of searching content to start watching from people you follow or topics that interest you. You can explore more by swiping the screen up and find ‘For You’, ‘Following’, ‘Continue Watching’, and ‘Popular’.
-
- Now that you have a fair idea about what is IGTV, and how to use it. Let’s understand how to use IGTV in a step by step manner. Here we are showing how to use IGTV through the Instagram app.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### View and search IGTV channels
-
-* **Step 1**: Launch your Instagram app and tap the IGTV icon adjacent to the DM button.
-* **Step 2**: The IGTV will open right away and you can find ‘For You’, ‘Following’, ‘Popular’, and ‘Continue Watching’.
-* **Step 3**: You can select any of them to watch what videos are there and tap on the respective videos to play it.
-* **Step 4**: To search a video on IGTV, tap the search icon saying ‘Search IGTV’ from the left side of the screen.
-
-![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Create your IGTV channel
@@ -332,110 +436,6 @@ Follow @Shanoon Cox
  We are optimistic that this article has brought everything that you wanted to know about IGTV. Be it what is IGTV or how does IGTV work. Our elaborate guide on how to use IGTV has certainly made your task easier. Enjoy your new IGTV channel!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Have you heard of what is IGTV yet? You might have seen it already but haven’t explored it. On June 21, 2018 Instagram launched a product called – IGTV (Instagram). Another announcement during the same time is Instagram crossed one billion users.
-
-[Instagram TV](https://instagram-press.com/blog/2018/06/20/welcome-to-igtv/) or IGTV is opening up better options for influencers. With this new product in the market, influencers can promote and interact with followers in more ways.
-
- Well! If what is IGTV and how to use IGTV is still sounds unfamiliar, check out this article to explore more!
-
-* [**Part1: What is IGTV**](#part1)
-* [**Part2: How to use IGTV**](#part2)
-* [**Part3: Tips for promoting IGTV**](#part3)
-
- You may also like: [Top 25 Instagram Hashtags to Get Likes and Followers in 2018 >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 1: What is IGTV
-
- We are going to divulge what IGTV in this section of the article is. If you are tired of those one minute videos on Instagram and want to publish a longer video. Then IGTV is the ultimate answer for you. These videos on Instagram TV are [vertical](https://www.forbes.com/forbes/welcome/?toURL=https://www.forbes.com/sites/forbescommunicationscouncil/2018/02/02/the-rise-of-vertical-video-how-top-brands-are-adopting-a-new-content-format/&refURL=https://www.google.com.hk/&referrer=https://www.google.com.hk/) and full screen, so you don’t need to rotate the screen to watch a video properly.
-
- Here we have featured the basic details about features and content specifications for IGTV –
-
-* You get to watch vertical full screen videos by default.
-* You can either use the IGTV app or view content right from Instagram app.
-* You can upload videos from the web or the IGTV app.
-* The videos auto-play when you launch the IGTV app.
-* It supports MP4 file types with a JPG thumbnail.
-* If you have a verified account, then you can post videos between 15 seconds to 60 minutes’ duration. For others the maximum duration is 10 minutes.
-* You can like, comment and use the ‘Direct’ tab to send videos to friends.
-* The video aspect ratio is limited to 9: 16 whereas the file size is up to 3.6GB.
-* Creators have their own YouTube channels. But, anyone can become a creator on IGTV.
-* Presently it doesn’t have any Ads, but Instagram might introduce it to make channel creators earn from their videos.
-
-## Part 2: How to use IGTV step by step
-
- Are you wondering how to use IGTV? It is as simple as turning on TV. The app optimizes videos depending on your device screen. As soon as you launch the app or tap the IGTV button on Instagram it starts playing right away.
-
- There is no need of searching content to start watching from people you follow or topics that interest you. You can explore more by swiping the screen up and find ‘For You’, ‘Following’, ‘Continue Watching’, and ‘Popular’.
-
- Now that you have a fair idea about what is IGTV, and how to use it. Let’s understand how to use IGTV in a step by step manner. Here we are showing how to use IGTV through the Instagram app.
-
-### View and search IGTV channels
-
-* **Step 1**: Launch your Instagram app and tap the IGTV icon adjacent to the DM button.
-* **Step 2**: The IGTV will open right away and you can find ‘For You’, ‘Following’, ‘Popular’, and ‘Continue Watching’.
-* **Step 3**: You can select any of them to watch what videos are there and tap on the respective videos to play it.
-* **Step 4**: To search a video on IGTV, tap the search icon saying ‘Search IGTV’ from the left side of the screen.
-
-![view igtv](https://images.wondershare.com/filmora/article-images/view-igtv.JPG)
-
-### Create your IGTV channel
-
-* **Step 1**: You can create a channel in IGTV by hitting the ‘Settings’ icon from the right side of the screen. Click the ‘Create Channel’ over there and then tap ‘Next’.
-* **Step 2**: Again click ‘Next’ and the ‘Create Channel’ button afterwards.
-* **Step 3**: Now, your Instagram channel has been created and your profile picture will show up instead of the ‘Settings’ icon.
-
-### Upload a video to your IGTV channels
-
-* **Step 1**: To upload a video to your IGTV channel, tap your profile picture in IGTV interface.
-* **Step 2**: Click the ‘+’ sign or the ‘Upload video’ button and then select a video from your phone gallery.
-* **Step 3**: Once the video is selected it starts playing onscreen. Click on the ‘Next’ button found on the top right corner.
-* **Step 4**: On the next page enter the ‘Title’, ‘Description’, and enable or disable the ‘Make visible on Facebook Page’. You can also tap the ‘Edit’ button for changing the thumbnail image.
-* Press the ‘Post’ button right after that. Wait a while to get the video uploaded on your IGTV channel.
-
-![post igtv](https://images.wondershare.com/filmora/article-images/post-igtv.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Part 3: Tips for promoting IGTV
-
- You can promote IGTV with ease, after knowing what IGTV is, and how to use it. Here are some prominent tips to help you in this regard. Keep exploring!
-
-### 1\. Vertical Video is necessary
-
- For Instagram TV (IGTV), it is important to have vertical videos. The old YouTube horizontal videos need you to rotate your screen to watch them properly. Fix the 1080X1920 pixels dimensions as that of Instagram Stories for IGTV videos. You can alternatively stick to the 9.16 aspect ratio for these IGTV vertical videos.
-
-### 2\. Keep It Short
-
- Just because you have got a video limit of 10 minutes doesn’t mean you will pester the channel with anything and everything without bothering about the video length. Always keeping it short works, as people rarely stay interested beyond the initial 3-4 minutes of a video. Unless you belong to the film industry and have HD quality videos with breathtaking content don’t rush to post 30-40 minutes long ones. Anything between 2 to 5 minutes is worth.
-
-### 3\. Don’t Just Repost videos
-
- Unlike Instagram Stories, IGTV content is going to stay there beyond the 24 hours. So, wisely choose content for your channel and keep your followers intact.
-
-## Conclusion
-
- We are optimistic that this article has brought everything that you wanted to know about IGTV. Be it what is IGTV or how does IGTV work. Our elaborate guide on how to use IGTV has certainly made your task easier. Enjoy your new IGTV channel!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -466,20 +466,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-mycams-journey-from-concept-to-reality-explored/"><u>[New] 2024 Approved MyCam's Journey From Concept to Reality Explored</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-pcs-picks-the-finest-ps1-game-emulators/"><u>[New] 2024 Approved PC's Picks The Finest PS1 Game Emulators</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-elevate-user-experience-with-these-leading-videophones/"><u>[New] Elevate User Experience with These Leading Videophones</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-insights-into-instagrams-selfie-verification/"><u>[New] In 2024, Insights Into Instagram's Selfie Verification</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mastering-the-art-of-shortening-videos-for-instagram-mac/"><u>[Updated] 2024 Approved Mastering the Art of Shortening Videos for Instagram (Mac)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-beginning-the-live-journey-on-instagram-for-2024/"><u>[Updated] Beginning the Live Journey on Instagram for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-ideal-ae-text-sets-for-professional-work/"><u>[Updated] Ideal AE Text Sets for Professional Work</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-how-to-add-chapters-to-vimeo-video/"><u>[Updated] In 2024, How to Add Chapters to Vimeo Video?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-instagrams-sponsorship-jungle-for-affluent-creators-for-2024/"><u>[Updated] Navigating Instagram's Sponsorship Jungle for Affluent Creators for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/8-best-popular-instagram-after-effects-templates-for-2024/"><u>8 Best Popular Instagram After Effects Templates for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/discover-the-premier-gaming-devices-dominating-2024/"><u>Discover the Premier Gaming Devices Dominating 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-how-to-give-a-makeover-to-existing-images-and-videos-with-ig-filters/"><u>In 2024, How to Give a Makeover to Existing Images and Videos with IG Filters</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-lumafusion-for-macos-download-and-explore-top-alternatives/"><u>New In 2024, Lumafusion for macOS Download and Explore Top Alternatives</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/resolving-common-issues-a-step-by-step-guide-to-troubleshoot-4k-video-downloader-problems/"><u>Resolving Common Issues: A Step-by-Step Guide to Troubleshoot 4K Video Downloader Problems</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-rated-gaming-systems-in-2-the-future-unveiled/"><u>Top Rated Gaming Systems in 2# - The Future Unveiled</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevate-your-episodes-masterful-lighting-setups-explained/"><u>[New] Elevate Your Episodes Masterful Lighting Setups Explained</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-tracking-essentials-choosing-the-best-data-visualization-apps/"><u>[New] Instagram Tracking Essentials Choosing the Best Data Visualization Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-pro-bokeh-tips-for-captivating-instagram-snaps/"><u>[Updated] 2024 Approved Pro Bokeh Tips for Captivating Instagram Snaps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-essential-mp4-player-insights-for-2024/"><u>[Updated] Essential MP4 Player Insights for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-future-of-photography-top-frames-for-2024/"><u>[Updated] The Future of Photography Top Frames for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-samsung-galaxy-s23-ultra-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Samsung Galaxy S23 Ultra Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-key-steps-to-find-your-youtube-content-creation-hub/"><u>In 2024, Key Steps to Find Your YouTube Content Creation Hub</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-speeding-up-your-instagram-video-watch-time/"><u>In 2024, Speeding Up Your Instagram Video Watch Time</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-depth-360-eye-viewing-experience-for-2024/"><u>In-Depth 360° Eye Viewing Experience for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/kick-starting-a-captivating-instagram-live-for-2024/"><u>Kick-Starting a Captivating Instagram Live for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/mastering-safe-mode-a-users-manual-to-uninstall-graphics-card-drivers-on-windows-ebox/"><u>Mastering Safe Mode: A User's Manual to Uninstall Graphics Card Drivers on Windows Ebox</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-huawei-p60-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Huawei P60 and Browser | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-easy-way-to-share-instagram-meets-facebook-for-2024/"><u>The Easy Way to Share Instagram Meets Facebook for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-tecno-phantom-v-fold-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Tecno Phantom V Fold FRP Bypass</u></a></li>
 </ul></div>
 
