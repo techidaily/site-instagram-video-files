@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Social Media  Uploading Multiple Photos and Vids on IG for 2024\""
-date: 2024-07-23T16:13:23.946Z
-updated: 2024-07-24T16:13:23.946Z
+date: 2025-01-11T18:12:40.108Z
+updated: 2025-01-13T19:18:27.373Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://www.lifewire.com/thmb/NVQV94uUNJgi-aiAltvEXSmbmok=/400x300/fi
 
 # How to Upload Multiple Photos and Videos to Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -36,9 +33,6 @@ thumbnail: https://www.lifewire.com/thmb/NVQV94uUNJgi-aiAltvEXSmbmok=/400x300/fi
 
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Upload Multiple Videos and Photos to Instagram
 
  Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
@@ -63,28 +57,20 @@ thumbnail: https://www.lifewire.com/thmb/NVQV94uUNJgi-aiAltvEXSmbmok=/400x300/fi
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
 
 * The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
@@ -103,14 +89,15 @@ Follow @Shanoon Cox
 
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Introducing Carousel
 
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
 
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Upload Multiple Videos and Photos to Instagram
 
@@ -132,9 +119,6 @@ Follow @Shanoon Cox
 
  If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
@@ -149,16 +133,10 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -180,18 +158,15 @@ Follow @Shanoon Cox
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Upload Multiple Videos and Photos to Instagram
 
  Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
 
 * Launch your Instagram app and hit the '+' sign at the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
@@ -206,40 +181,37 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -253,6 +225,10 @@ Follow @Shanoon Cox
 
  We often wonder how great would that be if you can upload multiple photos or video to Instagram, right? Well, we understand your situation. Obviously, if you have to upload your photos or videos one at a time, it may feel quite boring and frustrating, especially when you have dozens of them lined up in the queue. But here's the good news!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Introducing Carousel
 
  Instagram's update 10.9 for Android and iOS allows its users to upload upto 10 photos and videos in one go. This new feature is called 'Carousel'. Basically, when you upload multiple photos via carousel, they appear in a single post in the feed. There will be a row of blue dots underneath the pictures to let others know that they can swipe left and right through the slideshow to view the photos.
@@ -260,18 +236,15 @@ Follow @Shanoon Cox
  You can now organize and post your photos about an expedition or some memorable event etc. in one single post and boast about your experiences in a more sequential and connective way to efficiently capture your audience's attention. Since this feature lets you add a series of videos as well, you can incorporate up to 10 videos in a single post and hence post a video content for up to 10 minutes.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Upload Multiple Videos and Photos to Instagram
 
  Here in this section we have brought you with the detailed guide on how one can upload up to 10 images or videos or a combination of both in a single Instagram post –
 
 * Launch your Instagram app and hit the '+' sign at the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
@@ -299,6 +272,14 @@ Follow @Shanoon Cox
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -323,8 +304,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -333,7 +312,16 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-quickly-convert-instagram-videos-top-25-free-exporters-pc-for-2024/"><u>[New] Quickly Convert Instagram Videos Top 25 Free Exporters [PC] for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagrams-creative-toolkit-applying-effects-on-existing-content/"><u>[Updated] 2024 Approved Instagram's Creative Toolkit Applying Effects on Existing Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-transforming-viewers-into-fans-a-guide-to-igtv-hash-tags/"><u>[Updated] 2024 Approved Transforming Viewers Into Fans A Guide to IGTV Hash Tags</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-first-steps-to-fame-8-free-courses-for-youtube-novices-for-2024/"><u>[Updated] First Steps to Fame 8 Free Courses for YouTube Novices for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/10-best-music-video-hits-on-social-media-platform-for-2024/"><u>10 Best Music Video Hits on Social Media Platform for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-best-pc-snippets-tools-handy-guide-to-top-5-choices/"><u>2024 Approved Best Pc Snippets Tools Handy Guide to Top 5 Choices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-igtvs-top-picks-for-next-weeks-feed/"><u>2024 Approved IGTV's Top Picks for Next Week's Feed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/advanced-3d-text-techniques-in-ai/"><u>Advanced 3D Text Techniques in AI</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-se-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone SE without Password?</u></a></li>
+</ul></div>
 
