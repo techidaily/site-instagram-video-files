@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Do a Poll on Instagram Stories - a Complete Guide\""
-date: 2024-07-23T16:05:03.460Z
-updated: 2024-07-24T16:05:03.460Z
+date: 2025-01-14T17:20:14.918Z
+updated: 2025-01-19T20:46:51.366Z
 tags:
   - ai video
   - ai instagram
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 
 # How to Do a Poll on Instagram Stories: The Only Guide You Need to Read
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -31,9 +27,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 Being used by over a billion people, Instagram is one of the most powerful social media platforms of the present time. The Stories feature of Instagram might be added a few years back, but it is already accessed by over 500 million active users. If you [explore the Instagram Stories feature](https://tools.techidaily.com/wondershare/filmora/download/), then you will realize it offers different ways to interact with our audience, like polls and questions. In this post, I’m going to let you know **how to do a poll on Instagram** and will also share some interesting ideas to post poll questions for Instagram. Let’s get it started!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![Instagram Poll](https://images.wondershare.com/filmora/article-images/instagram-poll.jpg)
 
 * [Part 1: What is an Instagram Poll?](#part1)
@@ -42,9 +35,6 @@ Being used by over a billion people, Instagram is one of the most powerful socia
 * [Part 4: Creative Instagram Poll Questions and Ideas](#part4)
 * [Part 5: Explore More Ways to Use Instagram Polls](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What is an Instagram Poll?
 
 It is a newly-added feature in Instagram Stories that lets us host a poll on our profile (for at most 24 hours). All you need to do is add the Poll feature and enter the provided options. As of now, it only supports two options (like yes or no). Once the poll is posted on your story, your audience can select either of the options. You will get to know the results (who voted for which option) and can even share it with your audience as a story later on.
@@ -70,9 +60,6 @@ At first, you can simply launch Instagram on your phone and go to the Story feat
 
 On the Create panel, simply swipe up to get options to insert questions, polls, countdowns, and so on. From here, tap on the “Poll” option, and its widget would be added on the screen that you can easily move around to position.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tap Poll Option](https://images.wondershare.com/filmora/article-images/tap-poll-option.jpg)
 
 Now, you can just write a question that you wish to post on the poll and provide options for it. Instead of the default “Yes” and “No”, you can tap on these options and write any other choice.
@@ -83,9 +70,6 @@ As you can see, it is pretty easy to learn how to do a poll on Instagram. Once y
 
 From here, you can also swipe up to get different widgets that you can further add to your Instagram Story. You can insert music, countdown, location, mention someone, or even add interesting GIFs and stickers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![Creative Instagram Poll](https://images.wondershare.com/filmora/article-images/custom-instagram-poll.jpg)
 
 Apart from that, you can write anything or even draw a pattern on your story to customize it the way you like.
@@ -94,9 +78,6 @@ Apart from that, you can write anything or even draw a pattern on your story to 
 
 That’s it! Once you are satisfied with the editing of your Instagram Poll story, tap on the “Done” button from the top. Now, you can preview how your poll would look like and can tap on the “Send to” button. This will let you post your story for the entire audience or selective people.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Post Instagram Poll](https://images.wondershare.com/filmora/article-images/post-instagram-poll.jpg)
 
 Later, you can tap on your story and just swipe up to see the results. Instagram will let you know who voted for which option in the poll and you can also share the results of the poll on another Instagram Story from here.
@@ -135,9 +116,6 @@ Apart from a simple yes/no poll, Instagram also lets us post a scale widget for 
 
 You can also see a lot of poll questions for Instagram in this pattern. Just post about something and ask your audience whether they agree to it or it. You can also ask them to DM you about their opinion if you want to engage with them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Explore More Ways to Use Instagram Polls
 
 When it comes to the use of Instagram Polls, the sky is the limit. Since the feature lets us engage with our audience so easily, almost every brand is using it as a marketing tool these days. If you want, you can also implement some of these suggestions to make the most of Instagram Polls.
@@ -146,9 +124,6 @@ When it comes to the use of Instagram Polls, the sky is the limit. Since the fea
 
 If you know how to do a poll on Instagram efficiently, then you can instantly get the feedback of your audience. For instance, if your brand is working on a new line of products and you are not sure about something, then why not post it on Instagram. In this way, you can know the feedback of its end-users and would help in the product’s development as well.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Instant Instagram Poll Feedback](https://images.wondershare.com/filmora/article-images/get-instant-ig-poll-feedback.jpg)
 
 #### 2\. Be Creative
@@ -157,10 +132,11 @@ You might already know there are so many ways to do Instagram polls these days. 
 
 Let’s consider that you manage the Instagram profile of a beverage brand. Why not post a picture of a beach and ask your audience which beverage of yours they would enjoy the most. This would be quite an interesting post and will improve the engagement rate on your profile.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Creative Instagram Poll](https://images.wondershare.com/filmora/article-images/creative-ig-poll.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Redirect your audience
 
@@ -174,16 +150,10 @@ While Instagram Polls are undoubtedly one of the best ways to engage with your a
 
 Not just that, you can also use a slider widget with a poll (or even without it). Instead of just selecting yes or no, this will let your audience slide their choice to a preferred value and will further spike their interest.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Think Beyond Polls](https://images.wondershare.com/filmora/article-images/think-beyond-poll.jpg)
 
 There you go! I’m sure that after reading this post, you would make the most of Instagram Polls. I have come up with a stepwise tutorial on how to do a poll on Instagram for beginners that anyone can implement. Also, you can get inspired by some Instagram poll questions and ideas that I have shared. Feel free to explore the Instagram Poll feature and interact with your audience on Instagram in the best possible way!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -198,9 +168,6 @@ Follow @Shanoon Cox
 
 Being used by over a billion people, Instagram is one of the most powerful social media platforms of the present time. The Stories feature of Instagram might be added a few years back, but it is already accessed by over 500 million active users. If you [explore the Instagram Stories feature](https://tools.techidaily.com/wondershare/filmora/download/), then you will realize it offers different ways to interact with our audience, like polls and questions. In this post, I’m going to let you know **how to do a poll on Instagram** and will also share some interesting ideas to post poll questions for Instagram. Let’s get it started!
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram Poll](https://images.wondershare.com/filmora/article-images/instagram-poll.jpg)
 
 * [Part 1: What is an Instagram Poll?](#part1)
@@ -209,9 +176,6 @@ Being used by over a billion people, Instagram is one of the most powerful socia
 * [Part 4: Creative Instagram Poll Questions and Ideas](#part4)
 * [Part 5: Explore More Ways to Use Instagram Polls](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is an Instagram Poll?
 
 It is a newly-added feature in Instagram Stories that lets us host a poll on our profile (for at most 24 hours). All you need to do is add the Poll feature and enter the provided options. As of now, it only supports two options (like yes or no). Once the poll is posted on your story, your audience can select either of the options. You will get to know the results (who voted for which option) and can even share it with your audience as a story later on.
@@ -226,6 +190,10 @@ It doesn’t matter if you are managing your own or a brand’s profile, Instagr
 * The Instagram Poll feature can also be used to educate others and increase your engagement rate.
 * You can also use this feature to redirect your audience to your website and drive traffic.
 * It can be used as an ideal funnel marketing tactic and you can even sponsor the poll story to gain more traction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Create an Instagram Story Poll: A Step by Step Approach
 
@@ -249,24 +217,22 @@ From here, you can also swipe up to get different widgets that you can further a
 
 ![Creative Instagram Poll](https://images.wondershare.com/filmora/article-images/custom-instagram-poll.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Apart from that, you can write anything or even draw a pattern on your story to customize it the way you like.
 
 #### 3\. Post your Instagram Poll
 
 That’s it! Once you are satisfied with the editing of your Instagram Poll story, tap on the “Done” button from the top. Now, you can preview how your poll would look like and can tap on the “Send to” button. This will let you post your story for the entire audience or selective people.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Post Instagram Poll](https://images.wondershare.com/filmora/article-images/post-instagram-poll.jpg)
 
 Later, you can tap on your story and just swipe up to see the results. Instagram will let you know who voted for which option in the poll and you can also share the results of the poll on another Instagram Story from here.
 
 ![Result of Instagram Poll](https://images.wondershare.com/filmora/article-images/see-result-instagram-poll.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Creative Instagram Poll Questions and Ideas
 
 By now, you would be able to understand how to do a poll on Instagram. Though, if you are running out of ideas to post, then here are some poll questions for Instagram that you can consider.
@@ -315,19 +281,17 @@ You might already know there are so many ways to do Instagram polls these days. 
 
 Let’s consider that you manage the Instagram profile of a beverage brand. Why not post a picture of a beach and ask your audience which beverage of yours they would enjoy the most. This would be quite an interesting post and will improve the engagement rate on your profile.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Creative Instagram Poll](https://images.wondershare.com/filmora/article-images/creative-ig-poll.jpg)
 
 #### 3\. Redirect your audience
 
 Product placement is one of the major things that you should consider doing in Instagram Polls. Though, apart from simply posting your products, you can ask your audience their opinion about it. Besides that, you can also include your website’s link or a DM option on the story. This will help you redirect your audience to your product page and can increase its sales as well.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![redirect audience Instagram Poll](https://images.wondershare.com/filmora/article-images/redirect-audience-ig-poll.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. Think Beyond Polls
 
@@ -365,9 +329,6 @@ Being used by over a billion people, Instagram is one of the most powerful socia
 
 It is a newly-added feature in Instagram Stories that lets us host a poll on our profile (for at most 24 hours). All you need to do is add the Poll feature and enter the provided options. As of now, it only supports two options (like yes or no). Once the poll is posted on your story, your audience can select either of the options. You will get to know the results (who voted for which option) and can even share it with your audience as a story later on.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Why is Instagram Polls Important?
 
 It doesn’t matter if you are managing your own or a brand’s profile, Instagram Polls can help you in more ways than you can think of. Here are some of the major benefits of the Instagram Poll feature.
@@ -399,9 +360,6 @@ As you can see, it is pretty easy to learn how to do a poll on Instagram. Once y
 
 From here, you can also swipe up to get different widgets that you can further add to your Instagram Story. You can insert music, countdown, location, mention someone, or even add interesting GIFs and stickers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Creative Instagram Poll](https://images.wondershare.com/filmora/article-images/custom-instagram-poll.jpg)
 
 Apart from that, you can write anything or even draw a pattern on your story to customize it the way you like.
@@ -410,16 +368,10 @@ Apart from that, you can write anything or even draw a pattern on your story to 
 
 That’s it! Once you are satisfied with the editing of your Instagram Poll story, tap on the “Done” button from the top. Now, you can preview how your poll would look like and can tap on the “Send to” button. This will let you post your story for the entire audience or selective people.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Post Instagram Poll](https://images.wondershare.com/filmora/article-images/post-instagram-poll.jpg)
 
 Later, you can tap on your story and just swipe up to see the results. Instagram will let you know who voted for which option in the poll and you can also share the results of the poll on another Instagram Story from here.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Result of Instagram Poll](https://images.wondershare.com/filmora/article-images/see-result-instagram-poll.jpg)
 
 ## Creative Instagram Poll Questions and Ideas
@@ -462,9 +414,6 @@ When it comes to the use of Instagram Polls, the sky is the limit. Since the fea
 
 If you know how to do a poll on Instagram efficiently, then you can instantly get the feedback of your audience. For instance, if your brand is working on a new line of products and you are not sure about something, then why not post it on Instagram. In this way, you can know the feedback of its end-users and would help in the product’s development as well.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Instant Instagram Poll Feedback](https://images.wondershare.com/filmora/article-images/get-instant-ig-poll-feedback.jpg)
 
 #### 2\. Be Creative
@@ -480,6 +429,10 @@ Let’s consider that you manage the Instagram profile of a beverage brand. Why 
 Product placement is one of the major things that you should consider doing in Instagram Polls. Though, apart from simply posting your products, you can ask your audience their opinion about it. Besides that, you can also include your website’s link or a DM option on the story. This will help you redirect your audience to your product page and can increase its sales as well.
 
 ![redirect audience Instagram Poll](https://images.wondershare.com/filmora/article-images/redirect-audience-ig-poll.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. Think Beyond Polls
 
@@ -505,10 +458,11 @@ Follow @Shanoon Cox
 
 Being used by over a billion people, Instagram is one of the most powerful social media platforms of the present time. The Stories feature of Instagram might be added a few years back, but it is already accessed by over 500 million active users. If you [explore the Instagram Stories feature](https://tools.techidaily.com/wondershare/filmora/download/), then you will realize it offers different ways to interact with our audience, like polls and questions. In this post, I’m going to let you know **how to do a poll on Instagram** and will also share some interesting ideas to post poll questions for Instagram. Let’s get it started!
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Instagram Poll](https://images.wondershare.com/filmora/article-images/instagram-poll.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * [Part 1: What is an Instagram Poll?](#part1)
 * [Part 2: Why are Instagram Polls Important?](#part2)
@@ -520,11 +474,6 @@ Being used by over a billion people, Instagram is one of the most powerful socia
 
 It is a newly-added feature in Instagram Stories that lets us host a poll on our profile (for at most 24 hours). All you need to do is add the Poll feature and enter the provided options. As of now, it only supports two options (like yes or no). Once the poll is posted on your story, your audience can select either of the options. You will get to know the results (who voted for which option) and can even share it with your audience as a story later on.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## Why is Instagram Polls Important?
 
 It doesn’t matter if you are managing your own or a brand’s profile, Instagram Polls can help you in more ways than you can think of. Here are some of the major benefits of the Instagram Poll feature.
@@ -546,9 +495,6 @@ At first, you can simply launch Instagram on your phone and go to the Story feat
 
 On the Create panel, simply swipe up to get options to insert questions, polls, countdowns, and so on. From here, tap on the “Poll” option, and its widget would be added on the screen that you can easily move around to position.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Tap Poll Option](https://images.wondershare.com/filmora/article-images/tap-poll-option.jpg)
 
 Now, you can just write a question that you wish to post on the poll and provide options for it. Instead of the default “Yes” and “No”, you can tap on these options and write any other choice.
@@ -567,14 +513,19 @@ Apart from that, you can write anything or even draw a pattern on your story to 
 
 That’s it! Once you are satisfied with the editing of your Instagram Poll story, tap on the “Done” button from the top. Now, you can preview how your poll would look like and can tap on the “Send to” button. This will let you post your story for the entire audience or selective people.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Post Instagram Poll](https://images.wondershare.com/filmora/article-images/post-instagram-poll.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Later, you can tap on your story and just swipe up to see the results. Instagram will let you know who voted for which option in the poll and you can also share the results of the poll on another Instagram Story from here.
 
 ![Result of Instagram Poll](https://images.wondershare.com/filmora/article-images/see-result-instagram-poll.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Creative Instagram Poll Questions and Ideas
 
@@ -624,9 +575,6 @@ You might already know there are so many ways to do Instagram polls these days. 
 
 Let’s consider that you manage the Instagram profile of a beverage brand. Why not post a picture of a beach and ask your audience which beverage of yours they would enjoy the most. This would be quite an interesting post and will improve the engagement rate on your profile.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Creative Instagram Poll](https://images.wondershare.com/filmora/article-images/creative-ig-poll.jpg)
 
 #### 3\. Redirect your audience
@@ -643,12 +591,17 @@ Not just that, you can also use a slider widget with a poll (or even without it)
 
 ![Think Beyond Polls](https://images.wondershare.com/filmora/article-images/think-beyond-poll.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There you go! I’m sure that after reading this post, you would make the most of Instagram Polls. I have come up with a stepwise tutorial on how to do a poll on Instagram for beginners that anyone can implement. Also, you can get inspired by some Instagram poll questions and ideas that I have shared. Feel free to explore the Instagram Poll feature and interact with your audience on Instagram in the best possible way!
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -667,8 +620,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -677,7 +628,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-discreetly-explore-instagram-stories-with-us/"><u>[New] In 2024, Discreetly Explore Instagram Stories With Us</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-melody-and-memes-adding-audio-to-instagrams-visual-medley-for-2024/"><u>[New] Melody & Memes Adding Audio to Instagram's Visual Medley for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-maximize-zoom-audio-clarity-methods-and-tips-shared/"><u>[Updated] In 2024, Maximize Zoom Audio Clarity Methods & Tips Shared</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-prime-8-chart-tracer-apex-of-youtube-rankings/"><u>[Updated] Prime 8 Chart Tracer Apex of YouTube Rankings</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-total-insight-navigating-through-googles-podcast-app/"><u>[Updated] Total Insight Navigating Through Google's Podcast App</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-trending-upwards-todays-most-effective-instagram-tags/"><u>[Updated] Trending Upwards Today's Most Effective Instagram Tags</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-elevate-your-reel-game-on-insta-with-tiktoks-best-practices/"><u>In 2024, Elevate Your Reel Game on Insta with TikTok's Best Practices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-instagram-video-editing-tips-with-fcpx/"><u>In 2024, Mastering Instagram Video Editing Tips with FCPX</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-poco-m6-pro-4g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Poco M6 Pro 4G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-iphone-14-pro-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for iPhone 14 Pro and Android Phones</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premier-online-repositories-for-typography-for-2024/"><u>Premier Online Repositories for Typography for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-samsung-galaxy-f04-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Samsung Galaxy F04 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210746086-9798885044820-the-intuition-experiment/"><u>The Intuition Experiment | Free Book</u></a></li>
+</ul></div>
 

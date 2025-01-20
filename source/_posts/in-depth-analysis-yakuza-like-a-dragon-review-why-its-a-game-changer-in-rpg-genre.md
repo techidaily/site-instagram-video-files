@@ -1,7 +1,7 @@
 ---
 title: "In Depth Analysis: Yakuza: Like a Dragon Review - Why It's a Game Changer in RPG Genre"
-date: 2025-01-07T16:36:28.288Z
-updated: 2025-01-13T18:42:22.932Z
+date: 2025-01-18T23:25:47.994Z
+updated: 2025-01-19T17:40:35.976Z
 categories:
   - BestProducts
 description: "This Article Describes In Depth Analysis: Yakuza: Like a Dragon Review - Why It's a Game Changer in RPG Genre"
@@ -40,12 +40,16 @@ Lifewire / Erika Rawes
 4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,10 +71,6 @@ Lifewire / Erika Rawes
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
@@ -85,6 +85,10 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  Once things open up, the story gets going in what can only be described as a true modern-day JRPG. It has many of the common tropes of a JRPG, like a party system that allows you to manage those who fight with you, turn-based combat, and a long sweeping epic filled with plenty of side quests.
@@ -94,10 +98,6 @@ Lifewire / Erika Rawes
  Yakuza: Like a Dragon is clearly inspired by games like Dragon Quest. So much so that eventually, and in a truly hilarious fashion, Kasuga begins having delusions of being a hero, and makes it his life's mission to become a hero who can save everyone around him. These delusions play out in a physical change that takes place over enemies during combat. Their eyes turn red, and their bodies change, but Kasuga is the only one who can see these changes.
 
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Gameplay: Fun, yet slow-paced at times
 
@@ -121,6 +121,10 @@ Lifewire / Erika Rawes
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Graphics: Excellent visuals
 
  The graphics and visuals are impressive. Details are accurate and in the right places. Food looks so realistic (and delicious), and there were some moments where I could even see the pores on a person's skin during cinematics.
@@ -135,10 +139,6 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
@@ -146,7 +146,7 @@ Lifewire / Erika Rawes
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
@@ -193,17 +193,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/harting-your-financial-course-the-3-step-methodology-for-estimating-youtube-income/"><u>[New] Charting Your Financial Course The 3-Step Methodology for Estimating YouTube Income</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-enhancing-your-vtuber-presence-with-premier-voice-editors-for-2024/"><u>[New] Enhancing Your VTuber Presence with Premier Voice Editors for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-audio-avenger-your-pathway-to-sound-in-story-posts/"><u>[New] In 2024, The Audio Avenger Your Pathway to Sound in Story Posts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-an-easy-way-to-amplify-your-instagram-presence-by-sharing-youtube-links-in-stories/"><u>[Updated] An Easy Way to Amplify Your Instagram Presence by Sharing YouTube Links in Stories</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/building-personalized-instagram-feed-outlines-for-2024/"><u>Building Personalized Instagram Feed Outlines for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-crafting-memes-perfecting-social-media-videos-on-fb-and-insta/"><u>In 2024, Crafting Memes Perfecting Social Media Videos on FB & Insta</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-for-apple-podcast-integration/"><u>In 2024, Step-by-Step for Apple Podcast Integration</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolving-sound-disruptions-a-comprehensive-solution-for-windows-7-8-and-11-users/"><u>Resolving Sound Disruptions: A Comprehensive Solution for Windows 7, 8, and 11 Users</u></a></li>
-<li><a href="https://howto.techidaily.com/tecno-pova-5-pro-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Pova 5 Pro Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/unmask-phony-followers-a-speedy-cost-free-approach-for-instagram-for-2024/"><u>Unmask Phony Followers A Speedy, Cost-Free Approach for Instagram for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unveiling-filmoras-most-attractive-edits/"><u>Unveiling Filmora's Most Attractive Edits</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-looking-for-a-change-top-10-adobe-premiere-elements-alternatives-to-consider/"><u>Updated 2024 Approved Looking for a Change? Top 10 Adobe Premiere Elements Alternatives to Consider</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-influence-unleashed-instas-most-stellar-personalities-ranked/"><u>[New] 2024 Approved Influence Unleashed Insta’s Most Stellar Personalities Ranked</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-perfecting-the-science-of-instagram-highlight-recovery/"><u>[New] 2024 Approved Perfecting the Science of Instagram Highlight Recovery</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/diting-excellence-sports-videos-that-stand-out/"><u>[New] Editing Excellence Sports Videos That Stand Out</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-analyzing-instagram-de-followings/"><u>[New] In 2024, Analyzing Instagram De-Followings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-web-integration-adding-youtube-playlists-easily/"><u>[New] In 2024, Web Integration Adding YouTube Playlists Easily</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-adding-sparkle-to-your-content-incorinasing-unique-story-emojis/"><u>[Updated] 2024 Approved Adding Sparkle to Your Content Incorinasing Unique Story Emojis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-enhancing-your-instareel-game-with-unbeatable-slow-motion-techniques-for-2024/"><u>[Updated] Enhancing Your InstaReel Game with Unbeatable Slow Motion Techniques for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/compact-windows-powered-systems-unveiled/"><u>Compact Windows-Powered Systems Unveiled</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-sound-blaster-z-drivers-on-windows-10-without-hassle/"><u>Download the Sound Blaster Z Drivers on Windows 10 Without Hassle</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/examining-instagram-video-selfie-credibility-questions-for-2024/"><u>Examining Instagram Video Selfie Credibility Questions for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/find-your-inner-peace-with-tiktoks-best-country-tracks-for-2024/"><u>Find Your Inner Peace with TikTok's Best Country Tracks for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/how-to-perfectly-place-music-stickers-on-instagram-content-for-2024/"><u>How to Perfectly Place Music Stickers on Instagram Content for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/selecting-the-ideal-imagery-for-remote-meetings/"><u>Selecting the Ideal Imagery for Remote Meetings</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-oculus-tech-issues/"><u>Troubleshooting Oculus Tech Issues</u></a></li>
 </ul></div>
 

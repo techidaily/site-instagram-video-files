@@ -1,7 +1,7 @@
 ---
 title: Top 5 Breakthrough AI Hardware Innovations
-date: 2025-01-12T18:57:32.873Z
-updated: 2025-01-13T19:11:19.815Z
+date: 2025-01-16T18:03:56.014Z
+updated: 2025-01-19T16:31:46.229Z
 tags:
   - chatgpt
   - open-ai
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755
 
  Unfortunately, it can be frustrating to type out everything you need ChatGPT to do over and over again. So, to save you the stress of typing out long ChatGPT prompts, we've put together five ways you can control ChatGPT with your voice.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Using the ChatGPT Mobile App
 
  Perhaps the easiest and most hassle-free way of controlling ChatGPT with your voice is by[using the official ChatGPT mobile app](https://www.makeuseof.com/how-to-use-chatgpt-on-android-and-ios/) . It is available for both Android and iOS and is quite easy to use. To control ChatGPT using your voice from the mobile app:
@@ -40,14 +44,10 @@ thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755
 
 ![Controlling ChatGPT with your voice using the mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/screenshot_2023-09-26-06-33-26-153_com-openai-chatgpt.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Controlling ChatGPT with your voice using the mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/screenshot_2023-09-26-06-32-55-011_com-openai-chatgpt.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -68,10 +68,14 @@ Close
 
 ![VoiceGPT splash screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/screenshot_2023-09-26-14-05-10-704_gpt-voice-chatgpt.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Signing into the VoiceGPT app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/screenshot_2023-09-26-16-54-32-766_gpt-voice-chatgpt.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Signing into the VoiceGPT app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/screenshot_2023-09-26-16-50-04-643_gpt-voice-chatgpt.jpg)
@@ -89,7 +93,7 @@ Close
 ![Voice typing toggle option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot_20230120-120316-copy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By utilizing the inbuilt voice typing features on your smartphone or tablet, you can use voice commands to issue prompts to ChatGPT directly on the ChatGPT chat interface.
@@ -115,10 +119,6 @@ Like Gboard, Microsoft SwiftKey is also available on iOS.
 
 **Download** : Microsoft SwiftKey for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2024483/https://play.google.com/store/apps/details?id=com.touchtype.swiftkey) |[iOS](https://apps.apple.com/us/app/microsoft-swiftkey-keyboard/id911813648) (Free)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Using Inbuilt Voice Typing on PC or Mac
 
 ![voice typing on windows using edge browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/voice-typing-on-windows-using-edge-browser.jpg)
@@ -127,23 +127,27 @@ Like Gboard, Microsoft SwiftKey is also available on iOS.
 
  ​​​​​​If you don't know how to set up or use the voice typing feature on your laptop or desktop, we have a comprehensive[guide to set up and use voice typing on Mac](https://www.makeuseof.com/tag/dictation-mac-voice-text/) and an explainer on[how to use the voice typing feature on Windows](https://www.makeuseof.com/how-to-start-voice-typing-on-windows-11/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Using Chrome Extensions
 
  If you're accessing ChatGPT on a desktop browser, another option for using voice commands is through Chrome extensions. You can use general-purpose text-to-speech Chrome extensions or those specifically designed for ChatGPT. Here are some speech-to-text Chrome extensions you can use for ChatGPT.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [Voice In](https://chrome.google.com/webstore/detail/voice-in-speech-to-text-d/pjnefijmagpdjfhhkpljicbbpicelgko)
 
 ![Voice In Chrome Extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/voice-in-chrome-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Voice In speech-to-text Chrome extension works on almost any website you can type text. Whether dictating an email on the Gmail website or speaking out prompts on the ChatGPT website, Voice In can come in handy. There are dozens of languages on offer, and it transcribes text with impressive speed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### [VoiceWave - ChatGPT Voice Control](https://chrome.google.com/webstore/detail/voicewave-chatgpt-voice-c/baahncfnjojaofhdmdfkpeadigoemkif)
 
@@ -156,10 +160,6 @@ Like Gboard, Microsoft SwiftKey is also available on iOS.
 ### [Talk-to-ChatGPT](https://chrome.google.com/webstore/detail/talk-to-chatgpt/hodadfhfagpiemkeoliaelelfbboamlk)
 
 ![talk-to-chatgpt chrome extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/talk-to-chatgpt-chrome-extension.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Although not entirely the best in design and accessibility, Talk-to-ChatGPT is one of the most widely used extensions for issuing voice commands to ChatGPT. It supports most major languages and comes with many customization features you'll find useful.
 
@@ -194,20 +194,22 @@ Like Gboard, Microsoft SwiftKey is also available on iOS.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-20-most-reliable-hashtag-tracker-tools-fbtwitterinsta-for-2024/"><u>[New] 20 Most Reliable Hashtag Tracker Tools (FB/Twitter/Insta) for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-capturing-the-extremes-adobes-hdr-creation-in-lightroom/"><u>[New] 2024 Approved Capturing the Extremes Adobe's HDR Creation in Lightroom</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-craft-impressive-content-with-proficient-video-cropping-and-exportation/"><u>[New] In 2024, Craft Impressive Content with Proficient Video Cropping & Exportation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-complete-blueprint-to-tally-your-youtube-growth-and-income/"><u>[New] In 2024, The Complete Blueprint to Tally Your YouTube Growth and Income</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-flipping-the-script-in-photography-how-angles-can-make-or-break-your-insta-posts/"><u>[Updated] 2024 Approved Flipping the Script in Photography How Angles Can Make or Break Your Insta Posts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-instagram-de-follows-quickly-for-2024/"><u>[Updated] Discovering Instagram De-Follows Quickly for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elevate-your-igtv-status-strategies-for-viewership-surge/"><u>[Updated] In 2024, Elevate Your IGTV Status Strategies for Viewership Surge</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-leveraging-instagram-for-massive-audience-growth-for-2024/"><u>[Updated] Leveraging Instagram for Massive Audience Growth for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-capture-your-discord-sessions-a-guide/"><u>2024 Approved Capture Your Discord Sessions A Guide</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-art-of-crafting-impactful-hashtags-for-instagram-content/"><u>2024 Approved The Art of Crafting Impactful Hashtags for Instagram Content</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/beginners-guide-to-mastering-manycam-with-expert-tips-and-assistance/"><u>Beginner's Guide to Mastering ManyCam with Expert Tips & Assistance</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/comprehensive-instructions-for-graphics-driver-updates-on-your-windows-11-computer/"><u>Comprehensive Instructions for Graphics Driver Updates on Your Windows 11 Computer</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-sierra-icloud-drive-integrations-and-usage/"><u>In 2024, Unlocking Sierra iCloud Drive Integrations & Usage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ating-a-thriving-youtube-channel-avoid-these-8-essential-blunders/"><u>Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-update-your-pc-with-new-toshiba-copier-drivers-on-a-windows-platform/"><u>Step-by-Step: Update Your PC with New Toshiba Copier Drivers on a Windows Platform</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-elevating-4k-video-output-on-your-devices/"><u>[New] 2024 Approved Elevating 4K Video Output on Your Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-tips-to-triple-your-instagram-video-viewers/"><u>[New] 2024 Approved Tips to Triple Your Instagram Video Viewers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-hassle-free-tactics-sharing-igtv-in-insta-stories-for-2024/"><u>[New] Hassle-Free Tactics Sharing IGTV in Insta Stories for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-expert-techniques-for-flawless-adobe-audio/"><u>[Updated] 2024 Approved Expert Techniques for Flawless Adobe Audio</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-conveniently-connect-with-others-via-your-playlist-for-2024/"><u>[Updated] Conveniently Connect with Others via Your Playlist for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-discover-top-online-rhythm-trackers-today-free/"><u>[Updated] Discover Top Online Rhythm Trackers Today! (FREE)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-expert-tips-for-adding-stunning-motion-blur-effects-to-photos/"><u>[Updated] In 2024, Expert Tips for Adding Stunning Motion Blur Effects to Photos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-melodies-for-millions-insta-music-secrets-for-2024/"><u>[Updated] Melodies for Millions Insta Music Secrets for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-social-splendor-leading-story-filter-hits/"><u>[Updated] Social Splendor Leading Story Filter Hits</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/cut-the-hassle-with-macos-easy-to-follow-video-size-adjustment-for-instagram-for-2024/"><u>Cut the Hassle with MacOS Easy-to-Follow Video Size Adjustment for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/enhancing-instagram-experience-with-in-story-captions-for-2024/"><u>Enhancing Instagram Experience with In-Story Captions for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-honor-x50-gt-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Honor X50 GT FRP</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-compreous-guide-to-recording-and-securing-periscope-videos/"><u>In 2024, A Compreous Guide to Recording & Securing Periscope Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-navigating-the-world-of-instagram-stories-easily/"><u>In 2024, Navigating the World of Instagram Stories Easily</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-parrot-ar-drone-elite-edition-expert-evaluation/"><u>In 2024, Parrot AR Drone Elite Edition – Expert Evaluation</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-exploration-essentials-for-the-messaging-novice/"><u>Room Exploration Essentials for the Messaging Novice</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/swipe-for-success-the-art-of-flipping-videos-on-instagram/"><u>Swipe for Success The Art of Flipping Videos on Instagram</u></a></li>
 </ul></div>
 

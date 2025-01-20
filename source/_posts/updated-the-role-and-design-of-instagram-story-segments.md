@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Role and Design of Instagram Story Segments"
-date: 2024-07-23T16:08:44.482Z
-updated: 2024-07-24T16:08:44.482Z
+date: 2025-01-13T17:28:03.274Z
+updated: 2025-01-19T18:41:10.495Z
 tags:
   - ai video
   - ai instagram
@@ -49,6 +49,10 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
 1. Go to your profile, click on the circle (the circular icon) with a **plus** **sign**, located directly below your **bio** and **Edit** **profile** icon.
@@ -67,6 +71,10 @@ Another way to create a highlight from archived stories is by;
 * Click **Add,** and then you are done creating a highlight.
 
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Add New Stories to a Highlight?
 
@@ -87,9 +95,6 @@ You can choose to create a highlight from your current Story, all you need to do
 * Go to your Instagram Story and click on the **Highlight** icon located at the lower right-hand corner.
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How to Delete Instagram Highlights?
 
 There are situations where you might decide you no longer want a highlight to feature on your page. Not to worry it’s there permanently only if you decide not to delete it. This is relatively easy to do. All you have to do is to;
@@ -146,9 +151,6 @@ Follow @Shanoon Cox
 
 Instagram highlights are the rage these days, and there’s a reason for this. Instagram highlights provide a means for users to draw attention to and promote their brand. With these highlights, users can showcase and categorize their best content in a fancy and eye-catching way! Amazing right? Yes, it is and this is because Instagram highlights are front and center on your profile! This is a guide to Instagram highlights which explains what they are and how to use them.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What is Instagram Highlight?
 
 Instagram highlights, also known as Instagram story highlights, were introduced on the 5th December of 2017\. An Instagram Highlight is displayed as a neat little circle on your profile. Unlike Instagram Stories that disappear after 24 hours, Instagram highlights stay on your profile permanently, until you choose to delete them. These highlights are tools designed by Instagram to enable its users to hold on to their favorite moments from their Instagram stories and share them in any way that allows them to express themselves.
@@ -159,9 +161,6 @@ Story Highlights allows you to display all sides of your personality, and you ca
 
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -172,9 +171,6 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 2. Tap on **Privacy**, then click on **Story**.
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
@@ -197,8 +193,9 @@ Another way to create a highlight from archived stories is by;
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How to Add New Stories to a Highlight?
 
 Some like to categorize their highlights by certain qualities. It can be that you want one highlight folder to contain only Stories that are related to everything shoes. Your second highlight might be customized for only images/videos of food, and your third highlight may be for only trips and vacations. However, how you choose to customize the highlights on your profile is up to you. If for instance, you decide you want to add a new story to a highlight, this is how it is done:
@@ -218,6 +215,10 @@ You can choose to create a highlight from your current Story, all you need to do
 * Go to your Instagram Story and click on the **Highlight** icon located at the lower right-hand corner.
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Delete Instagram Highlights?
 
 There are situations where you might decide you no longer want a highlight to feature on your page. Not to worry it’s there permanently only if you decide not to delete it. This is relatively easy to do. All you have to do is to;
@@ -232,9 +233,6 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Once you find the story you want to remove, click on **More,** located on the lower right-hand corner of the page.
 * Click **Remove highlight,** then you are done!
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs About Instagram Highlights
 
 **1\. Why are my Instagram highlights not showing?**
@@ -277,10 +275,6 @@ Follow @Shanoon Cox
 
 Instagram highlights are the rage these days, and there’s a reason for this. Instagram highlights provide a means for users to draw attention to and promote their brand. With these highlights, users can showcase and categorize their best content in a fancy and eye-catching way! Amazing right? Yes, it is and this is because Instagram highlights are front and center on your profile! This is a guide to Instagram highlights which explains what they are and how to use them.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Part 1: What is Instagram Highlight?
 
 Instagram highlights, also known as Instagram story highlights, were introduced on the 5th December of 2017\. An Instagram Highlight is displayed as a neat little circle on your profile. Unlike Instagram Stories that disappear after 24 hours, Instagram highlights stay on your profile permanently, until you choose to delete them. These highlights are tools designed by Instagram to enable its users to hold on to their favorite moments from their Instagram stories and share them in any way that allows them to express themselves.
@@ -291,9 +285,6 @@ Story Highlights allows you to display all sides of your personality, and you ca
 
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -326,8 +317,9 @@ Another way to create a highlight from archived stories is by;
 Above are the ways to create highlights on Instagram from Archive. They are pretty easy as long as you follow instructions correctly.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How to Add New Stories to a Highlight?
 
 Some like to categorize their highlights by certain qualities. It can be that you want one highlight folder to contain only Stories that are related to everything shoes. Your second highlight might be customized for only images/videos of food, and your third highlight may be for only trips and vacations. However, how you choose to customize the highlights on your profile is up to you. If for instance, you decide you want to add a new story to a highlight, this is how it is done:
@@ -347,9 +339,6 @@ You can choose to create a highlight from your current Story, all you need to do
 * Go to your Instagram Story and click on the **Highlight** icon located at the lower right-hand corner.
 * Click on the **plus** **sign** if you want to create a new highlight, customize the name of the highlight and click
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How to Delete Instagram Highlights?
 
 There are situations where you might decide you no longer want a highlight to feature on your page. Not to worry it’s there permanently only if you decide not to delete it. This is relatively easy to do. All you have to do is to;
@@ -392,9 +381,6 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 * Branding! Highlights are a great way to talk about your brand, what it stands for, who it represents and more.
 * Organization! Unlike the regular Instagram feed, Highlights are a great way to keep your content organized. By choosing a name and cover image that represents the content in your Highlight, you can keep your information in succinct places.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -420,8 +406,9 @@ Story Highlights allows you to display all sides of your personality, and you ca
 An amazing feature of Instagram highlights is that you can group your stories into sections and create them as folder sections (i.e highlights) on your profile. Once you post a story, you can save it in a Highlight (which is like a folder) and that will automatically be featured on your profile permanently until you decide to delete it or archive it. With this tool, you can design your profile in a unique way that best expresses you.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How to Create Instagram Highlights from Stories Archive?
 
 As mentioned above, Highlights are created through your Stories. You have two options for creating a Highlight. The first is that you either create a Highlight from a current Story or your Stories Archive.
@@ -432,19 +419,11 @@ Your Stories Archive is a feature that when enabled, ensures your Stories are au
 2. Tap on **Privacy**, then click on **Story**.
 3. Scroll down till you see **Saving,** then turn on **Save story to archive.**
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Instagram Highlight Archive](https://images.wondershare.com/filmora/article-images/save-story-to-archive-instagram.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you choose to create Highlights from your Stories archive, this is how you go about it:
 
@@ -499,9 +478,9 @@ If for instance, you decide that you want to remove some stories from a highligh
 * Click **Remove highlight,** then you are done!
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## FAQs About Instagram Highlights
 
 **1\. Why are my Instagram highlights not showing?**
@@ -531,6 +510,10 @@ attire need to be easy to find. You create a Highlight that you refer them to so
 * Organization! Unlike the regular Instagram feed, Highlights are a great way to keep your content organized. By choosing a name and cover image that represents the content in your Highlight, you can keep your information in succinct places.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -549,8 +532,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -559,7 +540,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-surge-your-viewer-numbers-a-comprehensive-guide-to-youtube-growth/"><u>[New] 2024 Approved Surge Your Viewer Numbers A Comprehensive Guide to YouTube Growth</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-unlock-professional-graphics-custom-templates-on-the-house/"><u>[New] 2024 Approved Unlock Professional Graphics - Custom Templates on the House</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-blueprints-for-success-top-10-insights-into-instagram-video-marketing/"><u>[New] In 2024, Blueprints for Success Top 10 Insights Into Instagram Video Marketing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-momentum-in-pictures-a-curated-list-of-ig-motivation/"><u>[Updated] 2024 Approved Momentum in Pictures A Curated List of IG Motivation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-your-complete-insiders-handbook-on-instagram-reels/"><u>[Updated] In 2024, Your Complete Insider's Handbook on Instagram Reels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-integrate-audio-magic-the-secrets-of-musical-stories-on-instagram-for-2024/"><u>[Updated] Integrate Audio Magic The Secrets of Musical Stories on Instagram for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pixel-perfect-photography-excelling-in-the-best-6-4k-dslrs/"><u>[Updated] Pixel Perfect Photography Excelling in the Best 6 4K DSLRs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unlock-the-potential-of-paid-endorsements-with-these-tips/"><u>[Updated] Unlock the Potential of Paid Endorsements with These Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/advanced-techniques-for-using-the-instagram-sticker-question-mark-for-2024/"><u>Advanced Techniques for Using the Instagram Sticker Question Mark for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/bringing-youtube-home-to-your-instagram-story-for-2024/"><u>Bringing YouTube Home to Your Instagram Story for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/discovering-the-best-in-class-9-microphone-recorders-reviewed-for-2024/"><u>Discovering the Best in Class 9 Microphone Recorders Reviewed for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-creating-ken-burns-transitions-in-camtasia-9-a-step-by-step-guide/"><u>In 2024, Creating Ken Burns Transitions in Camtasia 9 A Step-by-Step Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-effective-solutions-to-keep-your-minecraft-from-crashing/"><u>Step by Step: Effective Solutions to Keep Your Minecraft From Crashing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-instagram-circle-of-power-the-leading-25-titans-revealed/"><u>The Instagram Circle of Power The Leading 25 Titans Revealed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unlock-the-full-potential-of-instagram-stories-for-2024/"><u>Unlock the Full Potential of Instagram Stories for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Step-by-Step  Producing Shareable Videos as Memes on Social Media\""
-date: 2025-01-06T21:23:12.841Z
-updated: 2025-01-13T17:04:42.130Z
+date: 2025-01-15T17:25:02.748Z
+updated: 2025-01-19T23:40:40.723Z
 tags:
   - ai video
   - ai instagram
@@ -30,6 +30,194 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
 * [**Part1: Facebook and Instagram specs**](#part1)
 * [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Facebook and Instagram specs
+
+ Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
+
+### Facebook
+
+ Videos on Facebook are virally consumed every year at a large scale. This is the reason online marketers emphasize more on the right Facebook video specs. On an [average 45% users at least consume one hour of video per week over Facebook or YouTube](https://www.wordstream.com/blog/ws/2017/03/08/video-marketing-statistics). The real challenge for business owners is, deciding the right type of videos to post! Depending the video format, the specs and dimensions differ which might confuse you.
+
+| |  Video resolution | Minimum width           | Aspect ratio | Max video size | Recommended video formats |         |
+| ------------------- | ----------------------- | ------------ | -------------- | ------------------------- | ------- |
+| Facebook            | 1280x720                | 600 pixels   | 16:9/9:16      | 4GB                       | MP4/MOV |
+| Instagram           | 600x315/600x600/600x750 | /            | 1.91:1/1:1/4:5 | 4GB                       | MP4/MOV |
+
+ Here is a quick guide –
+
+ Shared posts are the most common video types that stay on your Facebook feed which others can share. Though, it’s tough to get organic reach on Facebook. It’s one of the most effective methods for sharing videos. There are 2 popular video orientations ‘Landscape’ and ‘Portrait’ for that matter.
+
+* Landscape and portrait videos need to be of 1280X720.
+* The width should at least be 600 pixels.
+* Aspect ratio for landscape is 16:9 and portrait is 9:16 (16:9 when video has a link).
+* On mobile both the video types aspect ratio remains 2:3.
+* The recommended formats are .MP4 and .MOV with 4GB maximum file size limit.
+* Video should have 30fps max frames and length needs to be 120 minutes at max.
+* Maximum word count is 2,200 characters but 90 characters is recommended for links.
+* Link description is 30 characters max with 25 characters long headline.
+
+### Instagram
+
+ When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
+
+* The minimum resolution for videos in landscape, vertical, and square is 600X315, 600X750, and 600X600 respectively.
+* Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
+* The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
+* Maximum caption and recommended are 2,200 and 125 characters respectively.
+
+## How to make a video meme for Facebook and Instagram step by step
+
+ Now, let’s see how to make a video meme for Instagram and Facebook. When you have [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/), you don’t have to worry about anything else. This online meme maker helps you make a video meme. It can also create GIF and image memes apart from video memes.
+
+ There is no need to login to an account for creating your video meme. Using drag and drop and click, you can import images, videos, and GIF easily. You can change the text color and use text in and outside the image, video or GIF as well, as you desire.
+
+ Detailed guide for Filmora online meme maker showing how to make a video meme for Instagram/Facebook –
+
+**Step 1**: On Filmora online meme maker website, click or drag for importing material. Image, GIF and video can be imported.
+
+![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
+
+**Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
+
+**Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
+
+![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
+
+**Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
+
+![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Bottom Line
+
+ From the above article, we found that [Filmora online meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is an intuitive and efficient tool to make a video meme for Instagram or Facebook. There is no other tool that can create meme videos, GIFs or images so easily. You don’t even need to download the software and occupy space on your computer, just go online and get it sorted.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
+
+ In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
+
+* [**Part1: Facebook and Instagram specs**](#part1)
+* [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
+
+## Facebook and Instagram specs
+
+ Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Facebook
+
+ Videos on Facebook are virally consumed every year at a large scale. This is the reason online marketers emphasize more on the right Facebook video specs. On an [average 45% users at least consume one hour of video per week over Facebook or YouTube](https://www.wordstream.com/blog/ws/2017/03/08/video-marketing-statistics). The real challenge for business owners is, deciding the right type of videos to post! Depending the video format, the specs and dimensions differ which might confuse you.
+
+| |  Video resolution | Minimum width           | Aspect ratio | Max video size | Recommended video formats |         |
+| ------------------- | ----------------------- | ------------ | -------------- | ------------------------- | ------- |
+| Facebook            | 1280x720                | 600 pixels   | 16:9/9:16      | 4GB                       | MP4/MOV |
+| Instagram           | 600x315/600x600/600x750 | /            | 1.91:1/1:1/4:5 | 4GB                       | MP4/MOV |
+
+ Here is a quick guide –
+
+ Shared posts are the most common video types that stay on your Facebook feed which others can share. Though, it’s tough to get organic reach on Facebook. It’s one of the most effective methods for sharing videos. There are 2 popular video orientations ‘Landscape’ and ‘Portrait’ for that matter.
+
+* Landscape and portrait videos need to be of 1280X720.
+* The width should at least be 600 pixels.
+* Aspect ratio for landscape is 16:9 and portrait is 9:16 (16:9 when video has a link).
+* On mobile both the video types aspect ratio remains 2:3.
+* The recommended formats are .MP4 and .MOV with 4GB maximum file size limit.
+* Video should have 30fps max frames and length needs to be 120 minutes at max.
+* Maximum word count is 2,200 characters but 90 characters is recommended for links.
+* Link description is 30 characters max with 25 characters long headline.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Instagram
+
+ When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
+
+* The minimum resolution for videos in landscape, vertical, and square is 600X315, 600X750, and 600X600 respectively.
+* Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
+* The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
+* Maximum caption and recommended are 2,200 and 125 characters respectively.
+
+## How to make a video meme for Facebook and Instagram step by step
+
+ Now, let’s see how to make a video meme for Instagram and Facebook. When you have [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/), you don’t have to worry about anything else. This online meme maker helps you make a video meme. It can also create GIF and image memes apart from video memes.
+
+ There is no need to login to an account for creating your video meme. Using drag and drop and click, you can import images, videos, and GIF easily. You can change the text color and use text in and outside the image, video or GIF as well, as you desire.
+
+ Detailed guide for Filmora online meme maker showing how to make a video meme for Instagram/Facebook –
+
+**Step 1**: On Filmora online meme maker website, click or drag for importing material. Image, GIF and video can be imported.
+
+![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
+
+**Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
+
+**Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
+
+![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
+
+**Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
+
+![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
+
+## Bottom Line
+
+ From the above article, we found that [Filmora online meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is an intuitive and efficient tool to make a video meme for Instagram or Facebook. There is no other tool that can create meme videos, GIFs or images so easily. You don’t even need to download the software and occupy space on your computer, just go online and get it sorted.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
+
+ In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
+
+* [**Part1: Facebook and Instagram specs**](#part1)
+* [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook and Instagram specs
 
  Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
@@ -57,7 +245,7 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
 * Link description is 30 characters max with 25 characters long headline.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Instagram
@@ -68,6 +256,10 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
 * Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
 * The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
 * Maximum caption and recommended are 2,200 and 125 characters respectively.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to make a video meme for Facebook and Instagram step by step
 
@@ -161,198 +353,6 @@ Follow @Ollie Mattison
 
 ![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-**Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
-
-**Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
-
-![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-**Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
-
-![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Bottom Line
-
- From the above article, we found that [Filmora online meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is an intuitive and efficient tool to make a video meme for Instagram or Facebook. There is no other tool that can create meme videos, GIFs or images so easily. You don’t even need to download the software and occupy space on your computer, just go online and get it sorted.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
-
- In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
-
-* [**Part1: Facebook and Instagram specs**](#part1)
-* [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Facebook and Instagram specs
-
- Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### Facebook
-
- Videos on Facebook are virally consumed every year at a large scale. This is the reason online marketers emphasize more on the right Facebook video specs. On an [average 45% users at least consume one hour of video per week over Facebook or YouTube](https://www.wordstream.com/blog/ws/2017/03/08/video-marketing-statistics). The real challenge for business owners is, deciding the right type of videos to post! Depending the video format, the specs and dimensions differ which might confuse you.
-
-| |  Video resolution | Minimum width           | Aspect ratio | Max video size | Recommended video formats |         |
-| ------------------- | ----------------------- | ------------ | -------------- | ------------------------- | ------- |
-| Facebook            | 1280x720                | 600 pixels   | 16:9/9:16      | 4GB                       | MP4/MOV |
-| Instagram           | 600x315/600x600/600x750 | /            | 1.91:1/1:1/4:5 | 4GB                       | MP4/MOV |
-
- Here is a quick guide –
-
- Shared posts are the most common video types that stay on your Facebook feed which others can share. Though, it’s tough to get organic reach on Facebook. It’s one of the most effective methods for sharing videos. There are 2 popular video orientations ‘Landscape’ and ‘Portrait’ for that matter.
-
-* Landscape and portrait videos need to be of 1280X720.
-* The width should at least be 600 pixels.
-* Aspect ratio for landscape is 16:9 and portrait is 9:16 (16:9 when video has a link).
-* On mobile both the video types aspect ratio remains 2:3.
-* The recommended formats are .MP4 and .MOV with 4GB maximum file size limit.
-* Video should have 30fps max frames and length needs to be 120 minutes at max.
-* Maximum word count is 2,200 characters but 90 characters is recommended for links.
-* Link description is 30 characters max with 25 characters long headline.
-
-### Instagram
-
- When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
-
-* The minimum resolution for videos in landscape, vertical, and square is 600X315, 600X750, and 600X600 respectively.
-* Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
-* The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
-* Maximum caption and recommended are 2,200 and 125 characters respectively.
-
-## How to make a video meme for Facebook and Instagram step by step
-
- Now, let’s see how to make a video meme for Instagram and Facebook. When you have [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/), you don’t have to worry about anything else. This online meme maker helps you make a video meme. It can also create GIF and image memes apart from video memes.
-
- There is no need to login to an account for creating your video meme. Using drag and drop and click, you can import images, videos, and GIF easily. You can change the text color and use text in and outside the image, video or GIF as well, as you desire.
-
- Detailed guide for Filmora online meme maker showing how to make a video meme for Instagram/Facebook –
-
-**Step 1**: On Filmora online meme maker website, click or drag for importing material. Image, GIF and video can be imported.
-
-![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
-
-**Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
-
-**Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
-
-![edit meme](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-**Step 3**: Finally, click ‘CREATE’ and let the changes take effect. Press the ‘DOWNLOAD’ button once you are happy with the changes. You can share now on your Facebook and Instagram accounts.
-
-![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
-
-## Bottom Line
-
- From the above article, we found that [Filmora online meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is an intuitive and efficient tool to make a video meme for Instagram or Facebook. There is no other tool that can create meme videos, GIFs or images so easily. You don’t even need to download the software and occupy space on your computer, just go online and get it sorted.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- When you think of video memes, Facebook and Instagram top the list as the [repository for memes](https://filmora.wondershare.com/infographic/how-to-win-meme-marketing.html). Before you understand how to make a video meme for Facebook/Instagram, first you need to understand what a meme actually means. A [meme](https://en.wikipedia.org/wiki/Meme) is nothing but a short funny video having text with the same context as that of the video. Together, the text and video turn into a laugh inducing meme that people enjoy. These memes are very easy to make and take not much time.
-
- In this article, we are going to explain how to make video memes for social media posts. Stay tuned and explore!
-
-* [**Part1: Facebook and Instagram specs**](#part1)
-* [**Part2: How to make a video meme for Facebook and Instagram**](#part2)
-
-## Facebook and Instagram specs
-
- Before knowing how to make a video meme for Instagram/Facebook, how about understanding their specs on both the platforms and get the best out of it? It is of utmost importance to know the social media specs before venturing into video marketing in these platforms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### Facebook
-
- Videos on Facebook are virally consumed every year at a large scale. This is the reason online marketers emphasize more on the right Facebook video specs. On an [average 45% users at least consume one hour of video per week over Facebook or YouTube](https://www.wordstream.com/blog/ws/2017/03/08/video-marketing-statistics). The real challenge for business owners is, deciding the right type of videos to post! Depending the video format, the specs and dimensions differ which might confuse you.
-
-| |  Video resolution | Minimum width           | Aspect ratio | Max video size | Recommended video formats |         |
-| ------------------- | ----------------------- | ------------ | -------------- | ------------------------- | ------- |
-| Facebook            | 1280x720                | 600 pixels   | 16:9/9:16      | 4GB                       | MP4/MOV |
-| Instagram           | 600x315/600x600/600x750 | /            | 1.91:1/1:1/4:5 | 4GB                       | MP4/MOV |
-
- Here is a quick guide –
-
- Shared posts are the most common video types that stay on your Facebook feed which others can share. Though, it’s tough to get organic reach on Facebook. It’s one of the most effective methods for sharing videos. There are 2 popular video orientations ‘Landscape’ and ‘Portrait’ for that matter.
-
-* Landscape and portrait videos need to be of 1280X720.
-* The width should at least be 600 pixels.
-* Aspect ratio for landscape is 16:9 and portrait is 9:16 (16:9 when video has a link).
-* On mobile both the video types aspect ratio remains 2:3.
-* The recommended formats are .MP4 and .MOV with 4GB maximum file size limit.
-* Video should have 30fps max frames and length needs to be 120 minutes at max.
-* Maximum word count is 2,200 characters but 90 characters is recommended for links.
-* Link description is 30 characters max with 25 characters long headline.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### Instagram
-
- When it comes to Instagram, it has [71% of brands with it that reach to their audience](https://sproutsocial.com/insights/instagram-stats/). Due to the high visibility rate over the internet, brand-created Instagram videos are worth investing. It has three different video formats, such as landscape, vertical, and square. Mobile being an indispensable device nowadays, accessing social networking platforms has grown tremendously. This in turn made Instagram videos a big hit, though, organic reach is comparatively less.
-
-* The minimum resolution for videos in landscape, vertical, and square is 600X315, 600X750, and 600X600 respectively.
-* Likewise, the aspect ratios for landscape, vertical, and square is 1.91:1, 1:1, and 4:5 respectively.
-* The video formats, maximum file size and maximum frames are same as Facebook videos. Though, the video size is only 60 seconds.
-* Maximum caption and recommended are 2,200 and 125 characters respectively.
-
-## How to make a video meme for Facebook and Instagram step by step
-
- Now, let’s see how to make a video meme for Instagram and Facebook. When you have [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/), you don’t have to worry about anything else. This online meme maker helps you make a video meme. It can also create GIF and image memes apart from video memes.
-
- There is no need to login to an account for creating your video meme. Using drag and drop and click, you can import images, videos, and GIF easily. You can change the text color and use text in and outside the image, video or GIF as well, as you desire.
-
- Detailed guide for Filmora online meme maker showing how to make a video meme for Instagram/Facebook –
-
-**Step 1**: On Filmora online meme maker website, click or drag for importing material. Image, GIF and video can be imported.
-
-![import meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
-
 **Step 2**: Go to the meme editor page. Click the tools from left and customize the meme. The preview window shows the changes. Try playing with fonts and texts with funny content.
 
 **Tips**: Crafting quips can make your meme more popular on Facebook and Instagram.
@@ -363,15 +363,15 @@ Follow @Ollie Mattison
 
 ![export meme](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bottom Line
 
  From the above article, we found that [Filmora online meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is an intuitive and efficient tool to make a video meme for Instagram or Facebook. There is no other tool that can create meme videos, GIFs or images so easily. You don’t even need to download the software and occupy space on your computer, just go online and get it sorted.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -400,21 +400,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-10-best-instagram-video-editor-for-android-pc-online-for-2024/"><u>[New] 10 Best Instagram Video Editor for Android, PC, Online for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-crystal-clear-captures-selecting-webcams-for-impeccable-podcasts-for-2024/"><u>[New] Crystal Clear Captures Selecting Webcams for Impeccable Podcasts for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-a-pathway-to-instagram-affordability-through-partnerships/"><u>[New] In 2024, Crafting a Pathway to Instagram Affordability Through Partnerships</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-smooth-sailing-on-instagram-bypass-video-issues/"><u>[New] In 2024, Smooth Sailing on Instagram - Bypass Video Issues</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-leveraging-descriptive-power-for-3-engaging-instagram-video-stories-for-2024/"><u>[New] Leveraging Descriptive Power for 3 Engaging Instagram Video Stories for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-transform-your-content-instagram-ready-videos-in-final-cut-pro-x/"><u>[Updated] 2024 Approved Transform Your Content Instagram-Ready Videos in Final Cut Pro X</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-transformative-techniques-podcast-covers-reimagined/"><u>[Updated] 2024 Approved Transformative Techniques Podcast Covers Reimagined</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-high-end-fb-visual-creator-free-for-2024/"><u>[Updated] High-End FB Visual Creator (FREE) for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-master-stitching-gopro-content-in-extended-panorama-videos/"><u>[Updated] Master Stitching GoPro Content in Extended Panorama Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-oppo-a1x-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Oppo A1x 5G Phone When You Forget the Password</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/guide-to-streaming-zoom-meetings-via-google-chromecast/"><u>Guide to Streaming Zoom Meetings via Google Chromecast</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-visual-storytelling-planning-strategy-on-instavideo/"><u>In 2024, Mastering Visual Storytelling Planning Strategy on InstaVideo</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mini-2-and-air-2s-luts-free-trial-then-paid-upgrade-for-2024/"><u>Mini 2 & Air 2S LUTS - Free Trial, Then Paid Upgrade for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/step-by-step-guide-to-enhancing-instagram-stories-with-photos-for-2024/"><u>Step-by-Step Guide to Enhancing Instagram Stories with Photos for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultimate-showdown-of-2024s-premier-gaming-rigs-an-in-depth-comparison/"><u>Ultimate Showdown of 2024'S Premier Gaming Rigs: An In-Depth Comparison</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-navigating-through-5-premium-stream-ready-webcams/"><u>[New] 2024 Approved Navigating Through 5 Premium Stream-Ready Webcams</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-music-magic-for-instagram-a-guide/"><u>[New] In 2024, Music Magic for Instagram A Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-your-pathway-to-instagram-stardom-top-video-strategies/"><u>[New] In 2024, Your Pathway to Instagram Stardom Top Video Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/criptwriting-101-for-aspiring-youtube-producers/"><u>[New] Scriptwriting 101 for Aspiring YouTube Producers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-frame-to-story-vertical-video-editing-guide-for-fcpx-users-on-insta-for-2024/"><u>[Updated] From Frame to Story Vertical Video Editing Guide for FCPX Users on Insta for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-luminescence-levered-5-top-videography-enhancers/"><u>[Updated] Luminescence Levered 5 Top Videography Enhancers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unleash-your-brands-potential-on-igtv-with-these-top-10-tactics/"><u>[Updated] Unleash Your Brand’s Potential on IGTV with These Top 10 Tactics</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-subtitle-creation-an-in-depth-srt-guide-with-strategies/"><u>2024 Approved Mastering Subtitle Creation An In-Depth SRT Guide with Strategies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-seamless-slideshow-on-ig/"><u>2024 Approved Seamless SlideShow on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-guide-to-respecting-musicians-rights-on-ig/"><u>2024 Approved The Ultimate Guide to Respecting Musicians' Rights on IG</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-oneplus-open-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/ignite-user-interaction-via-thoughtfully-crafted-insta-lives/"><u>Ignite User Interaction via Thoughtfully-Crafted Insta Lives</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-asmr-mastery-your-guide-to-nighttime-relaxation/"><u>In 2024, ASMR Mastery Your Guide to Nighttime Relaxation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-honor-90-promirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Honor 90 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-iphone-se-2022-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on Apple iPhone SE (2022) or iPad?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-xiaomi-redmi-note-12-5g-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Xiaomi Redmi Note 12 5G Device</u></a></li>
 </ul></div>
 

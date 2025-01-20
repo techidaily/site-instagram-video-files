@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Insta Story Focus  Zooming In & Out Techniques\""
-date: 2024-10-03T16:14:17.434Z
-updated: 2024-10-04T19:51:45.621Z
+date: 2025-01-17T19:23:35.352Z
+updated: 2025-01-19T16:09:45.766Z
 tags:
   - ai video
   - ai instagram
@@ -58,6 +58,10 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: metro.com
 
 Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We will explain to you how to zoom in/out Instagram Stories in 'Superzoom' mode in Boomerang. Press your record button longer and slide your finger up/down to zoom in/out, while recording the video for your Insta Stories. As long as you hold the button, the recording continues until it reaches the maximum duration.
@@ -65,6 +69,10 @@ Shooting a video in 'Boomerang' is exciting while creating Instagram Stories. We
 #### 4\. Hands-Free Mode
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-hands-free-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: later.com
 
@@ -79,10 +87,11 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -137,6 +146,10 @@ Image resource: later.com
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-rewind-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: techjunkie.com
 
 We know a video in 'Rewind' mode is pretty cute and funny, as the chain of events occurs in the reverse order. So, to zoom in/out while shooting one such video in 'Rewind' mode, you need to press the record button and then swipe up/down your finger, just like in the 'Normal' mode. Here also, if you remove your finger, the recording will stop. Master how to zoom in Instagram Stories, while recording in 'Rewind' mode.
@@ -144,6 +157,10 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 #### 3\. Boomerang
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: metro.com
 
@@ -159,6 +176,10 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Instagram Videos with Wondershare Filmora
 
 Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
@@ -166,17 +187,7 @@ Editing Instagram videos is not difficult at all as long as you installed a powe
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Verdict
@@ -216,16 +227,7 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to zoom in/out in Instagram Stories
@@ -266,13 +268,6 @@ There are two-options while you want to zoom in/out using the 'Hands-Free' mode.
 
 Be it a 'Boomerang', 'Rewind', 'Hands-Free', or 'Normal' mode video, learning how to zoom in Instagram Stories is sure to make your stories cool and funky.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Edit Instagram Videos with Wondershare Filmora
 
 Editing Instagram videos is not difficult at all as long as you installed a powerful yet easy-to-use video editing tool. Luckily, Wondershare Filmora is one of them because you can custom your videos with Filmora according to your needs even if you didn't take any training.
@@ -296,13 +291,6 @@ You May also like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -322,6 +310,10 @@ Here, in this article, we are going to introduce various methods of **zooming in
 * [Part 1: 4 Ways to Zoom in/out on Instagram Stories](#part1)
 * [Part 2: Edit Instagram Videos with Excellent Video Editor](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to zoom in/out in Instagram Stories
 
 #### 1\. Normal Mode
@@ -329,13 +321,6 @@ Here, in this article, we are going to introduce various methods of **zooming in
 You can zoom in/out while clicking a picture for Instagram Stories, by pinching the screen in 'Normal' mode. For recording an Insta Story video in zoom in/out mode, press the record button and slide the same finger up/down to zoom in/out.
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-normal-mode.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Image resource: later.com
 
@@ -352,13 +337,6 @@ We know a video in 'Rewind' mode is pretty cute and funny, as the chain of event
 #### 3\. Boomerang
 
 ![](https://images.wondershare.com/filmora/article-images/zoom-instagram-superzoom-mode.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Image resource: metro.com
 
@@ -424,17 +402,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-top-videography-items-for-travelers/"><u>[New] 2024 Approved Top Videography Items for Travelers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-virtual-impression-sculpting-a-playful-digital-identity/"><u>[New] Virtual Impression Sculpting a Playful Digital Identity</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-elevate-your-social-score-best-tools-for-post-and-engagement/"><u>[Updated] 2024 Approved Elevate Your Social Score Best Tools for Post and Engagement</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-a-final-farewell-to-your-instagram-world-process-and-steps/"><u>[Updated] A Final Farewell to Your Instagram World Process & Steps</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-capture-without-capsule-the-no-limit-story-saving-app-for-2024/"><u>[Updated] Capture Without Capsule The No-Limit Story Saving App for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-guide-to-eliminate-insta-suggest-feature/"><u>[Updated] Guide to Eliminate Insta Suggest Feature</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/1724313335936-dx/"><u>DXによるビジネスプロセス改革: 白板時代を超えた可視化戦略</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-tips-to-correctly-configure-mystery-speakers-in-windows-10-os/"><u>Expert Tips to Correctly Configure Mystery Speakers in Windows 10 OS</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/immediate-access-premium-iphone-data-restore-tool-purchase-today/"><u>Immediate Access: Premium iPhone Data Restore Tool – Purchase Today!</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-achieve-perfection-on-instagram-with-right-video-dimensions/"><u>In 2024, Achieve Perfection on Instagram with Right Video Dimensions</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/navigate-through-your-macs-storage-a-clear-video-explanation/"><u>Navigate Through Your Mac's Storage: A Clear Video Explanation</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-from-production-to-publication-streamlining-video-submission-for-2024/"><u>[New] From Production to Publication Streamlining Video Submission for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-how-to-download-igtv-videos-on-windows-pcmac-5-ways-for-2024/"><u>[New] How to Download IGTV Videos on Windows PC/Mac? [5 Ways] for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-securely-saving-your-instagram-videos-on-pc-and-macos/"><u>[New] Securely Saving Your Instagram Videos on PC and MacOS</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-ps2-emulators-for-ios-devices-for-2024/"><u>[Updated] Essential PS2 Emulators for IOS Devices for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-content-creator-to-earnings-expert-on-youtube/"><u>[Updated] In 2024, From Content Creator to Earnings Expert on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-insights-on-maintaining-engagement-after-algorithm-shifts/"><u>[Updated] Insights on Maintaining Engagement After Algorithm Shifts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-to-stellar-custom-shorts-thumbnails/"><u>[Updated] Step-by-Step to Stellar Custom Shorts Thumbnails</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-leading-tools-to-monitor-hashtags-on-fb-twitter-and-instagram/"><u>2024 Approved Leading Tools to Monitor Hashtags on FB, Twitter & Instagram</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/affordable-microsoft-office-2019-deal-for-pc-or-mac-users-purchase-tips-and-pricing-info/"><u>Affordable Microsoft Office 2019 Deal for PC or Mac Users – Purchase Tips & Pricing Info</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-solution-how-to-remove-that-persistent-subwoofer-rumble/"><u>Step-by-Step Solution: How to Remove That Persistent Subwoofer Rumble</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/ultimate-fixes-for-netwtw04sys-blue-screen-of-death-in-windows-11-computers/"><u>Ultimate Fixes for Netwtw04.sys Blue Screen of Death in Windows 11 Computers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unlocking-popularity-a-comprehensive-list-of-instagrams-top-25-tags-for-2024/"><u>Unlocking Popularity A Comprehensive List of Instagram's Top 25 Tags for 2024</u></a></li>
 </ul></div>
 
