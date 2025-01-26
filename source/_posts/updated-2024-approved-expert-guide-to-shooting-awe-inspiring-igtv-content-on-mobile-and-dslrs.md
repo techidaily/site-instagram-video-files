@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expert Guide to Shooting Awe-Inspiring IGTV Content on Mobile & DSLRs\""
-date: 2024-07-23T15:55:18.263Z
-updated: 2024-07-24T15:55:18.263Z
+date: 2025-01-21T16:19:39.008Z
+updated: 2025-01-25T17:46:02.996Z
 tags:
   - ai video
   - ai instagram
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/3ad0b37de8405ddff0a5f39b812ec8d893ee35987
 
 # How to Shoot IGTV Videos With Smartphone/DLSR Cameras?
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -30,9 +27,6 @@ thumbnail: https://thmb.techidaily.com/3ad0b37de8405ddff0a5f39b812ec8d893ee35987
 
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Record IGTV Videos With a Smartphone?
 
 Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
@@ -45,53 +39,9 @@ The type of video you’re trying to create determines which pieces of equipment
 
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
-## How to Shoot IGTV Videos With a DSLR Camera?
-
-Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
-
-All you need to do when recording a video for IGTV is to **turn your camera horizontally**, in order to capture the video in the **aspect ratio that matches the aspect ratio supported by the IGTV platform**. Keep in mind that videos are commonly recorded in the landscape format and that you should only shoot vertical videos if you want to upload them to a platform like IGTV that only lets its users upload videos in the portrait format.
-
-Unlike smartphones, DSLR cameras allow you to **change the lens**, which enables you to create a certain visual style by simply using a lens with a different focal length. In most cases, you’ll want to use a **standard 18-55mm lens** to record your IGTV videos because this type of lens can be used for a wide variety of different scenes. **Ultra-wide lenses** can create an entertaining effect by distorting the space depicted in the video, and they are often used to create video content for social media platforms.
-
-Shooting videos on DSLR cameras also mean that you need access to a **video editing software**, because the raw footage often contains parts you don’t want to include in the final cut of your video. Professional video editing software products like **Final Cut Pro or Premiere Pro** may be too challenging for inexperienced video editors, and if you are still learning the ropes of the trade you should try using a less demanding video editing app for Mac and PC computers like [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) or [PowerDirector](https://www.cyberlink.com/products/powerdirector-video-editing-software/features%5Fen%5FUS.html). The editing room is where your next IGTV video is going to get its final form, and you shouldn’t skip this step of the video production process just because it is time-consuming. If you want to impress your audience on IGTV you should work slowly and relentlessly on your footage until you are perfectly happy with the result.
-
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**Conclusion**
-
-You don’t have to be a professional in order to record an IGTV video, but you still need to have at least basic knowledge about how cameras work and how you can use them to create vertical videos. Do you use a DSLR camera or Smartphone to record IGTV videos? Which one do you like using more? Leave a comment and lets us know.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
-
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Record IGTV Videos With a Smartphone?
-
-Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
-
-However, iPhones and Android devices are incredibly light and keeping them perfectly steady in your hand while recording is often difficult. That’s why you need a **tripod for your Smartphone** that will ensure that the footage is free of camera shakes. Both iOS and Android-based devices have their **native camera app** you can use to record IGTV videos, but if you would like to have **professional camera features** at your disposal during video recording sessions you should consider installing an app like [ProMovie](http://promovieapp.com/) or [Cinema FV-5](http://cinemafv5.com/) on your phone.
-
-**Built-in microphones on Smartphones** often pick up background noises or capture sound in low quality, so if you’re shooting your IGTV videos in less than perfect conditions, using an **external microphone** instead of the one on your phone might improve the quality of your video significantly. Optionally, you can skip recoding audio altogether and add music to your IGTV videos in the post-production.
-
-The type of video you’re trying to create determines which pieces of equipment you’re going to need, since shooting a simple video of you walking down the street is quite different from recording an interview.
-
-**You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
@@ -124,8 +74,9 @@ Follow @Shanoon Cox
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Record IGTV Videos With a Smartphone?
 
 Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
@@ -139,8 +90,63 @@ The type of video you’re trying to create determines which pieces of equipment
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## How to Shoot IGTV Videos With a DSLR Camera?
+
+Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
+
+All you need to do when recording a video for IGTV is to **turn your camera horizontally**, in order to capture the video in the **aspect ratio that matches the aspect ratio supported by the IGTV platform**. Keep in mind that videos are commonly recorded in the landscape format and that you should only shoot vertical videos if you want to upload them to a platform like IGTV that only lets its users upload videos in the portrait format.
+
+Unlike smartphones, DSLR cameras allow you to **change the lens**, which enables you to create a certain visual style by simply using a lens with a different focal length. In most cases, you’ll want to use a **standard 18-55mm lens** to record your IGTV videos because this type of lens can be used for a wide variety of different scenes. **Ultra-wide lenses** can create an entertaining effect by distorting the space depicted in the video, and they are often used to create video content for social media platforms.
+
+Shooting videos on DSLR cameras also mean that you need access to a **video editing software**, because the raw footage often contains parts you don’t want to include in the final cut of your video. Professional video editing software products like **Final Cut Pro or Premiere Pro** may be too challenging for inexperienced video editors, and if you are still learning the ropes of the trade you should try using a less demanding video editing app for Mac and PC computers like [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) or [PowerDirector](https://www.cyberlink.com/products/powerdirector-video-editing-software/features%5Fen%5FUS.html). The editing room is where your next IGTV video is going to get its final form, and you shouldn’t skip this step of the video production process just because it is time-consuming. If you want to impress your audience on IGTV you should work slowly and relentlessly on your footage until you are perfectly happy with the result.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Conclusion**
+
+You don’t have to be a professional in order to record an IGTV video, but you still need to have at least basic knowledge about how cameras work and how you can use them to create vertical videos. Do you use a DSLR camera or Smartphone to record IGTV videos? Which one do you like using more? Leave a comment and lets us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## How to Record IGTV Videos With a Smartphone?
+
+Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
+
+However, iPhones and Android devices are incredibly light and keeping them perfectly steady in your hand while recording is often difficult. That’s why you need a **tripod for your Smartphone** that will ensure that the footage is free of camera shakes. Both iOS and Android-based devices have their **native camera app** you can use to record IGTV videos, but if you would like to have **professional camera features** at your disposal during video recording sessions you should consider installing an app like [ProMovie](http://promovieapp.com/) or [Cinema FV-5](http://cinemafv5.com/) on your phone.
+
+**Built-in microphones on Smartphones** often pick up background noises or capture sound in low quality, so if you’re shooting your IGTV videos in less than perfect conditions, using an **external microphone** instead of the one on your phone might improve the quality of your video significantly. Optionally, you can skip recoding audio altogether and add music to your IGTV videos in the post-production.
+
+The type of video you’re trying to create determines which pieces of equipment you’re going to need, since shooting a simple video of you walking down the street is quite different from recording an interview.
+
+**You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
 Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
@@ -171,9 +177,6 @@ Follow @Shanoon Cox
 
 Instagram has been growing in popularity for a number of years, and the recent addition of the IGTV has only made the platform more diverse in terms of options it offers to its users. Before IGTV was launched the maximum duration of a video on Instagram was limited to just one minute, which made this platform better suited for photos than videos. Today you can upload videos that last up to ten minutes regardless of the type of account you have, and if you own a verified account you can even share hour-long videos on your channel. In case you were trying to find out how you can shoot IGTV videos with your Smartphone or DSLR camera, you’re at the right place because in this article we are going to show you how to create videos that are going to impress your followers.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Record IGTV Videos With a Smartphone?
 
 Before you can actually start uploading videos to IGTV, you first need to create your own channel. Once you’ve managed this step, you can then proceed to check if you have all the equipment you need to record a video. Obviously, you’re going to need a Smartphone that has a relatively **powerful rear camera capable of capturing videos in HD or Ultra HD quality**. You can only upload **vertically oriented videos** to IGTV, which is why it is slightly easier to record an IGTV video with a Smartphone than it is with a DSLR camera.
@@ -186,9 +189,6 @@ The type of video you’re trying to create determines which pieces of equipment
 
 **You may also like:** [\>> Blue Screen VS Green Screen: All You Need to Know](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Shoot IGTV Videos With a DSLR Camera?
 
 Learning how to operate a DLSR camera takes time and practice, so in order to capture professional-looking videos, you need to use the camera as often as you can. Adjusting the exposure value or pulling focus manually may seem difficult when you first start producing videos, but learning how to do these things will make you a better cinematographer, and it will enable you to create brilliant content for your IGTV channel.
@@ -224,8 +224,6 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,7 +232,16 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-expressive-authenticity-learning-to-alter-voice-on-ig-for-2024/"><u>[Updated] Expressive Authenticity Learning to Alter Voice on IG for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-transitioning-instagram-video-to-mp3-format/"><u>[Updated] In 2024, Transitioning Instagram Video to Mp3 Format</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-tracking-your-followers-departure-for-2024/"><u>[Updated] Instagram Tracking Your Followers' Departure for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-supercharge-your-social-media-best-apps-for-post-and-followers/"><u>2024 Approved Supercharge Your Social Media Best Apps for Post & Followers</u></a></li>
+<li><a href="https://win-best.techidaily.com/ssd-windows-11-cd-cd/"><u>如何在SSD電池上安裝 Windows 11 - CD卡式或沒有 CD</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/convert-mp4-a-wmv-free-online-effortless-video-conversion-with-movavi/"><u>Convert MP4 a WMV Free Online - Effortless Video Conversion with Movavi</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/prime-mp4-fb-file-shifter/"><u>Prime MP4-FB File Shifter</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unearthing-springs-full-potential-for-desktop-recorders/"><u>Unearthing Spring's Full Potential for Desktop Recorders</u></a></li>
+</ul></div>
 

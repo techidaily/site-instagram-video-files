@@ -1,7 +1,7 @@
 ---
 title: Device Reactivated - All Clear
-date: 2025-01-12T23:05:21.444Z
-updated: 2025-01-19T16:04:15.094Z
+date: 2025-01-20T17:30:29.354Z
+updated: 2025-01-25T23:24:06.379Z
 tags:
   - win11
   - win10
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b988610e117a.png)
 
 If you encounter**This device is disabled. (Code 22)**in Device Manager, here are 4 solutions you can try to fix it. You may not have to try them all. Just work your way down the list until you find the one that works.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -40,15 +36,11 @@ Code 22 occurs usually because your device is manually disabled. Then manually e
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e3f572c04.png)
 3. Expand the category that your device belongs to, right-click your device and select**Enable device** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e536637bc.jpg)
 If the problem persists, try the next fix.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ---
@@ -64,11 +56,11 @@ Driver errors like Code 22 can often be fixed by updating device drivers. You ca
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecfc678b7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3: Uninstall your device driver
 
@@ -79,6 +71,10 @@ Uninstalling your device driver is another solution you can try to fix **This de
 2. Restart your computer, and Windows will automatically reinstall the driver for your device.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 4: Reset the BIOS settings
 
@@ -97,13 +93,17 @@ If the above steps don’t work for you, to fix driver error code 22, you can tr
  Example – CMOS battery on a laptop
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Remember which direction the battery is installed. Usually the engraved side, the positive side, is face up. Then, remove the CMOS battery from the main board (most can simply be popped out).![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c58fd6ffe.jpg)
 6. Wait for about one or two minutes for the CMOS to reset itself to its defaults.
 
 7. Place the battery back in the housing, seal your computer’s case, and start your computer. Your BIOS should have reset itself, re-enabling your graphics device in the process.![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c68d02c94.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ---
 
@@ -126,22 +126,24 @@ Please do reply if you got your problem fixed.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-visualverve-tips-for-resizing-images-in-instagram/"><u>[New] 2024 Approved VisualVerve Tips for Resizing Images in Instagram</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-identifying-trends-analyzing-the-success-of-your-igtv-video/"><u>[New] Identifying Trends Analyzing the Success of Your IGTV Video</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unleash-joy-and-sadness-with-these-10-best-ig-meme-communities/"><u>[New] In 2024, Unleash Joy and Sadness with These 10 Best IG Meme Communities</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/treamlined-strategies-for-joining-your-youtube-videos/"><u>[New] Streamlined Strategies for Joining Your YouTube Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-how-to-record-vimeo/"><u>[Updated] 2024 Approved How to Record Vimeo?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unlock-new-horizons-best-6-instagram-reel-apps/"><u>[Updated] In 2024, Unlock New Horizons Best 6 Instagram Reel Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-viral-vortex-keywords-that-propel-you-into-social-media-spotlight/"><u>[Updated] In 2024, Viral Vortex Keywords that Propel You Into Social Media Spotlight</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instant-interaction-the-art-of-crafting-instagram-stories-questions-for-2024/"><u>[Updated] Instant Interaction The Art of Crafting Instagram Stories Questions for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-six-best-film-alternates-ranked-7-picks/"><u>[Updated] Six Best Film Alternates Ranked #7 Picks</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-creative-edge-pushing-boundaries-in-photography/"><u>2024 Approved The Creative Edge Pushing Boundaries in Photography</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-ultimate-list-10-prime-video-cameras-for-pcs/"><u>2024 Approved Ultimate List 10 Prime Video Cameras for PCs</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/exploring-windows-11-discover-the-different-file-sharing-options-offered/"><u>Exploring Windows 11: Discover the Different File Sharing Options Offered</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-best-practices-for-using-vimeo-in-instagram-shots/"><u>In 2024, Best Practices for Using Vimeo in Instagram Shots</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-vivo-y27-4g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Vivo Y27 4G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/no-sound-in-windows-11-expert-fixes-for-hp-laptop-audio-malfunctions/"><u>No Sound in Windows 11? Expert Fixes for HP Laptop Audio Malfunctions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/premier-tools-for-video-creation-on-android-and-desktop-oses/"><u>Premier Tools for Video Creation on Android & Desktop OSes</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-dull-to-dynamic-top-5-ai-writing-catalysts/"><u>Transforming Dull to Dynamic: Top 5 AI Writing Catalysts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-innovative-methods-screen-capturing-on-instagram/"><u>[New] 2024 Approved Innovative Methods Screen Capturing on Instagram</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-digital-image-detail-enhancement-with-top-frameer-tools-for-2024/"><u>[New] Digital Image Detail Enhancement with Top Frameer Tools for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-harnessing-gopros-power-for-compelling-time-lapse-clips/"><u>[New] Harnessing GoPro's Power for Compelling Time-Lapse Clips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-shifting-gender-identity-in-online-profile-pictures-for-2024/"><u>[New] Shifting Gender Identity in Online Profile Pictures for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-bridging-visuals-and-audio-instagram-content-to-mp3-magic/"><u>[Updated] 2024 Approved Bridging Visuals & Audio Instagram Content to Mp3 Magic</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-enhancing-vision-10-superb-text-methods-for-media-for-2024/"><u>[Updated] Enhancing Vision 10 Superb Text Methods for Media for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-insta-stats-spotlight-pinpointing-viewers-of-your-photos/"><u>[Updated] In 2024, Insta Stats Spotlight Pinpointing Viewers of Your Photos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-etiquette-ceasing-connections/"><u>[Updated] Instagram Etiquette Ceasing Connections</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instaharmony-androidplusios-photo-video-alchemy-for-2024/"><u>[Updated] InstaHarmony Android+iOS Photo-Video Alchemy for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-whos-watching-your-guide-to-instagram-eye-rolls-count/"><u>[Updated] Who's Watching? Your Guide to Instagram Eye-Rolls Count</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagram-video-collage-app-for-androidandios/"><u>2024 Approved Instagram Video Collage App for Android&iOS</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-tecno-spark-10-5g-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-tecno-camon-20-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Tecno Camon 20</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-x90s-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo X90S Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-s17-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo S17 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlocking-the-power-of-instagram-stories-with-this-essential-guide/"><u>In 2024, Unlocking the Power of Instagram Stories with This Essential Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-new-frontiers-a-guide-to-metaverse-promotion-for-2024/"><u>Navigating New Frontiers A Guide to Metaverse Promotion for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-art-of-repeated-imagery-in-instagram-videos/"><u>The Art of Repeated Imagery in Instagram Videos</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
 </ul></div>
 

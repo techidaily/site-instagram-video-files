@@ -1,7 +1,7 @@
 ---
 title: Choosing Your Next Console? A Comprehensive Review of Switch Lite & OLED Variants
-date: 2025-01-12T19:09:13.252Z
-updated: 2025-01-19T21:38:05.375Z
+date: 2025-01-18T19:07:05.273Z
+updated: 2025-01-25T16:30:03.991Z
 categories:
   - BestProducts
 description: This Article Describes Choosing Your Next Console? A Comprehensive Review of Switch Lite & OLED Variants
@@ -63,7 +63,7 @@ Lifewire / Kelsey Simon
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Simple for all users**
@@ -71,6 +71,10 @@ Lifewire / Kelsey Simon
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -93,7 +97,7 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -118,17 +122,9 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -144,15 +140,15 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -166,6 +162,10 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
@@ -173,7 +173,7 @@ Lifewire / Kelsey Simon
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -198,22 +198,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-experts-to-follow-on-igtv/"><u>[New] 2024 Approved Experts to Follow on IGTV</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-top-techniques-for-professional-looking-ig-video-content/"><u>[New] 2024 Approved Top Techniques for Professional-Looking IG Video Content</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-crafting-captivating-chronicles-the-worlds-best-schools-top-8-for-2024/"><u>[New] Crafting Captivating Chronicles The World's Best Schools (Top 8) for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-how-to-reverse-video-on-instagram/"><u>[New] How to Reverse Video on Instagram</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-compelling-instagram-stories-a-guide-to-scaled-visuals/"><u>[New] In 2024, Crafting Compelling Instagram Stories A Guide to Scaled Visuals</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-perfect-guide-youtube-videos-on-instagram-feed/"><u>[Updated] 2024 Approved Perfect Guide YouTube Videos on Instagram Feed</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mastering-identity-change-on-google-meet-via-pc-and-phone/"><u>[Updated] In 2024, Mastering Identity Change on Google Meet via PC & Phone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-to-facebook-in-a-flash-easy-connection-methods/"><u>[Updated] Instagram to Facebook in a Flash Easy Connection Methods</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-the-insiders-guide-to-recording-on-itunes-for-2024/"><u>[Updated] The Insider's Guide to Recording on iTunes for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-top-6-instagram-money-calculator-safe-and-effective/"><u>[Updated] Top 6 Instagram Money Calculator - Safe & Effective</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagram-filming-perfecting-the-chroma-key-effect/"><u>2024 Approved Instagram Filming Perfecting the Chroma Key Effect</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-optimize-your-watch-time-on-instagram-videos/"><u>2024 Approved Optimize Your Watch Time on Instagram Videos</u></a></li>
-<li><a href="https://win-blog.techidaily.com/accelerate-your-downloads-on-origin-with-these-essential-tricks-for-faster-internet-speeds/"><u>Accelerate Your Downloads on Origin with These Essential Tricks for Faster Internet Speeds</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-guide-for-iphone-x-lock-screen-by-drfone-ios/"><u>Complete Guide For iPhone X Lock Screen</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/editing-excellence-incorporating-timestamps-and-labels-for-2024/"><u>Editing Excellence Incorporating Timestamps and Labels for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-acer-2-in-1s-touch-functionality-back-with-updated-drivers-for-windows-11-download/"><u>Get Your Acer 2-In-1's Touch Functionality Back with Updated Drivers for Windows 11 [Download]</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On OnePlus Open? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-decoding-music-copyright-rules-in-the-world-of-instagram/"><u>[New] 2024 Approved Decoding Music Copyright Rules in the World of Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-twisting-the-tale-a-comprehensively-dual-angled-approach-for-insta-posts/"><u>[New] 2024 Approved Twisting the Tale A Comprehensively Dual-Angled Approach for Insta Posts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-navigating-through-8-free-crossover-video-meeting-software-for-2024/"><u>[New] Navigating Through 8 Free, Crossover Video Meeting Software for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-smiles-snorts-and-sighs-the-finest-meme-accounts-on-ig-for-2024/"><u>[New] Smiles, Snorts & Sighs The Finest Meme Accounts on IG for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-art-of-audio-alteration-for-stories-and-reels-on-ig/"><u>[New] The Art of Audio Alteration For Stories and Reels on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-10plus-best-instagram-video-editor-for-pc-online-android/"><u>[Updated] 10+ Best Instagram Video Editor for PC, Online, Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-desktoponline-passport-picture-creation-10-per-person/"><u>[Updated] In 2024, Desktop/Online Passport Picture Creation - 10 Per Person</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-key-elements-in-asmr-video-content-for-2024/"><u>[Updated] Key Elements in ASMR Video Content for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-quick-guide-to-sharing-your-favorite-gifs-on-instagram-for-2024/"><u>[Updated] Quick Guide to Sharing Your Favorite GIFs on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-professional-insights-for-perfecting-your-instagram-aesthetics/"><u>2024 Approved Professional Insights for Perfecting Your Instagram Aesthetics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-synchronizing-with-instagram-perfect-video-integration/"><u>2024 Approved Synchronizing With Instagram Perfect Video Integration</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descubre-la-forma-facil-y-efectiva-de-clonar-discos-dvd-en-su-mac-con-big-sur-sin-comprometer-la-calidad-visual/"><u>Descubre La Forma Fácil Y Efectiva De Clonar Discos DVD en Su Mac Con Big Sur Sin Comprometer La Calidad Visual</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/enhance-your-wi-fi-experience-the-essentials-of-wireless-software-and-driver-refresh-on-windows-pcs/"><u>Enhance Your Wi-Fi Experience: The Essentials of Wireless Software and Driver Refresh on Windows PCs</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-lava-blaze-curve-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Lava Blaze Curve 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-reviving-your-visual-story-adding-instagrams-flavor-to-old-photosvideos/"><u>In 2024, Reviving Your Visual Story Adding Instagram's Flavor to Old Photos/Videos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-honor-90-lite-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Honor 90 Lite</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/itunes-m4v-to-drm-free-mp4-top-video-converter-tools-and-tips/"><u>ITunes M4V to DRM-Free MP4: Top Video Converter Tools & Tips</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/journey-upgrade-unlock-pro-features-of-copilot/"><u>Journey Upgrade - Unlock Pro Features of Copilot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/troubleshooting-and-resolving-windows-11-invalid-data-access-issues-for-smoother-operation/"><u>Troubleshooting and Resolving Windows 11 Invalid Data Access Issues for Smoother Operation</u></a></li>
 </ul></div>
 
