@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Making Impeccable Square Videos in iMovie for Instagram"
-date: 2024-07-23T15:51:11.306Z
-updated: 2024-07-24T15:51:11.306Z
+date: 2025-02-05T17:34:58.645Z
+updated: 2025-02-07T18:57:49.063Z
 tags:
   - ai video
   - ai instagram
@@ -19,15 +19,6 @@ thumbnail: https://thmb.techidaily.com/92d4d3774b8fd498c6cfb488cbb5cb9a7cceb0aea
 
 # How to Create a Square Video for Instragram in iMovie?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -74,9 +65,6 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -221,6 +209,10 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -247,9 +239,6 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
 
 iMovie does not allow you to make square videos! You won't be able to convert your video to square dimensions because there isn't a way to do it. We'll edit the video in iMovie and then modify the proportions in Keynote. Only Keynote will be used to crop the video into square dimensions. On Mac OS, Keynote is a presentation program that comes preloaded. First, use iMovie to edit your video as you typically would. Make all of the necessary modifications to the audio and video. Make use of iMovie's special editing features. After you've finished editing the video, export it from iMovie.
@@ -273,6 +262,10 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 **Step #8\.** Finally, click "File" > "Export To" > "Movie..." to export the video. There will be a popup window. Choose a video resolution and then click **Next**.
 
 **Step #9\.** Select a location to save your square video and then click **Export**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
 
@@ -317,6 +310,10 @@ The result of the reframing can be seen in the preview box after it begins. The 
 These steps have been written as an easy guide. Following them step by step is an assurance for having a perfect square video that thrills your viewers or followers. If you ever need to refer to the steps when stuck, don't hesitate to go over them again and again until you master this art. Now, you can edit your videos without much experience and share square videos on your Instagram page or any social media you wish to share them.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -368,9 +365,6 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -422,8 +416,9 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 **Step #9\.** Select a location to save your square video and then click **Export**.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
 
 Facebook is dominating the top ranks in video consumption platforms across the internet, thanks to its high video consumption rate. Though it includes both landscape and square films, as an influencer, you must determine if square or landscape movies perform better on Facebook. Both types of films have their own space on Facebook, but you may always choose square videos to gain an advantage. We are delighted to assist you if you are unclear on how to generate square videos on Facebook. We'll show you how to make square movies that you can share on Facebook to achieve greater internet visibility in this article.
@@ -467,6 +462,10 @@ The result of the reframing can be seen in the preview box after it begins. The 
 These steps have been written as an easy guide. Following them step by step is an assurance for having a perfect square video that thrills your viewers or followers. If you ever need to refer to the steps when stuck, don't hesitate to go over them again and again until you master this art. Now, you can edit your videos without much experience and share square videos on your Instagram page or any social media you wish to share them.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -518,9 +517,6 @@ A guide to adding titles and credits to the cart is also included in the templat
 
 Let's look at how to generate square movies for Instagram with iMovie now.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. How to Make a Square Video for Instagram in iMovie on iPhone?
 
 Videos are a fantastic way to keep memories alive, but some social media platforms - specifically, Instagram - demand videos to be a certain size and length before they can be uploaded. Fortunately, cropping your video before sharing it is a straightforward process. Here are some pointers to help you crop a movie and modify the screen size to whatever you want. Cropping your films is useful for a variety of reasons. Perhaps you'd like to focus on a specific component of the film or get rid of your thumb from the screen's corner. You'll need iMovie, which comes preloaded on most iPhones, to crop a video on your iPhone. If your phone does not already have iMovie, you may get it for free from the App Store. The size or aspect ratio of your video will not change if you use this method. It will just zoom in on your video and possibly crop out any unwanted things.
@@ -547,6 +543,10 @@ To use the crop/zoom feature in iMovie on iPhone, follow these steps:
 
 **Step #10\.** To save your movie to your Camera Roll, tap the square with an arrow icon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. How to Make a Square Video in iMovie on Mac?
 
 iMovie does not allow you to make square videos! You won't be able to convert your video to square dimensions because there isn't a way to do it. We'll edit the video in iMovie and then modify the proportions in Keynote. Only Keynote will be used to crop the video into square dimensions. On Mac OS, Keynote is a presentation program that comes preloaded. First, use iMovie to edit your video as you typically would. Make all of the necessary modifications to the audio and video. Make use of iMovie's special editing features. After you've finished editing the video, export it from iMovie.
@@ -571,9 +571,6 @@ Let's adjust the dimensions of your video to square using Keynote now that you'v
 
 **Step #9\.** Select a location to save your square video and then click **Export**.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus Tip - How to Easily Make a Square Video for Social Media on Mac?
 
 Facebook is dominating the top ranks in video consumption platforms across the internet, thanks to its high video consumption rate. Though it includes both landscape and square films, as an influencer, you must determine if square or landscape movies perform better on Facebook. Both types of films have their own space on Facebook, but you may always choose square videos to gain an advantage. We are delighted to assist you if you are unclear on how to generate square videos on Facebook. We'll show you how to make square movies that you can share on Facebook to achieve greater internet visibility in this article.
@@ -616,9 +613,6 @@ The result of the reframing can be seen in the preview box after it begins. The 
 
 These steps have been written as an easy guide. Following them step by step is an assurance for having a perfect square video that thrills your viewers or followers. If you ever need to refer to the steps when stuck, don't hesitate to go over them again and again until you master this art. Now, you can edit your videos without much experience and share square videos on your Instagram page or any social media you wish to share them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -638,8 +632,6 @@ Follow @Liza Brown
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -648,7 +640,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-comprehensive-guide-to-attractive-and-engaging-instagram-puzzle-feeds/"><u>[New] 2024 Approved The Comprehensive Guide to Attractive and Engaging Instagram Puzzle Feeds</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-video-twist-guide-from-portrait-to-panoramic-on-instagram/"><u>[New] 2024 Approved The Ultimate Video Twist Guide From Portrait to Panoramic on Instagram</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-from-pop-culture-sounds-to-your-ringtone-a-compreeved-guide/"><u>[New] From Pop Culture Sounds to Your Ringtone A Compreeved Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-masterclass-6-techniques-for-clear-unblemished-photo-edits-for-2024/"><u>[New] Masterclass 6 Techniques for Clear, Unblemished Photo Edits for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-supercharge-your-games-premium-top-10-drives-for-2024/"><u>[New] Supercharge Your Games Premium Top 10 Drives for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-cut-through-competition-advanced-techniques-for-instagram-ready-videos/"><u>[Updated] 2024 Approved Cut Through Competition Advanced Techniques for Instagram-Ready Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-revel-in-richness-of-ranks-the-top-25-instagram-titans-unveiled/"><u>[Updated] In 2024, Revel in Richness of Ranks The Top 25 Instagram Titans Unveiled</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-from-still-screens-to-mp3-beats-insta-video-tips/"><u>2024 Approved From Still Screens to MP3 Beats - Insta Video Tips</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-use-luts-in-photoshop-cc/"><u>2024 Approved How to Use LUTs in PhotoShop CC</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-infinix-smart-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-altering-visuals-in-teams-calls-timely-setup-adjustments/"><u>In 2024, Altering Visuals in Teams Calls Timely Setup Adjustments</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-from-amateur-to-pro-excelling-at-instagram-editing/"><u>In 2024, From Amateur to Pro Excelling at Instagram Editing</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/restore-damaged-movie-files-quickly-use-vlcs-powerful-features/"><u>Restore Damaged Movie Files Quickly – Use VLC's Powerful Features!</u></a></li>
+</ul></div>
 
