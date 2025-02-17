@@ -1,7 +1,7 @@
 ---
 title: Choosing Your Next Console? A Comprehensive Review of Switch Lite & OLED Variants
-date: 2025-02-01T18:16:28.944Z
-updated: 2025-02-07T17:04:11.077Z
+date: 2025-02-09T18:17:41.167Z
+updated: 2025-02-16T22:25:44.758Z
 categories:
   - BestProducts
 description: This Article Describes Choosing Your Next Console? A Comprehensive Review of Switch Lite & OLED Variants
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/r86gTISsgztG2qAzQaIHBJMiFEY=/400x300/fi
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -39,6 +39,10 @@ Lifewire / Kelsey Simon
 [View On Amazon](https://www.amazon.com/dp/B075NFTX36/?tag=lifewire-onsite-prod-20&ascsubtag=4685718%7Cn0dc423de187c40659bf9fd9ffcd5e7ec22%7CB075NFTX36) [View On Walmart](https://www.walmart.com/ip/829171723)
 
 3.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
@@ -66,15 +70,15 @@ Lifewire / Kelsey Simon
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -116,11 +120,19 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -136,21 +148,17 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -162,19 +170,11 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,19 +198,19 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-instagram-photography-guide-for-crafting-perfect-covers/"><u>[New] 2024 Approved The Ultimate Instagram Photography Guide for Crafting Perfect Covers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-comprehensive-guide-for-srt-format-conversions/"><u>[New] Comprehensive Guide for SRT Format Conversions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-comprehensible-guide-to-capturing-instagram-media-via-computer-systems/"><u>[Updated] 2024 Approved The Comprehensible Guide to Capturing Instagram Media via Computer Systems</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-total-unlinkage-from-youtube-shorts-complete-guide/"><u>[Updated] 2024 Approved Total Unlinkage From YouTube Shorts Complete Guide</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-crafting-perfect-instagram-story-cover-pages/"><u>[Updated] In 2024, Crafting Perfect Instagram Story Cover Pages</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-how-to-quickly-clip-and-save-your-favorite-youtube-sections/"><u>[Updated] In 2024, How to Quickly Clip and Save Your Favorite YouTube Sections</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-leading-edge-quick-frame-gatherer-5/"><u>[Updated] Leading Edge Quick Frame Gatherer #5</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-top-10-border-tools-for-professional-instagram-images-for-2024/"><u>[Updated] Top 10 Border Tools for Professional Instagram Images for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-stepwise-guide-to-optimal-zoom-audio-recording/"><u>2024 Approved Stepwise Guide to Optimal Zoom Audio Recording</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-xiaomi-redmi-a2-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Xiaomi Redmi A2 to iPad | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-from-frantic-movements-to-leisurely-views-crafting-spectacular-slow-motion-videos-for-instragram/"><u>In 2024, From Frantic Movements to Leisurely Views Crafting Spectacular Slow Motion Videos for Instragram</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/remote-control-revolution-the-galaxy-ford-f1n50-dominates-as-a-monstrous-rc-companion-reviewed/"><u>Remote Control Revolution: The Galaxy Ford F1n50 Dominates as a Monstrous RC Companion Reviewed</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-grandest-gatherings-a-chronicle-of-the-most-voted-posts-top-10/"><u>The Grandest Gatherings A Chronicle of the Most Voted Posts (Top 10)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Nokia G42 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-auditory-aesthetics-crafting-perfect-sounds-for-insta-for-2024/"><u>[New] Auditory Aesthetics Crafting Perfect Sounds for Insta for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-ending-your-insta-saga-a-comprehensive-guide-to-deactivation/"><u>[New] Ending Your Insta Saga A Comprehensive Guide to Deactivation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-explore-and-apply-instagrams-latest-filters-for-stunning-feeds-for-2024/"><u>[New] Explore and Apply Instagram's Latest Filters for Stunning Feeds for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-visionaries-of-marvellous-marvel-realities/"><u>[New] In 2024, Visionaries of Marvellous Marvel Realities</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-altering-your-voice-for-stories-and-reels-on-instagram-for-2024/"><u>[Updated] Altering Your Voice for Stories & Reels on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-engage-viewers-from-the-start-mobile-film-techniques-for-thumbnails/"><u>[Updated] In 2024, Engage Viewers From the Start Mobile Film Techniques for Thumbnails</u></a></li>
+<li><a href="https://extra-information.techidaily.com/aerial-titans-clash-dji-and-gopros-quest-for-2024/"><u>Aerial Titans Clash DJI and GoPro's Quest for 2024</u></a></li>
+<li><a href="https://win-unique.techidaily.com/complete-tutorial-how-to-retrieve-lost-information-on-your-wd-my-book-drive/"><u>Complete Tutorial: How to Retrieve Lost Information on Your WD My Book Drive</u></a></li>
+<li><a href="https://facebook.techidaily.com/germanys-stand-on-privacy-no-more-facebook-snooping-on-whatsapp-users/"><u>Germany's Stand on Privacy: No More Facebook Snooping on WhatsApp Users</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-honor-magic-6-lite-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Honor Magic 6 Lite FRP</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-9-pinnacle-in-live-game-broadcasting/"><u>In 2024, 9 Pinnacle in Live Game Broadcasting</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-transform-your-content-emulate-top-tiktok-trends-on-instagram-reels/"><u>In 2024, Transform Your Content Emulate Top TikTok Trends on Instagram Reels</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/simple-voice-changer-features-guidelines-and-alternatives-for-2024/"><u>Simple Voice Changer Features, Guidelines, and Alternatives for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/visuallyvivid-adjust-your-content-for-instagram-success-for-2024/"><u>VisuallyVivid Adjust Your Content for Instagram Success for 2024</u></a></li>
 </ul></div>
 
