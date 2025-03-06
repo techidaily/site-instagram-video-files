@@ -1,7 +1,7 @@
 ---
 title: Device Reactivated - All Clear
-date: 2025-02-15T00:26:21.726Z
-updated: 2025-02-16T19:03:27.075Z
+date: 2025-02-28T23:46:29.993Z
+updated: 2025-03-05T20:01:35.852Z
 tags:
   - win11
   - win10
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 
 If you encounter**This device is disabled. (Code 22)**in Device Manager, here are 4 solutions you can try to fix it. You may not have to try them all. Just work your way down the list until you find the one that works.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Try these fixes
 
 1. [**Enable your device driver**](https://imp.i357552.net/jzg4rq)
@@ -37,16 +33,8 @@ Code 22 occurs usually because your device is manually disabled. Then manually e
 1. On your keyboard, press the**Windows** ![](https://images.drivereasy.com/wp-content/uploads/2018/08/img_5b7b8ac86a6f5.png) key and**R** at the same time to open the Run box.
 2. Type **devmgmt.msc** and press**Enter**  to access Device Manager.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e3f572c04.png)
 3. Expand the category that your device belongs to, right-click your device and select**Enable device** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98e536637bc.jpg)
 If the problem persists, try the next fix.
@@ -61,10 +49,6 @@ Driver errors like Code 22 can often be fixed by updating device drivers. You ca
 2. Run Driver Easy and click the **Scan Now**  button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecd845a65.jpg)
 3. Click the **Update** button next to a flagged driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).Or click **Update All** to automatically download and install the correct version of **_all_** the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98ecfc678b7.jpg)
 
@@ -99,10 +83,6 @@ If the above steps don’t work for you, to fix driver error code 22, you can tr
 5. Remember which direction the battery is installed. Usually the engraved side, the positive side, is face up. Then, remove the CMOS battery from the main board (most can simply be popped out).![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c58fd6ffe.jpg)
 6. Wait for about one or two minutes for the CMOS to reset itself to its defaults.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 7. Place the battery back in the housing, seal your computer’s case, and start your computer. Your BIOS should have reset itself, re-enabling your graphics device in the process.![](https://images.drivereasy.com/wp-content/uploads/2018/09/img_5b98c68d02c94.jpg)
 
 ---
@@ -126,21 +106,16 @@ Please do reply if you got your problem fixed.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-ace-your-gameplay-innovative-tvs-to-boost-your-xbox-series-x-adventure/"><u>[New] 2024 Approved Ace Your Gameplay Innovative TVs to Boost Your Xbox Series X Adventure</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-ensuring-realness-in-your-instagram-photos/"><u>[New] Ensuring Realness in Your Instagram Photos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-visual-narratives-adding-memorable-story-emoji-images/"><u>[New] In 2024, Crafting Visual Narratives Adding Memorable Story Emoji Images</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-snap-it-up-innovative-ig-images-that-inspire/"><u>[New] In 2024, Snap It Up! Innovative IG Images That Inspire</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-making-a-splash-how-to-improve-your-videos-with-instagram-edits-for-2024/"><u>[New] Making a Splash How to Improve Your Videos with Instagram Edits for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-record-video-directly-from-webcam-using-vlc-media-player/"><u>[New] Record Video Directly From Webcam Using VLC Media Player</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-transforming-mundane-footage-into-spectaculair-slow-mo-instareel/"><u>[New] Transforming Mundane Footage Into Spectaculair Slow Mo InstaReel</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-video-description-engineer/"><u>[New] Video Description Engineer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-peek-at-all-shared-images-and-videos-in-chats/"><u>[Updated] 2024 Approved Peek at All Shared Images & Videos in Chats</u></a></li>
-<li><a href="https://techtrends.techidaily.com/descubre-las-mejores-practicas-de-grabacion-de-pantallas-usando-obs-su-acompanamiento-completo-en-movavi/"><u>Descubre Las Mejores Prácticas De Grabación De Pantallas Usando OBS – Su Acompañamiento Completo en Movavi</u></a></li>
-<li><a href="https://techtrends.techidaily.com/digital-assistance-hub-enhancing-your-experience-with-winx-dvd-ripper-and-video-converter/"><u>Digital Assistance Hub: Enhancing Your Experience with WinX DVD Ripper & Video Converter</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-poco-f5-5g-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Poco F5 5G?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-unveiling-the-efficiency-of-screencastify-recorder/"><u>In 2024, Unveiling the Efficiency of Screencastify Recorder</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-reels-expertise-from-a-ninja-perspective-for-2024/"><u>Instagram Reels Expertise From a Ninja Perspective for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/learn-the-ins-and-outs-of-adding-gifs-on-instagram-in-4-steps-for-2024/"><u>Learn the Ins and Outs of Adding GIFs on Instagram in 4 Steps for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/win-tips-swapping-display-screens/"><u>Win Tips: Swapping Display Screens</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-facebook-verification-how-to-get-the-blue-verified-badge-easily/"><u>[New] Facebook Verification How to Get the Blue Verified Badge (Easily)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-best-10-video-editing-apps-to-edit-and-make-instagram-reels/"><u>2024 Approved Best 10 Video Editing Apps to Edit and Make Instagram Reels</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-ranked-5-ios-podcast-applications-you-must-download/"><u>2024 Approved Ranked 5 iOS Podcast Applications You Must Download</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-realme-10t-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/beyond-the-surface-what-you-dont-know-about-stories/"><u>Beyond the Surface What You Don't Know About Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-decode-and-maximize-your-impact-on-instagram-with-these-insights/"><u>In 2024, Decode & Maximize Your Impact on Instagram with These Insights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-master-the-art-of-social-media-analytics-understanding-ig-data/"><u>In 2024, Master the Art of Social Media Analytics Understanding IG Data</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-insiders-manual-to-upload-content-to-igtv/"><u>In 2024, The Insider's Manual to Upload Content to IGTV</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/logitech-mouse-woes-heres-how-to-restore-your-scroll-wheel-functionality/"><u>Logitech Mouse Woes? Here’s How to Restore Your Scroll Wheel Functionality</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-technology-a-deep-dive-into-hardware-features/"><u>Mastering Technology: A Deep Dive Into Hardware Features</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/room-and-pc-prep-for-immersive-vr-experience-for-2024/"><u>Room & PC Prep for Immersive VR Experience for 2024</u></a></li>
 </ul></div>
 

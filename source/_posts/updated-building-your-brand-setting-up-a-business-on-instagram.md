@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Building Your Brand  Setting Up a Business on Instagram\""
-date: 2025-02-10T04:08:03.795Z
-updated: 2025-02-16T18:37:48.299Z
+date: 2025-03-02T20:37:47.410Z
+updated: 2025-03-05T18:18:58.972Z
 tags:
   - ai video
   - ai instagram
@@ -97,10 +97,6 @@ thumbnail: https://thmb.techidaily.com/a3b5ab34eaf3f37a9a75db4fff942183c1ae755ba
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -151,100 +147,6 @@ Follow @Shanoon Cox
  Take some time to get to know your new Instagram business account, so that you can set in place a powerful strategy to maximize your impact on this busy social channel.
 
  So, now you know how to create Instagram business account and how to manage it too, but one question remains; should you?
-
-## Should you switch to business account?
-
- With more than 800 million users and 500 million active each day, Instagram is by far the biggest and busiest social sharing network on the planet. But are there real advantages to switching to an Instagram business profile, or could you just promote your business through a standard account instead? Let's find out:
-
-#### Pros of switching to an Instagram business account
-
- Some of the real advantages of working with a business account include:
-
-* **Getting found more easily:** Prior to Instagram business profiles being included in the platform, the only way your customers could find or contact you was by visiting your page and clicking the link to your website. The new profiles make it much easier for people to find you, contact you and, of course, buy your products. Useful analytics: In the past, the only way to draw down analytics from Instagram was through third party apps. With the new Instagram business profile, you can monitor your posts, clicks, engagement and reach all in one simple place. This will help inform your activity on Instagram and allow you to spend your time on the most productive activities.
-* **Paid ad options:** Alongside the roll out of business profiles, Instagram have beefed up their ad options too. When you hit a post on your business account, there is an option at the bottom to 'promote' that post. From here, you can add a call to action button, target specific audiences and choose when the ad should be run. Both boost posts and paid ads are possible with the powerful tools built into Instagram.
-* **Links on Stories:** Now business Instagram accounts who have at least 10,000 followers can add links into their Stories. Stories act like promoted posts, appearing at the top of your user's news feed and encouraging engagement, so having active links to products or your website here is gold dust.
-
- You must admit, there are some pretty powerful reasons for knowing how to create Instagram account for your business, many of which could see your enterprise drawing in new customers and new opportunities. But is that the whole story?
-
-#### Drawbacks of the Instagram business profile
-
- As with any new features, there are also some drawbacks to owning an Instagram business account. Here's what you need to be aware of when thinking about how to create Instagram account for your company:
-
-* **Facebook requirement:** In order to set up a business account on Instagram you also need to have an existing Facebook page for your business. However, the majority of businesses already make use of Facebook, and if you don't, then you probably should.
-* **Engagement problems:** Instagram is owned by Facebook, and just like Facebook, they want you to pay for ads. While they are fairly tight lipped about how their post visibility algorithm works, some users have reported a negative impact on their engagement as a result of switching. The data on this is limited at this stage, but it's worth keeping in mind if you're not a business willing to pay for your exposure.
-
- So now you know how to create Instagram business account functionality, and how to use it, as well as whether it's a good idea for you. Will you make the switch?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## And the winner is?
-
- Right now, more than 15 million businesses are already using an Instagram business account, so in order to keep up with the competition, it makes sense to make the switch. It seems there will be no going back to the chronologically organized platform it used to be, and with all the massive benefits to switching, it makes absolute sense to adapt to the changing landscape.
-
- Social marketing has the real potential to have a positive effect on your bottom line, with [75 per cent of businesses](https://www.statista.com/statistics/695183/social-media-marketing-profitability/)stating a significant or some positive return on investment, and thanks to these new business profiles, Instagram is set to be a real contributor to your profits. Our clear winner is the Instagram business profile, so make the switch today and let us know how it works for you!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Most of us already know how to create Instagram account for our personal use, but when it comes to an Instagram business account, does the set up go the same way? How should we organise our Instagram business profile, and how can we keep it separate from our personal accounts? Here, we'll investigate how to create an Instagram business account so that your business can benefit from this massively popular social network too.
-
-* [How to set up Instagram Business Account](#part1)
-* [Should you switch to business account?](#part2)
-
-## How to set up Instagram Business Account
-
- Making the move to an Instagram business account is straightforward, so here's a step by step introduction to setting up your Instagram business profile in moments.
-
-#### 1\.  Switch to Instagram business profile
-
- Log into your personal Instagram account to start this process. If you don't have an account, you'll need to create an Instagram account to get started.
-
- Once into your Instagram account, simply open your account settings which you'll find in the cog at the top right of your screen when looking at your profile. Near the bottom of the menu you'll find the option to 'Switch to Business Profile'. Choose this to find out how to create Instagram business account.
-
-#### 2\.  Set up your profile
-
- Once you've pressed the option to switch to a business profile, you'll see a request to connect your Instagram account to your Facebook page, with a blue link to 'view features'. This is how to create Instagram account for your business.
-
- In this menu you'll be able to connect to your Facebook page, which is the best place to start. You'll be asked which Facebook page you want to connect to; note that you can only set up an Instagram business account for pages which you administer yourself. You may only connect one Instagram business profile with each Facebook page.
-
- From here, you can pull down contact information such as your customer service telephone number, your street address and your email contacts. You need to add at least one contact feature in order to create your Instagram business account.
-
-#### 3\.  Check your new Instagram business profile
-
- Once you've finished setting up your account, you can switch back to your personal account and navigate to your new Instagram business account to see how it looks from an outsider's point of view. Try tapping the 'contact' button to see what sort of interaction options are available to your visitors.
-
- Make sure you are only providing the relevant information at this stage. For example, if you are a fully online business, your customers won't need to get directions to your address, so you can go ahead and remove your location from the contact options. If you don't really use the phone number for business, you can choose to switch it to text message only within your Instagram business profile settings.
-
-#### 4\.  Check out Instagram for business features
-
- Now you know how to create Instagram business account, you also need to manage it well too. There are a few features which set business accounts apart from standard user accounts, and some of these can be very useful to you in getting the most from your new Instagram business profile.
-
-* **Insights:** You'll find the insights button at the top of your business profile next to the settings icon. Here you can see impressions, reach and clicks to your website, which are updated on a weekly basis. This feature also tracks your engagement metrics on a post by post basis, so that you can tailor what you're posting to get more from your channel.
-* **Promote:** Posts in Instagram can be boosted in a similar way to those on Facebook. This is not the same as running an ad, which you could also consider doing, but is a way to ensure more people see the content that you've posted.
-* **Profile:** Your Instagram business profile looks and feels different to the generic user account, which is a good thing. It allows users to find out about your business, to get directions or contact information for you and to click shoppable links directly.
-
- Take some time to get to know your new Instagram business account, so that you can set in place a powerful strategy to maximize your impact on this busy social channel.
-
- So, now you know how to create Instagram business account and how to manage it too, but one question remains; should you?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Should you switch to business account?
 
@@ -328,10 +230,6 @@ Follow @Shanoon Cox
 
  So, now you know how to create Instagram business account and how to manage it too, but one question remains; should you?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Should you switch to business account?
 
  With more than 800 million users and 500 million active each day, Instagram is by far the biggest and busiest social sharing network on the planet. But are there real advantages to switching to an Instagram business profile, or could you just promote your business through a standard account instead? Let's find out:
@@ -355,9 +253,87 @@ Follow @Shanoon Cox
 
  So now you know how to create Instagram business account functionality, and how to use it, as well as whether it's a good idea for you. Will you make the switch?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
+## And the winner is?
+
+ Right now, more than 15 million businesses are already using an Instagram business account, so in order to keep up with the competition, it makes sense to make the switch. It seems there will be no going back to the chronologically organized platform it used to be, and with all the massive benefits to switching, it makes absolute sense to adapt to the changing landscape.
+
+ Social marketing has the real potential to have a positive effect on your bottom line, with [75 per cent of businesses](https://www.statista.com/statistics/695183/social-media-marketing-profitability/)stating a significant or some positive return on investment, and thanks to these new business profiles, Instagram is set to be a real contributor to your profits. Our clear winner is the Instagram business profile, so make the switch today and let us know how it works for you!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Most of us already know how to create Instagram account for our personal use, but when it comes to an Instagram business account, does the set up go the same way? How should we organise our Instagram business profile, and how can we keep it separate from our personal accounts? Here, we'll investigate how to create an Instagram business account so that your business can benefit from this massively popular social network too.
+
+* [How to set up Instagram Business Account](#part1)
+* [Should you switch to business account?](#part2)
+
+## How to set up Instagram Business Account
+
+ Making the move to an Instagram business account is straightforward, so here's a step by step introduction to setting up your Instagram business profile in moments.
+
+#### 1\.  Switch to Instagram business profile
+
+ Log into your personal Instagram account to start this process. If you don't have an account, you'll need to create an Instagram account to get started.
+
+ Once into your Instagram account, simply open your account settings which you'll find in the cog at the top right of your screen when looking at your profile. Near the bottom of the menu you'll find the option to 'Switch to Business Profile'. Choose this to find out how to create Instagram business account.
+
+#### 2\.  Set up your profile
+
+ Once you've pressed the option to switch to a business profile, you'll see a request to connect your Instagram account to your Facebook page, with a blue link to 'view features'. This is how to create Instagram account for your business.
+
+ In this menu you'll be able to connect to your Facebook page, which is the best place to start. You'll be asked which Facebook page you want to connect to; note that you can only set up an Instagram business account for pages which you administer yourself. You may only connect one Instagram business profile with each Facebook page.
+
+ From here, you can pull down contact information such as your customer service telephone number, your street address and your email contacts. You need to add at least one contact feature in order to create your Instagram business account.
+
+#### 3\.  Check your new Instagram business profile
+
+ Once you've finished setting up your account, you can switch back to your personal account and navigate to your new Instagram business account to see how it looks from an outsider's point of view. Try tapping the 'contact' button to see what sort of interaction options are available to your visitors.
+
+ Make sure you are only providing the relevant information at this stage. For example, if you are a fully online business, your customers won't need to get directions to your address, so you can go ahead and remove your location from the contact options. If you don't really use the phone number for business, you can choose to switch it to text message only within your Instagram business profile settings.
+
+#### 4\.  Check out Instagram for business features
+
+ Now you know how to create Instagram business account, you also need to manage it well too. There are a few features which set business accounts apart from standard user accounts, and some of these can be very useful to you in getting the most from your new Instagram business profile.
+
+* **Insights:** You'll find the insights button at the top of your business profile next to the settings icon. Here you can see impressions, reach and clicks to your website, which are updated on a weekly basis. This feature also tracks your engagement metrics on a post by post basis, so that you can tailor what you're posting to get more from your channel.
+* **Promote:** Posts in Instagram can be boosted in a similar way to those on Facebook. This is not the same as running an ad, which you could also consider doing, but is a way to ensure more people see the content that you've posted.
+* **Profile:** Your Instagram business profile looks and feels different to the generic user account, which is a good thing. It allows users to find out about your business, to get directions or contact information for you and to click shoppable links directly.
+
+ Take some time to get to know your new Instagram business account, so that you can set in place a powerful strategy to maximize your impact on this busy social channel.
+
+ So, now you know how to create Instagram business account and how to manage it too, but one question remains; should you?
+
+## Should you switch to business account?
+
+ With more than 800 million users and 500 million active each day, Instagram is by far the biggest and busiest social sharing network on the planet. But are there real advantages to switching to an Instagram business profile, or could you just promote your business through a standard account instead? Let's find out:
+
+#### Pros of switching to an Instagram business account
+
+ Some of the real advantages of working with a business account include:
+
+* **Getting found more easily:** Prior to Instagram business profiles being included in the platform, the only way your customers could find or contact you was by visiting your page and clicking the link to your website. The new profiles make it much easier for people to find you, contact you and, of course, buy your products. Useful analytics: In the past, the only way to draw down analytics from Instagram was through third party apps. With the new Instagram business profile, you can monitor your posts, clicks, engagement and reach all in one simple place. This will help inform your activity on Instagram and allow you to spend your time on the most productive activities.
+* **Paid ad options:** Alongside the roll out of business profiles, Instagram have beefed up their ad options too. When you hit a post on your business account, there is an option at the bottom to 'promote' that post. From here, you can add a call to action button, target specific audiences and choose when the ad should be run. Both boost posts and paid ads are possible with the powerful tools built into Instagram.
+* **Links on Stories:** Now business Instagram accounts who have at least 10,000 followers can add links into their Stories. Stories act like promoted posts, appearing at the top of your user's news feed and encouraging engagement, so having active links to products or your website here is gold dust.
+
+ You must admit, there are some pretty powerful reasons for knowing how to create Instagram account for your business, many of which could see your enterprise drawing in new customers and new opportunities. But is that the whole story?
+
+#### Drawbacks of the Instagram business profile
+
+ As with any new features, there are also some drawbacks to owning an Instagram business account. Here's what you need to be aware of when thinking about how to create Instagram account for your company:
+
+* **Facebook requirement:** In order to set up a business account on Instagram you also need to have an existing Facebook page for your business. However, the majority of businesses already make use of Facebook, and if you don't, then you probably should.
+* **Engagement problems:** Instagram is owned by Facebook, and just like Facebook, they want you to pay for ads. While they are fairly tight lipped about how their post visibility algorithm works, some users have reported a negative impact on their engagement as a result of switching. The data on this is limited at this stage, but it's worth keeping in mind if you're not a business willing to pay for your exposure.
+
+ So now you know how to create Instagram business account functionality, and how to use it, as well as whether it's a good idea for you. Will you make the switch?
 
 ## And the winner is?
 
@@ -394,19 +370,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-streamlining-video-uploads-tips-for-transforming-h-vids-for-igtv/"><u>[New] 2024 Approved Streamlining Video Uploads Tips for Transforming H-Vids for IGTV</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-optimize-your-media-output-with-our-top-10-online-subtitles-tools/"><u>[New] In 2024, Optimize Your Media Output With Our Top 10 Online Subtitles Tools</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-quick-start-uploading-your-videos-to-instagram-via-pcmac/"><u>[New] In 2024, Quick Start Uploading Your Videos to Instagram via PC/Mac</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-android-audio-recording-tips-no-root-required/"><u>[Updated] 2024 Approved Android Audio Recording Tips - No Root Required</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-elevate-your-social-score-best-tools-for-post-and-engagement/"><u>[Updated] 2024 Approved Elevate Your Social Score Best Tools for Post and Engagement</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-a-final-farewell-to-your-instagram-world-process-and-steps/"><u>[Updated] A Final Farewell to Your Instagram World Process & Steps</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-capture-without-capsule-the-no-limit-story-saving-app-for-2024/"><u>[Updated] Capture Without Capsule The No-Limit Story Saving App for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-guide-to-eliminate-insta-suggest-feature/"><u>[Updated] Guide to Eliminate Insta Suggest Feature</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-quick-guide-to-hosting-a-virtual-meeting-with-zoom-on-android-gadgets/"><u>[Updated] Quick Guide to Hosting a Virtual Meeting with Zoom on Android Gadgets</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/accessing-and-using-srt-audio-on-various-oses/"><u>Accessing and Using SRT Audio on Various OSes</u></a></li>
-<li><a href="https://driver-error.techidaily.com/amd-radeon-hd-7770-drivers-download-easily/"><u>AMD Radeon HD 7770 Drivers Download Easily</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/future-proof-your-internet-the-top-cable-modemrouter-combos-to-get/"><u>Future-Proof Your Internet: The Top Cable Modem/Router Combos to Get</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722968422444-get-the-best-wifi-performance-update-drivers-for-windows-7-effortlessly/"><u>Get the Best WiFi Performance: Update Drivers for Windows 7 Effortlessly</u></a></li>
-<li><a href="https://techtrends.techidaily.com/guide-to-turning-off-wireless-emergency-alerts-wea-for-amber-on-andriod-phones/"><u>Guide to Turning Off Wireless Emergency Alerts (WEA) for AMBER on Andriod Phones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-guide-to-essential-asmr-video-facts-for-2024/"><u>[New] A Guide to Essential ASMR Video Facts for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-excellent-8-tripods-ideal-for-4k-camera-shooting/"><u>[New] Excellent 8 Tripods Ideal for 4K Camera Shooting</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-proven-ways-to-enhance-your-fb-presence-and-boost-engagement/"><u>[New] In 2024, Proven Ways to Enhance Your FB Presence and Boost Engagement</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-guide-to-instagram-video-advancement-a-planning-primer/"><u>[New] The Guide to Instagram Video Advancement A Planning Primer</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-cineblend-app-seamless-video-mashups-for-instagram-for-2024/"><u>[Updated] CineBlend App Seamless Video Mashups for Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-personalizing-photos-on-insta-the-watermark-process/"><u>[Updated] Personalizing Photos on Insta The Watermark Process</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-best-tiktok-watermark-remover-apps-for-iphone-and-android/"><u>2024 Approved Best TikTok Watermark Remover Apps for iPhone and Android</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/bypassing-instagrams-video-roadblocks-effortlessly-for-2024/"><u>Bypassing Instagram's Video Roadblocks Effortlessly for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/cant-view-hevc-h265-content-on-xiaomi-14-pro-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Xiaomi 14 Pro</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/essential-aspects-ignored-by-instagram-story-observers/"><u>Essential Aspects Ignored by Instagram Story Observers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-frantic-movements-to-leisurely-views-crafting-spectacular-slow-motion-videos-for-instragram-for-2024/"><u>From Frantic Movements to Leisurely Views Crafting Spectacular Slow Motion Videos for Instragram for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/leveraging-hashtags-and-collaborations-for-1k-insta-following/"><u>Leveraging Hashtags & Collaborations for 1K Insta Following</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/liquefactive-necrosis/"><u>Liquefactive Necrosis</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/m3-macbook-pro-and-macbook-air-dual-monitor-capability-compared-how-to-seamlessly-connect-external-screens-zdnet/"><u>M3 MacBook Pro and MacBook Air Dual Monitor Capability Compared – How to Seamlessly Connect External Screens (ZDNET)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/one-stop-solution-mastering-gif-downloads-across-all-devices-and-systems/"><u>One-Stop Solution Mastering GIF Downloads Across All Devices & Systems</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sound-sleuths-unite-free-beats-tracking-tools/"><u>Sound Sleuths Unite! Free Beats-Tracking Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/unmasking-imagerys-origins-a-complete-guide-to-reverse-picture-searching-in-instagram-for-2024/"><u>Unmasking Imagery's Origins A Complete Guide to Reverse Picture Searching in Instagram for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Instagram Essentials  Seamlessly Adding a Gallery of Images and Videos\""
-date: 2025-02-12T03:44:31.345Z
-updated: 2025-02-16T17:43:32.270Z
+date: 2025-02-28T00:13:16.889Z
+updated: 2025-03-05T20:32:59.125Z
 tags:
   - ai video
   - ai instagram
@@ -67,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
@@ -106,10 +102,6 @@ Follow @Shanoon Cox
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
@@ -133,10 +125,6 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
  Coming towards the end of today's post, we now hope that you have full understanding with this new feature of Instagram that enables you to share memories of a single event by uploading multiple photos and videos in a single post and that too, without having to clog up the entire feed. Set your creative soul free and utilize the Carousel feature the way you want and deepen your follower's engagement.
@@ -169,17 +157,9 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * As soon as you tap it, you will be able to see the recent photos and videos in your phone. Tap and hold, on any of the preferred image or video which you wish to upload, until you sense a slight vibration. Now, you have enabled the 'Select Multiple', scroll through the gallery and select rest 9 photos or videos that you wish to upload.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
@@ -190,10 +170,6 @@ Follow @Shanoon Cox
  If in case, you want a different filter for each or any specific image, tap on that particular image and apply the filter of your choice. Once you are satisfied with your selection, tap 'Done'.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-3.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
 
@@ -203,17 +179,9 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Lastly, hit on 'Share' to publish your post with multiple photos/videos in it.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-6.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -251,10 +219,6 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Alternatively, if you have upgraded your Instagram app, you can simply tap the 'Select Multiple' option, represented by an icon of 'stacked squares', and select up to 10 photos/videos.
 
  Note: Make sure to select the images, in the sequence you want them to occur in your post. A number appears on the top right corner of every image which shows you the sequence in which they will be uploaded. Tap 'Next' when you are done selecting the images/videos.
@@ -268,10 +232,6 @@ Follow @Shanoon Cox
 * (Optional) If you've selected less than 10 photos and want to add more, tap '<' or go back to the previous screen or tap '+' displayed on the right side of the photos/videos. Tapping '<' or going back to the previous screen can also be used to deselect a photo/video.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-mutiple-photo-to-ins-4.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * The next screen lets you caption your post, 'Add Location' and 'Tag people'. To tag people on individual photos, tap 'Tag People' and scroll through the slideshow to tag your friends in the images of your choice.
 
@@ -314,21 +274,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-guidelines-for-legally-reposting-on-insta/"><u>[New] In 2024, Guidelines for Legally Reposting on Insta</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-sound-digitization-audiovisual-preservation-for-2024/"><u>[New] Sound Digitization Audiovisual Preservation for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-top-10-igtv-edit-apps-maximize-your-video-content-for-2024/"><u>[New] Top 10 IGTV Edit Apps Maximize Your Video Content for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mastering-instagram-3-key-caption-techniques-for-videos/"><u>[Updated] 2024 Approved Mastering Instagram 3 Key Caption Techniques for Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-revamping-youtube-videos-with-smart-post-upload-techniques-for-2024/"><u>[Updated] Revamping YouTube Videos with Smart Post-Upload Techniques for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-social-media-savvy-instagrams-best-tips-for-gif-uploads-and-posting/"><u>[Updated] Social Media Savvy Instagram's Best Tips for GIF Uploads and Posting</u></a></li>
-<li><a href="https://win11.techidaily.com/adjusting-standard-file-formats-a-step-by-step-guide-using-libreoffice/"><u>Adjusting Standard File Formats: A Step-by-Step Guide Using LibreOffice</u></a></li>
-<li><a href="https://driver-error.techidaily.com/enhancing-system-bus-control-on-windows-11/"><u>Enhancing System Bus Control on Windows 11</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-might-cyberthieves-exploit-chatgpt-technology-for-financial-fraud-and-computer-intrusion/"><u>How Might Cyberthieves Exploit ChatGPT Technology for Financial Fraud and Computer Intrusion?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-capturezone-win-10s-best-recorder/"><u>In 2024, CaptureZone Win 10'S Best Recorder</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-how-to-add-border-to-instagram-photos/"><u>In 2024, How to Add Border to Instagram Photos?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-streamline-content-sharing-a-complete-instagram-video-upload-guide-from-desktop/"><u>In 2024, Streamline Content Sharing A Complete Instagram Video Upload Guide From Desktop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/prime-power-revive-solutions-for-cars-2024/"><u>Prime Power Revive Solutions for Cars 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/professional-thumbnails-for-engaging-igtv-posts-for-2024/"><u>Professional Thumbnails for Engaging IGTV Posts for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/split-wmv-videos-for-free-top-5-software-recommendations/"><u>Split WMV Videos for Free Top 5 Software Recommendations</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721476268960-struggling-with-your-iphones-slow-screen-timeout-discover-quick-solutions/"><u>Struggling with Your iPhone's Slow Screen Timeout? Discover Quick Solutions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-step-by-step-to-turn-off-igtv/"><u>[New] In 2024, Step-by-Step to Turn Off IGTV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-streamline-your-social-networking-joining-instagram-and-facebook-seamlessly/"><u>[New] In 2024, Streamline Your Social Networking Joining Instagram & Facebook Seamlessly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-visualizationvirtue-the-art-of-resizing-photos-and-videos-in-instagram/"><u>[New] In 2024, VisualizationVirtue The Art of Resizing Photos and Videos in Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-privacy-focused-tools-for-unseen-story-watching-for-2024/"><u>[New] Privacy-Focused Tools for Unseen Story Watching for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-swift-playback-on-instagram-videos-mobiledesktop-for-2024/"><u>[New] Swift Playback on Instagram Videos (Mobile/Desktop) for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-instagram-growth-strategy-handbook/"><u>[New] The Instagram Growth Strategy Handbook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-block-someone-on-instagram-for-2024/"><u>[Updated] How to Block Someone on Instagram for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-steps-to-crafting-powerful-end-of-episode-notes/"><u>2024 Approved Steps to Crafting Powerful End-of-Episode Notes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/effortless-captioning-of-instagram-story-and-video-content/"><u>Effortless Captioning of Instagram Story & Video Content</u></a></li>
+<li><a href="https://media-tips.techidaily.com/expert-guide-how-to-easily-get-and-set-up-quicktime-player-in-your-windows-cuarto-pantalla/"><u>Expert Guide: How to Easily Get & Set Up QuickTime Player in Your Windows Cuarto Pantalla</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exposed-and-ready-unhiding-iphone-apps-made-simple/"><u>Exposed and Ready: Unhiding iPhone Apps Made Simple</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-infinix-hot-40-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Infinix Hot 40 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-the-ultimate-fcp-guide-5-time-saving-editing-tricks-you-need-to-know/"><u>In 2024, The Ultimate FCP Guide 5 Time-Saving Editing Tricks You Need to Know</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-find-x6-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Find X6 Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-best-online-video-reversers-for-2024/"><u>Updated Best Online Video Reversers for 2024</u></a></li>
 </ul></div>
 
